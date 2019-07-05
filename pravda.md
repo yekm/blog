@@ -1,6 +1,6 @@
 ## Pravda
 
-https://twitter.com/elonmusk/status/999367582271422464
+[Elon's tweet](https://twitter.com/elonmusk/status/999367582271422464)
 
 Why can't you make a true voting system first?
 
