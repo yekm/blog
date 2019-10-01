@@ -31,3 +31,8 @@ It's like brightness or zoom control but spatial.
 Thus the human will be able to choose between various Netflix shows.
 
 Don't forget to make a kill switch in the prefrontal cortex.
+
+---
+
+https://www.youtube.com/watch?v=EiUUFdUFyIU
+Put the tracker inside simple shapes. Maybe it makes sense to implant a separate acceleration/direction/scale channel.
