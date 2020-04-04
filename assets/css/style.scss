@@ -3,6 +3,12 @@
 
 @import "{{ site.theme }}";
 
-li {
-    margin-top: -16px !important;
+
+li>p:first-child {
+    margin-top: 0px !important;
 }
+
+li>p:last-child {
+    margin-bottom: 0px !important;
+}
+
