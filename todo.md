@@ -9,3 +9,7 @@
 
 * Телеграм бота с интерфейсом в стековерфлоу  
 гугл нашел https://bytescout.com/blog/03/telegram-bot-to-search-on-stackoverflow как теперь развидеть это?
+
+* Написать быструю красивую сонограмму (на базе x42-metr, например).
+  * https://github.com/clMathLibraries/clFFT
+  * https://github.com/ocornut/imgui/blob/master/examples/imgui_impl_vulkan.cpp *bloat-free* graphical user interface library for C++
