@@ -13,3 +13,5 @@
 * Написать быструю красивую сонограмму (на базе x42-metr, например).
   * https://github.com/clMathLibraries/clFFT
   * https://github.com/ocornut/imgui/blob/master/examples/imgui_impl_vulkan.cpp *bloat-free* graphical user interface library for C++
+
+* Отображение метаинформации о картинке и её редактирование (exif) в интерфейсе телеграм. (Ссылка к скриншоту, поясняющая записка) Оно бы не терлось между разными платформами и ходили бы мемы с обьяснениями сразу. Memepedia-on-ton.
