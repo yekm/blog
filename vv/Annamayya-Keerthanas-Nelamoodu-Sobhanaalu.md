@@ -302,3 +302,47 @@ pilichi peruch.epp.eberubalam.okaTe ‖
 పిలిచి పేరుచెప్పెబేరుబలమొకటే ‖  
 
 
+### English
+
+#### annamayya kīrtana nelamūḍu śobhanālu
+
+nelamūḍu śobhanālu nīku natanikidagu ❘  
+kalakālamunu nichchakalyāṇamammā ‖
+
+rāmanāmamatanidi rāmavu nīvaitenu ❘  
+chāmana varṇamataḍu chāmavu nīvu ❘  
+vāmanuḍanduratani vāmanayanavu nīvu ❘  
+premapumī yiddariki perubalamokaṭe ‖
+
+hari perātaniki hariṇekśhaṇavu nīvu ❘  
+karigāchedānu nīvu kariyānavu ❘  
+sari jaladhiśāyi jaladhikanyavu nīvu ❘  
+berasi mīyiddariki berubalamokaṭe ‖
+
+jalaja nābhuḍataḍu jalajamukhivi nīvu ❘  
+alamelumaṅgavu ninnelamedānu ❘  
+ilalo śrīveṅkaṭeśuḍiṭu ninnurānamoche ❘  
+pilichi perucheppeberubalamokaṭe ‖
+
+### PlainEnglish
+
+#### annamayya keertana n.elamooDu shobhanaalu
+
+n.elamooDu shobhanaalu neeku natanikidagu ❘  
+kalakaalamunu nichchakalyaaNamammaa ‖
+
+raamanaamamatanidi raamavu neevaitenu ❘  
+chaamana varNamataDu chaamavu neevu ❘  
+vaamanuDaMduratani vaamanayanavu neevu ❘  
+premapumee yiddariki perubalam.okaTe ‖
+
+hari peraataniki hariNekshhaNavu neevu ❘  
+karigaach.edaanu neevu kariyaanavu ❘  
+sari jaladhishaayi jaladhikanyavu neevu ❘  
+b.erasi meeyiddariki berubalam.okaTe ‖
+
+jalaja naabhuDataDu jalajamukhivi neevu ❘  
+alamelumaMgavu ninn.elam.edaanu ❘  
+ilalo shreeveMkaTeshuDiTu ninnuraanamoch.e ❘  
+pilichi peruch.epp.eberubalam.okaTe ‖
+

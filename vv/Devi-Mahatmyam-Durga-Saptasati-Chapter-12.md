@@ -1784,3 +1784,357 @@ dadaati vittaM putraaMshca matiM dharme gatiM shubhaaM‖41‖
  **ఆహుతి  
 ** ఓం క్లీం జయంతీ సాంగాయై సశక్తికాయై సపరివారాయై సవాహనాయై వరప్రధాయై వైష్ణవీ దేవ్యై అహాహుతిం సమర్పయామి నమః స్వాహా ‖  
 
+### English
+
+#### devī mahātmyam durgā saptaśati dvādaśoadhyāyaḥ
+
+phalaśrutirnāma dvādaśoadhyāyaḥ ‖
+
+dhyānaṃ  
+vidhyuddhāma samaprabhāṃ mṛgapati skandha sthitāṃ bhīśhaṇāṃ❘  
+kanyābhiḥ karavāla kheṭa vilasaddastābhi rāsevitāṃ  
+hastaiśchakra gadhāsi kheṭa viśikhāṃ guṇaṃ tarjanīṃ  
+vibhrāṇa manalātmikāṃ śiśidharāṃ durgāṃ trinetrāṃ bhaje  
+devyuvāca
+‖1‖
+
+ebhiḥ stavaiśca mā nityaṃ stośhyate yaḥ samāhitaḥ❘  
+tasyāhaṃ sakalāṃ bādhāṃ nāśayiśhyāmya saṃśayam           
+‖2‖
+
+madhukaiṭabhanāśaṃ ca mahiśhāsuraghātanam❘  
+kīrtiyiśhyanti ye ta dvadvadhaṃ śumbhaniśumbhayoḥ   
+‖3‖
+
+aśhṭamyāṃ ca caturdhaśyāṃ navamyāṃ caikacetasaḥ❘  
+śrośhyanti caiva ye bhaktyā mama māhātmyamuttamam   
+‖4‖
+
+na teśhāṃ duśhkṛtaṃ kiñcid duśhkṛtotthā na cāpadaḥ❘  
+bhaviśhyati na dāridryaṃ na cai veśhṭaviyojanam   
+‖5‖
+
+śatrubhyo na bhayaṃ tasya dasyuto vā na rājataḥ❘  
+na śastrānalato yaughāt kadācit sambhaviśhyati   
+‖6‖
+
+tasmānmamaitanmāhatmyaṃ paṭhitavyaṃ samāhitaiḥ❘  
+śrotavyaṃ ca sadā bhaktyā paraṃ svastyayanaṃ hi tat   
+‖7‖
+
+upa sargāna śeśhāṃstu mahāmārī samudbhavān❘  
+tathā trividha mutpātaṃ māhātmyaṃ śamayenmama   
+‖8‖
+
+yatraita tpaṭhyate samyaṅnityamāyatane mama❘  
+sadā na tadvimokśhyāmi sānnidhyaṃ tatra mesthitam   
+‖9‖
+
+bali pradāne pūjāyāmagni kārye mahotsave❘  
+sarvaṃ mamaitanmāhātmyaṃ uccāryaṃ śrāvyamevaca   
+‖10‖
+
+jānatājānatā vāpi bali pūjāṃ tathā kṛtām❘  
+pratīkśhiśhyāmyahaṃ prītyā vahni homaṃ tathā kṛtam   
+‖11‖
+
+śaratkāle mahāpūjā kriyate yāca vārśhikī❘  
+tasyāṃ mamaitanmāhātmyaṃ śrutvā bhaktisamanvitaḥ   
+‖12‖
+
+sarvabādhāvinirmukto dhanadhānyasamanvitaḥ❘  
+manuśhyo matprasādena bhaviśhyati na saṃśayaḥ
+‖13‖
+
+śrutvā mamaitanmāhātmyaṃ tathā cotpattayaḥ śubhāḥ❘  
+parākramaṃ ca yuddheśhu jāyate nirbhayaḥ pumān
+‖14‖
+
+ripavaḥ saṅkśhayaṃ yānti kaḻyāṇāṃ copapadhyate❘  
+nandate ca kulaṃ puṃsāṃ mahātmyaṃ mamaśṛṇvatām
+‖15‖
+
+śāntikarmāṇi sarvatra tathā duḥsvapnadarśane❘  
+grahapīḍāsu cogrāsu mahātmyaṃ śṛṇuyānmama
+‖16‖
+
+upasargāḥ śamaṃ yānti grahapīḍāśca dāruṇāḥ  
+duḥsvapnaṃ ca nṛbhirdṛśhṭaṃ susvapnamupajāyate
+‖17‖
+
+bālagrahābhibhūtānaṃ bālānāṃ śāntikārakam❘  
+saṅghātabhede ca nṛṇāṃ maitrīkaraṇamuttamam
+‖18‖
+
+durvṛttānāmaśeśhāṇāṃ balahānikaraṃ param❘  
+rakśhobhūtapiśācānāṃ paṭhanādeva nāśanam
+‖19‖
+
+sarvaṃ mamaitanmāhātmyaṃ mama sannidhikārakam❘  
+paśupuśhpārghyadhūpaiśca gandhadīpaistathottamaiḥ
+‖20‖
+
+viprāṇāṃ bhojanairhomaiḥ prokśhaṇīyairaharniśam❘  
+anyaiśca vividhairbhogaiḥ pradānairvatsareṇa yā
+‖21‖
+
+prītirme kriyate sāsmin sakṛduccarite śrute❘  
+śrutaṃ harati pāpāni tathārogyaṃ prayacChati
+‖22‖
+
+rakśhāṃ karoti bhūtebhyo janmanāṃ kīrtinaṃ mama❘  
+yuddeśhu caritaṃ yanme duśhṭa daitya nibarhaṇam
+‖23‖
+
+tasmiñChṛte vairikṛtaṃ bhayaṃ puṃsāṃ na jāyate❘  
+yuśhmābhiḥ stutayo yāśca yāśca brahmarśhibhiḥ kṛtāḥ
+‖24‖
+
+brahmaṇā ca kṛtāstāstu prayacChantu śubhāṃ matim❘  
+araṇye prāntare vāpi dāvāgni parivāritaḥ
+‖25‖
+
+dasyubhirvā vṛtaḥ śūnye gṛhīto vāpi śatṛbhiḥ❘  
+siṃhavyāghrānuyāto vā vanevā vana hastibhiḥ
+‖26‖
+
+rāGYā kruddena cāGYapto vadhyo banda gatoapivā❘  
+āghūrṇito vā vātena sthitaḥ pote mahārṇave
+‖27‖
+
+patatsu cāpi śastreśhu saṅgrāme bhṛśadāruṇe❘  
+sarvābādhāśu ghorāsu vedanābhyarditoapivā
+‖28‖
+
+smaran mamaitaccaritaṃ naro mucyeta saṅkaṭāt❘  
+mama prabhāvātsiṃhādyā dasyavo vairiṇa stathā
+‖29‖
+
+dūrādeva palāyante smarataścaritaṃ mama
+‖30‖
+
+ṛśhiruvāca
+‖31‖
+
+ityuktvā sā bhagavatī caṇḍikā caṇḍavikramā❘  
+paśyatāṃ sarva devānāṃ tatraivāntaradhīyata
+‖32‖
+
+teapi devā nirātaṅkāḥ svādhikārānyathā purā❘  
+yaGYabhāgabhujaḥ sarve cakrurvi nihatārayaḥ
+‖33‖
+
+daityāśca devyā nihate śumbhe devaripou yudhi   
+jagadvidhvaṃsake tasmin mahogreatula vikrame
+‖34‖
+
+niśumbhe ca mahāvīrye śeśhāḥ pātāḻamāyayuḥ
+‖35‖
+
+evaṃ bhagavatī devī sā nityāpi punaḥ punaḥ❘  
+sambhūya kurute bhūpa jagataḥ paripālanam
+‖36‖
+
+tayaitanmohyate viśvaṃ saiva viśvaṃ prasūyate❘  
+sāyācitā ca viGYānaṃ tuśhṭā ṛddhiṃ prayacChati
+‖37‖
+
+vyāptaṃ tayaitatsakalaṃ brahmāṇḍaṃ manujeśvara❘  
+mahādevyā mahākāḻī mahāmārī svarūpayā
+‖38‖
+
+saiva kāle mahāmārī saiva sṛśhtirbhavatyajā❘  
+sthitiṃ karoti bhūtānāṃ saiva kāle sanātanī
+‖39‖
+
+bhavakāle nṛṇāṃ saiva lakśhmīrvṛddhipradā gṛhe❘  
+saivābhāve tathā lakśhmī rvināśāyopajāyate
+‖40‖
+
+stutā sampūjitā puśhpairgandhadhūpādibhistathā❘  
+dadāti vittaṃ putrāṃśca matiṃ dharme gatiṃ śubhāṃ
+‖41‖
+
+
+‖ iti śrī mārkaṇḍeya purāṇe sāvarnike manvantare devī mahatmye phalaśrutirnāma dvādaśoadhyāya samāptaṃ ‖
+
+āhuti  
+oṃ klīṃ jayantī sāṅgāyai saśaktikāyai saparivārāyai savāhanāyai varapradhāyai vaiśhṇavī devyai ahāhutiṃ samarpayāmi namaḥ svāhā ‖
+
+### PlainEnglish
+
+#### devee mahaatmyam durgaa saptashati dvaadasho.adhyaayaH
+
+phalashrutirnaama dvaadasho.adhyaayaH ‖
+
+dhyaanaM  
+vidhyuddhaama samaprabhaaM mRRigapati skaMdha sthitaaM bheeshhaNaaM❘  
+kanyaabhiH karavaala kheTa vilasaddastaabhi raasevitaaM  
+hastaishchakra gadhaasi kheTa vishikhaaM guNaM tarjaneeM  
+vibhraaNa manalaatmikaaM shishidharaaM durgaaM trinetraaM bhaje  
+devyuvaaca
+‖1‖
+
+ebhiH stavaishca maa nityaM stoshhyate yaH samaahitaH❘  
+tasyaahaM sakalaaM baadhaaM naashayishhyaamya saMshayam           
+‖2‖
+
+madhukaiTabhanaashaM ca mahishhaasuraghaatanam❘  
+keertiyishhyanti ye ta dvadvadhaM shumbhanishumbhayoH   
+‖3‖
+
+ashhTamyaaM ca caturdhashyaaM navamyaaM caikacetasaH❘  
+shroshhyanti caiva ye bhaktyaa mama maahaatmyamuttamam   
+‖4‖
+
+na teshhaaM dushhkRRitaM kincid dushhkRRitotthaa na caapadaH❘  
+bhavishhyati na daaridryaM na cai veshhTaviyojanam   
+‖5‖
+
+shatrubhyo na bhayaM tasya dasyuto vaa na raajataH❘  
+na shastraanalato yaughaat kadaacit sambhavishhyati   
+‖6‖
+
+tasmaanmamaitanmaahatmyaM paThitavyaM samaahitaiH❘  
+shrotavyaM ca sadaa bhaktyaa paraM svastyayanaM hi tat   
+‖7‖
+
+upa sargaana sheshhaaMstu mahaamaaree samudbhavaan❘  
+tathaa trividha mutpaataM maahaatmyaM shamayenmama   
+‖8‖
+
+yatraita tpaThyate samyannityamaayatane mama❘  
+sadaa na tadvimokshhyaami saannidhyaM tatra mesthitam   
+‖9‖
+
+bali pradaane poojaayaamagni kaarye mahotsave❘  
+sarvaM mamaitanmaahaatmyaM uccaaryaM shraavyamevaca   
+‖10‖
+
+jaanataajaanataa vaapi bali poojaaM tathaa kRRitaam❘  
+prateekshhishhyaamyahaM preetyaa vahni homaM tathaa kRRitam   
+‖11‖
+
+sharatkaale mahaapoojaa kriyate yaaca vaarshhikee❘  
+tasyaaM mamaitanmaahaatmyaM shrutvaa bhaktisamanvitaH   
+‖12‖
+
+sarvabaadhaavinirmukto dhanadhaanyasamanvitaH❘  
+manushhyo matprasaadena bhavishhyati na saMshayaH
+‖13‖
+
+shrutvaa mamaitanmaahaatmyaM tathaa cotpattayaH shubhaaH❘  
+paraakramaM ca yuddheshhu jaayate nirbhayaH pumaan
+‖14‖
+
+ripavaH saMkshhayaM yaanti kaLyaaNaaM copapadhyate❘  
+nandate ca kulaM puMsaaM mahaatmyaM mamashRRiNvataam
+‖15‖
+
+shaantikarmaaNi sarvatra tathaa duHsvapnadarshane❘  
+grahapeeDaasu cograasu mahaatmyaM shRRiNuyaanmama
+‖16‖
+
+upasargaaH shamaM yaanti grahapeeDaashca daaruNaaH  
+duHsvapnaM ca nRRibhirdRRishhTaM susvapnamupajaayate
+‖17‖
+
+baalagrahaabhibhootaanaM baalaanaaM shaantikaarakam❘  
+saMghaatabhede ca nRRiNaaM maitreekaraNamuttamam
+‖18‖
+
+durvRRittaanaamasheshhaaNaaM balahaanikaraM param❘  
+rakshhobhootapishaacaanaaM paThanaadeva naashanam
+‖19‖
+
+sarvaM mamaitanmaahaatmyaM mama sannidhikaarakam❘  
+pashupushhpaarghyadhoopaishca gandhadeepaistathottamaiH
+‖20‖
+
+vipraaNaaM bhojanairhomaiH pr.okshhaNeeyairaharnisham❘  
+anyaishca vividhairbhogaiH pradaanairvatsareNa yaa
+‖21‖
+
+preetirme kriyate saasmin sakRRiduccarite shrute❘  
+shrutaM harati paapaani tathaarogyaM prayacChati
+‖22‖
+
+rakshhaaM karoti bhootebhyo janmanaaM keertinaM mama❘  
+yuddeshhu caritaM yanme dushhTa daitya nibarhaNam
+‖23‖
+
+tasminChRRite vairikRRitaM bhayaM puMsaaM na jaayate❘  
+yushhmaabhiH stutayo yaashca yaashca brahmarshhibhiH kRRitaaH
+‖24‖
+
+brahmaNaa ca kRRitaastaastu prayacChantu shubhaaM matim❘  
+araNye praantare vaapi daavaagni parivaaritaH
+‖25‖
+
+dasyubhirvaa vRRitaH shoonye gRRiheeto vaapi shatRRibhiH❘  
+siMhavyaaghraanuyaato vaa vanevaa vana hastibhiH
+‖26‖
+
+raagnyaa kruddena caagnyapto vadhyo banda gato.apivaa❘  
+aaghoorNito vaa vaatena sthitaH pote mahaarNave
+‖27‖
+
+patatsu caapi shastreshhu saMgraame bhRRishadaaruNe❘  
+sarvaabaadhaashu ghoraasu vedanaabhyardito.apivaa
+‖28‖
+
+smaran mamaitaccaritaM naro mucyeta sankaTaat❘  
+mama prabhaavaatsiMhaadyaa dasyavo vairiNa stathaa
+‖29‖
+
+dooraadeva palaayante smaratashcaritaM mama
+‖30‖
+
+RRishhiruvaaca
+‖31‖
+
+ityuktvaa saa bhagavatee caNDikaa caNDavikramaa❘  
+pashyataaM sarva devaanaaM tatraivaantaradheeyata
+‖32‖
+
+te.api devaa niraatankaaH svaadhikaaraanyathaa puraa❘  
+yagnyabhaagabhujaH sarve cakrurvi nihataarayaH
+‖33‖
+
+daityaashca devyaa nihate shumbhe devarip.ou yudhi   
+jagadvidhvaMsake tasmin mahogre.atula vikrame
+‖34‖
+
+nishumbhe ca mahaaveerye sheshhaaH paataaLamaayayuH
+‖35‖
+
+evaM bhagavatee devee saa nityaapi punaH punaH❘  
+sambhooya kurute bhoopa jagataH paripaalanam
+‖36‖
+
+tayaitanmohyate vishvaM saiva vishvaM prasooyate❘  
+saayaacitaa ca vignyaanaM tushhTaa RRiddhiM prayacChati
+‖37‖
+
+vyaaptaM tayaitatsakalaM brahmaaNDaM manujeshvara❘  
+mahaadevyaa mahaakaaLee mahaamaaree svaroopayaa
+‖38‖
+
+saiva kaale mahaamaaree saiva sRRishhtirbhavatyajaa❘  
+sthitiM karoti bhootaanaaM saiva kaale sanaatanee
+‖39‖
+
+bhavakaale nRRiNaaM saiva lakshhmeervRRiddhipradaa gRRihe❘  
+saivaabhaave tathaa lakshhmee rvinaashaayopajaayate
+‖40‖
+
+stutaa sampoojitaa pushhpairgandhadhoopaadibhistathaa❘  
+dadaati vittaM putraaMshca matiM dharme gatiM shubhaaM
+‖41‖
+
+
+‖ iti shree maarkaNDeya puraaNe saavarnike manvantare devee mahatmye phalashrutirnaama dvaadasho.adhyaaya samaaptaM ‖
+
+aahuti  
+oM kleeM jayaMtee saaMgaayai sashaktikaayai saparivaaraayai savaahanaayai varapradhaayai vaishhNavee devyai ahaahutiM samarpayaami namaH svaahaa ‖
+

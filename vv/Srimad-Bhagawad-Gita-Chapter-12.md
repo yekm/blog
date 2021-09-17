@@ -978,3 +978,185 @@ bhaktiyogo naama dvaadasho.adhyaayaH ‖12 ‖
 
 భక్తియోగో నామ ద్వాదశోఽధ్యాయః ‖12 ‖  
 
+### English
+
+#### śrīmad bhagavad gīta dvādaśoadhyāyaḥ
+
+atha dvādaśoadhyāyaḥ ❘  
+arjuna uvācha ❘  
+evaṃ satatayuktā ye bhaktāstvāṃ paryupāsate ❘  
+ye chāpyakśharamavyaktaṃ teśhāṃ ke yogavittamāḥ 
+‖ 1 ‖
+
+śrībhagavānuvācha ❘  
+mayyāveśya mano ye māṃ nityayuktā upāsate ❘  
+śraddhayā parayopetāste me yuktatamā matāḥ 
+‖ 2 ‖
+
+ye tvakśharamanirdeśyamavyaktaṃ paryupāsate ❘  
+sarvatragamachintyaṃ cha kūṭasthamachalaṃ dhruvam 
+‖ 3 ‖
+
+saṃniyamyendriyagrāmaṃ sarvatra samabuddhayaḥ ❘  
+te prāpnuvanti māmeva sarvabhūtahite ratāḥ 
+‖ 4 ‖
+
+kleśoadhikatarasteśhāmavyaktāsaktachetasām ❘  
+avyaktā hi gatirduḥkhaṃ dehavadbhiravāpyate 
+‖ 5 ‖
+
+ye tu sarvāṇi karmāṇi mayi saṃnyasya matparāḥ ❘  
+ananyenaiva yogena māṃ dhyāyanta upāsate 
+‖ 6 ‖
+
+teśhāmahaṃ samuddhartā mṛtyusaṃsārasāgarāt ❘  
+bhavāmina chirātpārtha mayyāveśitachetasām 
+‖ 7 ‖
+
+mayyeva mana ādhatsva mayi buddhiṃ niveśaya ❘  
+nivasiśhyasi mayyeva ata ūrdhvaṃ na saṃśayaḥ 
+‖ 8 ‖
+
+atha chittaṃ samādhātuṃ na śaknośhi mayi sthiram ❘  
+abhyāsayogena tato māmichChāptuṃ dhanañjaya 
+‖ 9 ‖
+
+abhyāseapyasamarthoasi matkarmaparamo bhava ❘  
+madarthamapi karmāṇi kurvansiddhimavāpsyasi 
+‖ 10 ‖
+
+athaitadapyaśaktoasi kartuṃ madyogamāśritaḥ ❘  
+sarvakarmaphalatyāgaṃ tataḥ kuru yatātmavān 
+‖ 11 ‖
+
+śreyo hi GYānamabhyāsājGYānāddhyānaṃ viśiśhyate ❘  
+dhyānātkarmaphalatyāgastyāgāchChāntiranantaram 
+‖ 12 ‖
+
+adveśhṭā sarvabhūtānāṃ maitraḥ karuṇa eva cha ❘  
+nirmamo nirahaṅkāraḥ samaduḥkhasukhaḥ kśhamī 
+‖ 13 ‖
+
+santuśhṭaḥ satataṃ yogī yatātmā dṛḍhaniśchayaḥ ❘  
+mayyarpitamanobuddhiryo madbhaktaḥ sa me priyaḥ 
+‖ 14 ‖
+
+yasmānnodvijate loko lokānnodvijate cha yaḥ ❘  
+harśhāmarśhabhayodvegairmukto yaḥ sa cha me priyaḥ 
+‖ 15 ‖
+
+anapekśhaḥ śuchirdakśha udāsīno gatavyathaḥ ❘  
+sarvārambhaparityāgī yo madbhaktaḥ sa me priyaḥ 
+‖ 16 ‖
+
+yo na hṛśhyati na dveśhṭi na śochati na kāṅkśhati ❘  
+śubhāśubhaparityāgī bhaktimānyaḥ sa me priyaḥ 
+‖ 17 ‖
+
+samaḥ śatrau cha mitre cha tathā mānāpamānayoḥ ❘  
+śītośhṇasukhaduḥkheśhu samaḥ saṅgavivarjitaḥ 
+‖ 18 ‖
+
+tulyanindāstutirmaunī santuśhṭo yena kenachit ❘  
+aniketaḥ sthiramatirbhaktimānme priyo naraḥ 
+‖ 19 ‖
+
+ye tu dharmyāmṛtamidaṃ yathoktaṃ paryupāsate ❘  
+śraddadhānā matparamā bhaktāsteatīva me priyāḥ 
+‖ 20 ‖
+
+oṃ tatsaditi śrīmadbhagavadgītāsūpaniśhatsu brahmavidyāyāṃ yogaśāstre śrīkṛśhṇārjunasaṃvāde   
+bhaktiyogo nāma dvādaśoadhyāyaḥ 
+‖12 ‖
+
+### PlainEnglish
+
+#### shreemad bhagavad geeta dvaadasho.adhyaayaH
+
+atha dvaadasho.adhyaayaH ❘  
+arjuna uvaacha ❘  
+evaM satatayuktaa ye bhaktaastvaaM paryupaasate ❘  
+ye chaapyakshharamavyaktaM teshhaaM ke yogavittamaaH 
+‖ 1 ‖
+
+shreebhagavaanuvaacha ❘  
+mayyaaveshya mano ye maaM nityayuktaa upaasate ❘  
+shraddhayaa parayopetaaste me yuktatamaa mataaH 
+‖ 2 ‖
+
+ye tvakshharamanirdeshyamavyaktaM paryupaasate ❘  
+sarvatragamachintyaM cha kooTasthamachalaM dhruvam 
+‖ 3 ‖
+
+saMniyamyendriyagraamaM sarvatra samabuddhayaH ❘  
+te praapnuvanti maameva sarvabhootahite rataaH 
+‖ 4 ‖
+
+klesho.adhikatarasteshhaamavyaktaasaktachetasaam ❘  
+avyaktaa hi gatirduHkhaM dehavadbhiravaapyate 
+‖ 5 ‖
+
+ye tu sarvaaNi karmaaNi mayi saMnyasya matparaaH ❘  
+ananyenaiva yogena maaM dhyaayanta upaasate 
+‖ 6 ‖
+
+teshhaamahaM samuddhartaa mRRityusaMsaarasaagaraat ❘  
+bhavaamina chiraatpaartha mayyaaveshitachetasaam 
+‖ 7 ‖
+
+mayyeva mana aadhatsva mayi buddhiM niveshaya ❘  
+nivasishhyasi mayyeva ata oordhvaM na saMshayaH 
+‖ 8 ‖
+
+atha chittaM samaadhaatuM na shaknoshhi mayi sthiram ❘  
+abhyaasayogena tato maamichChaaptuM dhanaMjaya 
+‖ 9 ‖
+
+abhyaase.apyasamartho.asi matkarmaparamo bhava ❘  
+madarthamapi karmaaNi kurvansiddhimavaapsyasi 
+‖ 10 ‖
+
+athaitadapyashakto.asi kartuM madyogamaashritaH ❘  
+sarvakarmaphalatyaagaM tataH kuru yataatmavaan 
+‖ 11 ‖
+
+shreyo hi gnyaanamabhyaasaajgnyaanaaddhyaanaM vishishhyate ❘  
+dhyaanaatkarmaphalatyaagastyaagaachChaantiranantaram 
+‖ 12 ‖
+
+adveshhTaa sarvabhootaanaaM maitraH karuNa eva cha ❘  
+nirmamo nirahaMkaaraH samaduHkhasukhaH kshhamee 
+‖ 13 ‖
+
+saMtushhTaH satataM yogee yataatmaa dRRiDhanishchayaH ❘  
+mayyarpitamanobuddhiryo madbhaktaH sa me priyaH 
+‖ 14 ‖
+
+yasmaannodvijate loko lokaannodvijate cha yaH ❘  
+harshhaamarshhabhayodvegairmukto yaH sa cha me priyaH 
+‖ 15 ‖
+
+anapekshhaH shuchirdakshha udaaseeno gatavyathaH ❘  
+sarvaarambhaparityaagee yo madbhaktaH sa me priyaH 
+‖ 16 ‖
+
+yo na hRRishhyati na dveshhTi na shochati na kaankshhati ❘  
+shubhaashubhaparityaagee bhaktimaanyaH sa me priyaH 
+‖ 17 ‖
+
+samaH shatrau cha mitre cha tathaa maanaapamaanayoH ❘  
+sheetoshhNasukhaduHkheshhu samaH sangavivarjitaH 
+‖ 18 ‖
+
+tulyanindaastutirmaunee saMtushhTo yena kenachit ❘  
+aniketaH sthiramatirbhaktimaanme priyo naraH 
+‖ 19 ‖
+
+ye tu dharmyaamRRitamidaM yathoktaM paryupaasate ❘  
+shraddadhaanaa matparamaa bhaktaaste.ateeva me priyaaH 
+‖ 20 ‖
+
+oM tatsaditi shreemadbhagavadgeetaasoopanishhatsu brahmavidyaayaaM yogashaastre shreekRRishhNaarjunasaMvaade   
+bhaktiyogo naama dvaadasho.adhyaayaH 
+‖12 ‖
+

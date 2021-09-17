@@ -887,3 +887,153 @@ oM jaya jagadeesha hare ‖ 8 ‖
 ఓం జయ జగదీశ హరే ‖ 8 ‖  
 
 
+### English
+
+#### oṃ jaya jagadīśa hare
+
+oṃ jaya jagadīśa hare  
+svāmī jaya jagadīśa hare  
+bhakta janoṃ ke saṅkaṭa,  
+dāsa janoṃ ke saṅkaṭa,  
+kśhaṇa meṃ dūra kare,  
+oṃ jaya jagadīśa hare 
+‖ 1 ‖
+
+jo dhyāve phala pāve,  
+dukha binase mana kā  
+svāmī dukha binase mana kā  
+sukha sammati ghara āve,  
+sukha sammati ghara āve,  
+kaśhṭa miṭe tana kā  
+oṃ jaya jagadīśa hare 
+‖ 2 ‖
+
+māta pitā tuma mere,  
+śaraṇa gahūṃ maiṃ kisakī  
+svāmī śaraṇa gahūṃ maiṃ kisakī .  
+tuma bina aura na dūjā,  
+tuma bina aura na dūjā,  
+āsa karūṃ maiṃ jisakī  
+oṃ jaya jagadīśa hare 
+‖ 3 ‖
+
+tuma pūraṇa paramātmā,  
+tuma antarayāmī  
+svāmī tuma antarayāmī  
+parābrahma parameśvara,  
+parābrahma parameśvara,  
+tuma saba ke svāmī  
+oṃ jaya jagadīśa hare 
+‖ 4 ‖
+
+tuma karuṇā ke sāgara,  
+tuma pālanakartā  
+svāmī tuma pālanakartā,  
+maiṃ mūrakha khala kāmī  
+maiṃ sevaka tuma svāmī,  
+kṛpā karo bhartāra  
+oṃ jaya jagadīśa hare 
+‖ 5 ‖
+
+tuma ho eka agochara,  
+sabake prāṇapati,  
+svāmī sabake prāṇapati,  
+kisa vidha milūṃ dayāmaya,  
+kisa vidha milūṃ dayāmaya,  
+tumako maiṃ kumati  
+oṃ jaya jagadīśa hare 
+‖ 6 ‖
+
+dīnabandhu dukhahartā,  
+ṭhākura tuma mere,  
+svāmī tuma ramere  
+apane hātha uṭhāvo,  
+apanī śaraṇa lagāvo  
+dvāra paḍxā tere  
+oṃ jaya jagadīśa hare 
+‖ 7 ‖
+
+viśhaya vikāra miṭāvo,  
+pāpa haro devā,  
+svāmī pāpa haro devā,  
+śraddhā bhakti baḍhāvo,  
+śraddhā bhakti baḍhāvo,  
+santana kī sevā  
+oṃ jaya jagadīśa hare 
+‖ 8 ‖
+
+### PlainEnglish
+
+#### oM jaya jagadeesha hare
+
+oM jaya jagadeesha hare  
+svaamee jaya jagadeesha hare  
+bhakta janoM ke saMkaTa,  
+daasa janoM ke saMkaTa,  
+kshhaNa meM doora kare,  
+oM jaya jagadeesha hare 
+‖ 1 ‖
+
+jo dhyaave phala paave,  
+dukha binase mana kaa  
+svaamee dukha binase mana kaa  
+sukha sammati ghara aave,  
+sukha sammati ghara aave,  
+kashhTa miTe tana kaa  
+oM jaya jagadeesha hare 
+‖ 2 ‖
+
+maata pitaa tuma mere,  
+sharaNa gahooM maiM kisakee  
+svaamee sharaNa gahooM maiM kisakee .  
+tuma bina aura na doojaa,  
+tuma bina aura na doojaa,  
+aasa karooM maiM jisakee  
+oM jaya jagadeesha hare 
+‖ 3 ‖
+
+tuma pooraNa paramaatmaa,  
+tuma aMtarayaamee  
+svaamee tuma antarayaamee  
+paraabrahma parameshvara,  
+paraabrahma parameshvara,  
+tuma saba ke svaamee  
+oM jaya jagadeesha hare 
+‖ 4 ‖
+
+tuma karuNaa ke saagara,  
+tuma paalanakartaa  
+svaamee tuma paalanakartaa,  
+maiM moorakha khala kaamee  
+maiM sevaka tuma svaamee,  
+kRRipaa karo bhartaara  
+oM jaya jagadeesha hare 
+‖ 5 ‖
+
+tuma ho eka agochara,  
+sabake praaNapati,  
+svaamee sabake praaNapati,  
+kisa vidha milooM dayaamaya,  
+kisa vidha milooM dayaamaya,  
+tumako maiM kumati  
+oM jaya jagadeesha hare 
+‖ 6 ‖
+
+deenabaMdhu dukhahartaa,  
+Thaakura tuma mere,  
+svaamee tuma ramere  
+apane haatha uThaavo,  
+apanee sharaNa lagaavo  
+dvaara paDxaa tere  
+oM jaya jagadeesha hare 
+‖ 7 ‖
+
+vishhaya vikaara miTaavo,  
+paapa haro devaa,  
+svaamee paapa haro devaa,  
+shraddhaa bhakti baDhaavo,  
+shraddhaa bhakti baDhaavo,  
+saMtana kee sevaa  
+oM jaya jagadeesha hare 
+‖ 8 ‖
+

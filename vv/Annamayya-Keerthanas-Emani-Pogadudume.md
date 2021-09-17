@@ -328,3 +328,51 @@ kaaviMchina mee kalyaaNamulu ‖
 తావు కొన్న మీ తమకములే కదే ❘  
 కావించిన మీ కల్యాణములు ‖  
 
+### English
+
+#### annamayya kīrtana emani pogaḍudume
+
+rāgaṃ:ābheri  
+tāḻaṃ :āditāḻaṃ  
+emani pogaduḍume yikaninu ❘  
+āmani sobagula alamelmaṅga ‖
+
+telikannula nī teṭale kadave ❘  
+velayaga vibhuniki vennelalu ❘  
+pulakala molakala podulivi gadave ❘  
+palumaru puvvula pānupulu ‖
+
+tiyyapu nīmovi tenele kadave ❘  
+viyyapu ramaṇuni vindulivi ❘  
+muyyaka mūsina molaka navvu gade ❘  
+neyyapu gappurapu neri bāgālu ‖
+
+kaivasamagu nī kaugile kadave ❘  
+śrī veṅkaṭeśvaru siri nagaru ❘  
+tāvu konna mī tamakamule kade ❘  
+kāviñchina mī kalyāṇamulu ‖
+
+### PlainEnglish
+
+#### annamayya keertana emani p.ogaDudume
+
+raagaM:aabheri  
+taaLaM :aaditaaLaM  
+emani p.ogaduDume yikaninu ❘  
+aamani s.obagula alamelmaMga ‖
+
+t.elikannula nee teTale kadave ❘  
+v.elayaga vibhuniki v.enn.elalu ❘  
+pulakala m.olakala p.odulivi gadave ❘  
+palumaru puvvula paanupulu ‖
+
+tiyyapu neemovi ten.ele kadave ❘  
+viyyapu ramaNuni viMdulivi ❘  
+muyyaka moosina m.olaka navvu gad.e ❘  
+n.eyyapu gappurapu n.eri baagaalu ‖
+
+kaivasamagu nee kaugile kadave ❘  
+shree veMkaTeshvaru siri nagaru ❘  
+taavu k.onna mee tamakamule kade ❘  
+kaaviMchina mee kalyaaNamulu ‖
+

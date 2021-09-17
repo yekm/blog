@@ -1095,3 +1095,145 @@ goviMdaa hari goviMdaa gokulanaMdana goviMdaa
 శ్రీ శ్రీనివాసా గోవిందా శ్రీ వేంకటేశా గోవిందా  
 గోవిందా హరి గోవిందా గోకులనందన గోవిందా  
 
+### English
+
+#### govinda nāmāvaḻi
+
+śrī śrīnivāsā govindā śrī veṅkaṭeśā govindā  
+bhaktavatsalā govindā bhāgavatapriya govindā  
+nityanirmalā govindā nīlameghaśyāma govindā  
+purāṇapuruśhā govindā puṇḍarīkākśha govindā  
+govindā hari govindā gokulanandana govindā  
+nandanandanā govindā navanītachorā govindā  
+paśupālaka śrī govindā pāpavimochana govindā  
+duśhṭasaṃhāra govindā duritanivāraṇa govindā  
+śiśhṭaparipālaka govindā kaśhṭanivāraṇa govindā  
+govindā hari govindā gokulanandana govindā  
+vajramakuṭadhara govindā varāhamūrtivi govindā  
+gopījanalola govindā govardhanoddhāra govindā  
+daśarathanandana govindā daśamukhamardana govindā  
+pakśhivāhanā govindā pāṇḍavapriya govindā  
+govindā hari govindā gokulanandana govindā  
+matsyakūrma govindā madhusūdhana hari govindā  
+varāha narasiṃha govindā vāmana bhṛgurāma govindā  
+balarāmānuja govindā bauddha kalkidhara govindā  
+veṇugānapriya govindā veṅkaṭaramaṇā govindā  
+govindā hari govindā gokulanandana govindā  
+sītānāyaka govindā śritaparipālaka govindā  
+daridrajana pośhaka govindā dharmasaṃsthāpaka govindā  
+anātharakśhaka govindā āpadbhāndava govindā  
+śaraṇāgatavatsala govindā karuṇāsāgara govindā  
+govindā hari govindā gokulanandana govindā  
+kamaladaḻākśha govindā kāmitaphaladāta govindā  
+pāpavināśaka govindā pāhi murāre govindā  
+śrī mudrāṅkita govindā śrī vatsāṅkita govindā  
+dharaṇīnāyaka govindā dinakaratejā govindā  
+govindā hari govindā gokulanandana govindā  
+padmāvatīpriya govindā prasannamūrtī govindā  
+abhayahasta pradarśaka govindā matsyāvatāra govindā  
+śaṅkhachakradhara govindā śārṅgagadādhara govindā  
+virājātīrdhastha govindā virodhimardhana govindā  
+govindā hari govindā gokulanandana govindā  
+sālagrāmadhara govindā sahasranāmā govindā  
+lakśhmīvallabha govindā lakśhmaṇāgraja govindā  
+kastūritilaka govindā kāñchanāmbaradhara govindā  
+garuḍavāhanā govindā gajarāja rakśhaka govindā  
+govindā hari govindā gokulanandana govindā  
+vānarasevita govindā vāradhibandhana govindā  
+eḍukoṇḍalavāḍa govindā ekatvarūpā govindā  
+śrī rāmakṛśhṇā govindā raghukula nandana govindā  
+pratyakśhadevā govindā paramadayākara govindā  
+govindā hari govindā gokulanandana govindā  
+vajrakavachadhara govindā vaijayantimāla govindā  
+vaḍḍikāsulavāḍa govindā vasudevatanayā govindā  
+bilvapatrārchita govindā bhikśhuka saṃstuta govindā  
+strīpuṃsarūpā govindā śivakeśavamūrti govindā  
+brahmāṇḍarūpā govindā bhaktarakśhaka govindā  
+govindā hari govindā gokulanandana govindā  
+nityakaḻyāṇa govindā nīrajanābha govindā  
+hātīrāmapriya govindā hari sarvottama govindā  
+janārdhanamūrti govindā jagatsākśhirūpā govindā  
+abhiśhekapriya govindā āpannivāraṇa govindā  
+govindā hari govindā gokulanandana govindā  
+ratnakirīṭā govindā rāmānujanuta govindā  
+svayamprakāśā govindā āśritapakśha govindā  
+nityaśubhaprada govindā nikhilalokeśā govindā  
+ānandarūpā govindā ādyantarahitā govindā  
+govindā hari govindā gokulanandana govindā  
+ihapara dāyaka govindā ibharāja rakśhaka govindā  
+padmadayāḻo govindā padmanābhahari govindā  
+tirumalavāsā govindā tulasīvanamāla govindā  
+śeśhādrinilayā govindā śeśhasāyinī govindā   
+śrī śrīnivāsā govindā śrī veṅkaṭeśā govindā  
+govindā hari govindā gokulanandana govindā  
+### PlainEnglish
+
+#### goviMda naamaavaLi
+
+shree shreenivaasaa goviMdaa shree veMkaTeshaa goviMdaa  
+bhaktavatsalaa goviMdaa bhaagavatapriya goviMdaa  
+nityanirmalaa goviMdaa neelameghashyaama goviMdaa  
+puraaNapurushhaa goviMdaa puMDareekaakshha goviMdaa  
+goviMdaa hari goviMdaa gokulanaMdana goviMdaa  
+naMdanaMdanaa goviMdaa navaneetachoraa goviMdaa  
+pashupaalaka shree goviMdaa paapavimochana goviMdaa  
+dushhTasaMhaara goviMdaa duritanivaaraNa goviMdaa  
+shishhTaparipaalaka goviMdaa kashhTanivaaraNa goviMdaa  
+goviMdaa hari goviMdaa gokulanaMdana goviMdaa  
+vajramakuTadhara goviMdaa varaahamoortivi goviMdaa  
+gopeejanalola goviMdaa govardhanoddhaara goviMdaa  
+dasharathanaMdana goviMdaa dashamukhamardana goviMdaa  
+pakshhivaahanaa goviMdaa paaMDavapriya goviMdaa  
+goviMdaa hari goviMdaa gokulanaMdana goviMdaa  
+matsyakoorma goviMdaa madhusoodhana hari goviMdaa  
+varaaha narasiMha goviMdaa vaamana bhRRiguraama goviMdaa  
+balaraamaanuja goviMdaa bauddha kalkidhara goviMdaa  
+veNugaanapriya goviMdaa veMkaTaramaNaa goviMdaa  
+goviMdaa hari goviMdaa gokulanaMdana goviMdaa  
+seetaanaayaka goviMdaa shritaparipaalaka goviMdaa  
+daridrajana poshhaka goviMdaa dharmasaMsthaapaka goviMdaa  
+anaatharakshhaka goviMdaa aapadbhaaMdava goviMdaa  
+sharaNaagatavatsala goviMdaa karuNaasaagara goviMdaa  
+goviMdaa hari goviMdaa gokulanaMdana goviMdaa  
+kamaladaLaakshha goviMdaa kaamitaphaladaata goviMdaa  
+paapavinaashaka goviMdaa paahi muraare goviMdaa  
+shree mudraaMkita goviMdaa shree vatsaaMkita goviMdaa  
+dharaNeenaayaka goviMdaa dinakaratejaa goviMdaa  
+goviMdaa hari goviMdaa gokulanaMdana goviMdaa  
+padmaavateepriya goviMdaa prasannamoortee goviMdaa  
+abhayahasta pradarshaka goviMdaa matsyaavataara goviMdaa  
+shaMkhachakradhara goviMdaa shaarngagadaadhara goviMdaa  
+viraajaateerdhastha goviMdaa virodhimardhana goviMdaa  
+goviMdaa hari goviMdaa gokulanaMdana goviMdaa  
+saalagraamadhara goviMdaa sahasranaamaa goviMdaa  
+lakshhmeevallabha goviMdaa lakshhmaNaagraja goviMdaa  
+kastooritilaka goviMdaa kaaMchanaaMbaradhara goviMdaa  
+garuDavaahanaa goviMdaa gajaraaja rakshhaka goviMdaa  
+goviMdaa hari goviMdaa gokulanaMdana goviMdaa  
+vaanarasevita goviMdaa vaaradhibaMdhana goviMdaa  
+eDuk.oMDalavaaDa goviMdaa ekatvaroopaa goviMdaa  
+shree raamakRRishhNaa goviMdaa raghukula naMdana goviMdaa  
+pratyakshhadevaa goviMdaa paramadayaakara goviMdaa  
+goviMdaa hari goviMdaa gokulanaMdana goviMdaa  
+vajrakavachadhara goviMdaa vaijayaMtimaala goviMdaa  
+vaDDikaasulavaaDa goviMdaa vasudevatanayaa goviMdaa  
+bilvapatraarchita goviMdaa bhikshhuka saMstuta goviMdaa  
+streepuMsaroopaa goviMdaa shivakeshavamoorti goviMdaa  
+brahmaaMDaroopaa goviMdaa bhaktarakshhaka goviMdaa  
+goviMdaa hari goviMdaa gokulanaMdana goviMdaa  
+nityakaLyaaNa goviMdaa neerajanaabha goviMdaa  
+haateeraamapriya goviMdaa hari sarvottama goviMdaa  
+janaardhanamoorti goviMdaa jagatsaakshhiroopaa goviMdaa  
+abhishhekapriya goviMdaa aapannivaaraNa goviMdaa  
+goviMdaa hari goviMdaa gokulanaMdana goviMdaa  
+ratnakireeTaa goviMdaa raamaanujanuta goviMdaa  
+svayaMprakaashaa goviMdaa aashritapakshha goviMdaa  
+nityashubhaprada goviMdaa nikhilalokeshaa goviMdaa  
+aanaMdaroopaa goviMdaa aadyaMtarahitaa goviMdaa  
+goviMdaa hari goviMdaa gokulanaMdana goviMdaa  
+ihapara daayaka goviMdaa ibharaaja rakshhaka goviMdaa  
+padmadayaaLo goviMdaa padmanaabhahari goviMdaa  
+tirumalavaasaa goviMdaa tulaseevanamaala goviMdaa  
+sheshhaadrinilayaa goviMdaa sheshhasaayinee goviMdaa   
+shree shreenivaasaa goviMdaa shree veMkaTeshaa goviMdaa  
+goviMdaa hari goviMdaa gokulanaMdana goviMdaa  

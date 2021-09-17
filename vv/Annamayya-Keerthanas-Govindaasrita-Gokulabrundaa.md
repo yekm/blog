@@ -302,3 +302,47 @@ vara shree veMkaTa giripati raMgaa ‖
 వర శ్రీ వేంకట గిరిపతి రంగా ‖  
 
 
+### English
+
+#### annamayya kīrtana govindāśrita gokulabṛndā
+
+govindāśrita gokulabṛndā ❘  
+pāvana jayajaya paramānanda ‖
+
+jagadabhirāma sahasranāma ❘  
+suguṇadhāma saṃstutanāma ❘  
+gaganaśyāma ghanaripu bhīma ❘  
+agaṇita raghuvaṃśāmbudhi soma ‖
+
+jananuta charaṇā śaraṇyu śaraṇā ❘  
+danuja haraṇa lalita svaraṇā ❘  
+anagha charaṇāyata bhūbharaṇā ❘  
+dinakara sannibha divyābharaṇā ‖
+
+garuḍa turaṅgā kārottuṅgā ❘  
+śaradhi bhaṅgā phaṇi śayanāṅgā ❘  
+karuṇāpāṅgā kamala saṅgā ❘  
+vara śrī veṅkaṭa giripati raṅgā ‖
+
+### PlainEnglish
+
+#### annamayya keertana goviMdaashrita gokulabRRiMdaa
+
+goviMdaashrita gokulabRRiMdaa ❘  
+paavana jayajaya paramaanaMda ‖
+
+jagadabhiraama sahasranaama ❘  
+suguNadhaama saMstutanaama ❘  
+gaganashyaama ghanaripu bheema ❘  
+agaNita raghuvaMshaaMbudhi soma ‖
+
+jananuta charaNaa sharaNyu sharaNaa ❘  
+danuja haraNa lalita svaraNaa ❘  
+anagha charaNaayata bhoobharaNaa ❘  
+dinakara sannibha divyaabharaNaa ‖
+
+garuDa turaMgaa kaarottuMgaa ❘  
+sharadhi bhaMgaa phaNi shayanaaMgaa ❘  
+karuNaapaaMgaa kamala saMgaa ❘  
+vara shree veMkaTa giripati raMgaa ‖
+

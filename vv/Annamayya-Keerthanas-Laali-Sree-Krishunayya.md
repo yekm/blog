@@ -380,3 +380,47 @@ kulukuchu shayyaniMchu v.eMkaTeshvaruDaa
 కులుకుచు శయ్యనించు వెంకటేశ్వరుడా  
 
 
+### English
+
+#### lannamayya kīrtana lāli śrī kṛśhnayya
+
+lāli śrī kriśhṇayya nīla meghavarṇa  
+nava nīla meghavarṇa  
+bālagopālapāla pavvaḻimparā  
+siṅgāriñchina mañchi baṅgāru ūyalalona  
+mari baṅgāru ūyalalona  
+śaṅkhu chakratharasvāmi niduraporā  
+lalitāṅgi rukmiṇī lalanāye kāvalenā  
+nīku lalanāye kāvalenā  
+paluku koyila satyabhāmaye kāvalenā  
+andelū muvvalū sandaḍiga mroyaganu  
+ati sandaḍiga mroyaganu  
+andamugānu nīvu pavvalimparā  
+pagaḍāla patakālu kaṇṭhanā dhariyiñchi  
+nī kaṇṭhanā dhariyiñchi  
+vaṅgevu toṅgevu niduraporā  
+alukalu ponela alavelu maṅgato  
+śrī alavelu maṅgato  
+kulukuchu śayyaniñchu veṅkaṭeśvaruḍā  
+### PlainEnglish
+
+#### lannamayya keertana laali shree kRRishhnayya
+
+laali shree krishhNayya neela meghavarNa  
+nava neela meghavarNa  
+baalagopaalapaala pavvaLiMparaa  
+siMgaariMchina maMchi baMgaaru ooyalalona  
+mari baMgaaru ooyalalona  
+shaMkhu chakratharasvaami niduraporaa  
+lalitaaMgi rukmiNee lalanaay.e kaaval.enaa  
+neeku lalanaay.e kaaval.enaa  
+paluku koyila satyabhaamay.e kaaval.enaa  
+aMd.eloo muvvaloo saMdaDiga mroyaganu  
+ati saMdaDiga mroyaganu  
+aMdamugaanu neevu pavvaliMparaa  
+pagaDaala patakaalu kaMThanaa dhariyiMchi  
+nee kaMThanaa dhariyiMchi  
+vaMgevu t.oMgevu niduraporaa  
+alukalu pon.ela alavelu maMgato  
+shree alavelu maMgato  
+kulukuchu shayyaniMchu v.eMkaTeshvaruDaa  

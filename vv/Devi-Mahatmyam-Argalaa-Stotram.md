@@ -1381,3 +1381,279 @@ saptashateeM samaaraadhya varamaapnoti durlabhaM ‖27‖
 
 ‖ ఇతి శ్రీ అర్గలా స్తోత్రం సమాప్తం ‖  
 
+### English
+
+#### devī mahātmyam argalā stotram
+
+asyaśrī argaḻā stotra mantrasya viśhṇuḥ ṛśhiḥ❘  
+anuśhṭupChandaḥ❘  
+śrī mahālakśhīrdevatā❘  
+mantroditā devyobījaṃ❘  
+navārṇo mantra śaktiḥ❘  
+śrī saptaśatī mantrastatvaṃ śrī jagadandā prītyarthe saptaśatī paṭhāṃ gatvena jape viniyogaḥ‖
+
+dhyānaṃ  
+oṃ bandhūka kusumābhāsāṃ pañcamuṇḍādhivāsinīṃ❘  
+sphuraccandrakalāratna mukuṭāṃ muṇḍamālinīṃ‖
+
+trinetrāṃ rakta vasanāṃ pīnonnata ghaṭastanīṃ❘  
+pustakaṃ cākśhamālāṃ ca varaṃ cābhayakaṃ kramāt‖
+
+dadhatīṃ saṃsmarennityamuttarāmnāyamānitāṃ❘  
+athavā  
+yā caṇḍī madhukaiṭabhādi daityadaḻanī yā māhiśhonmūlinī  
+yā dhūmrekśhana caṇḍamuṇḍamathanī yā rakta bījāśanī❘  
+śaktiḥ śumbhaniśumbhadaityadaḻanī yā siddhi dātrī parā  
+sā devī nava koṭi mūrti sahitā māṃ pātu viśveśvarī‖
+
+oṃ namaścaṇḍikāyai  
+mārkaṇḍeya uvāca  
+oṃ jayatvaṃ devi cāmuṇḍe jaya bhūtāpahāriṇi❘  
+jaya sarva gate devi kāḻa rātri namoastute
+‖1‖
+
+madhukaiṭhabhavidrāvi vidhātru varade namaḥ  
+oṃ jayantī maṅgaḻā kāḻī bhadrakāḻī kapālinī 
+‖2‖
+
+durgā śivā kśhamā dhātrī svāhā svadhā namoastute                
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi 
+‖3‖
+
+mahiśhāsura nirnāśi bhaktānāṃ sukhade namaḥ❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖4‖
+
+dhūmranetra vadhe devi dharma kāmārtha dāyini❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖5‖
+
+rakta bīja vadhe devi caṇḍa muṇḍa vināśini ❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖6‖
+
+niśumbhaśumbha nirnāśi trailokya śubhade namaḥ  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖7‖
+
+vandi tāṅghriyuge devi sarvasaubhāgya dāyini❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖8‖
+
+acintya rūpa carite sarva śatṛ vināśini❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖9‖
+
+natebhyaḥ sarvadā bhaktyā cāparṇe duritāpahe❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖10‖
+
+stuvadbhyobhaktipūrvaṃ tvāṃ caṇḍike vyādhi nāśini  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖11‖
+
+caṇḍike satataṃ yuddhe jayantī pāpanāśini❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖12‖
+
+dehi saubhāgyamārogyaṃ dehi devī paraṃ sukhaṃ❘  
+rūpaṃ dhehi jayaṃ dehi yaśo dhehi dviśho jahi
+‖13‖
+
+vidhehi devi kalyāṇaṃ vidhehi vipulāṃ śriyaṃ❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖14‖
+
+vidhehi dviśhatāṃ nāśaṃ vidhehi balamuccakaiḥ❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖15‖
+
+surāsuraśiro ratna nighṛśhṭacaraṇeambike❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖16‖
+
+vidhyāvantaṃ yaśasvantaṃ lakśhmīvantañca māṃ kuru❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖17‖
+
+devi pracaṇḍa dordaṇḍa daitya darpa niśhūdini❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖18‖
+
+pracaṇḍa daityadarpaghne caṇḍike praṇatāyame❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖19‖
+
+caturbhuje caturvaktra saṃstute parameśvari❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖20‖
+
+kṛśhṇena saṃstute devi śaśvadbhaktyā sadāmbike❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖21‖
+
+himācalasutānāthasaṃstute parameśvari❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖22‖
+
+indrāṇī patisadbhāva pūjite parameśvari❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi   
+‖23‖
+
+devi bhaktajanoddāma dattānandodayeambike❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi   
+‖24‖
+
+bhāryāṃ manoramāṃ dehi manovṛttānusāriṇīṃ❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi
+‖25‖
+
+tāriṇīṃ durga saṃsāra sāgara syācalodbave❘  
+rūpaṃ dehi jayaṃ dehi yaśo dehi dviśho jahi   
+‖26‖
+
+idaṃstotraṃ paṭhitvā tu mahāstotraṃ paṭhennaraḥ❘  
+saptaśatīṃ samārādhya varamāpnoti durlabhaṃ   
+‖27‖
+
+
+‖ iti śrī argalā stotraṃ samāptaṃ ‖
+
+### PlainEnglish
+
+#### devee mahaatmyam argalaa stotram
+
+asyashree argaLaa stotra maMtrasya vishhNuH RRishhiH❘  
+anushhTupChaMdaH❘  
+shree mahaalakshheerdevataa❘  
+maMtroditaa devyobeejaM❘  
+navaarNo maMtra shaktiH❘  
+shree saptashatee maMtrastatvaM shree jagadaMdaa preetyarthe saptashatee paThaaM gatvena jape viniyogaH‖
+
+dhyaanaM  
+oM bandhooka kusumaabhaasaaM pancamuNDaadhivaasineeM❘  
+sphuraccandrakalaaratna mukuTaaM muNDamaalineeM‖
+
+trinetraaM rakta vasanaaM peenonnata ghaTastaneeM❘  
+pustakaM caakshhamaalaaM ca varaM caabhayakaM kramaat‖
+
+dadhateeM saMsmarennityamuttaraamnaayamaanitaaM❘  
+athavaa  
+yaa caNDee madhukaiTabhaadi daityadaLanee yaa maahishhonmoolinee  
+yaa dhoomrekshhana caNDamuNDamathanee yaa rakta beejaashanee❘  
+shaktiH shumbhanishumbhadaityadaLanee yaa siddhi daatree paraa  
+saa devee nava koTi moorti sahitaa maaM paatu vishveshvaree‖
+
+oM namashcaNDikaayai  
+maarkaNDeya uvaaca  
+oM jayatvaM devi caamuNDe jaya bhootaapahaariNi❘  
+jaya sarva gate devi kaaLa raatri namo.astute
+‖1‖
+
+madhukaiThabhavidraavi vidhaatru varade namaH  
+oM jayantee maMgaLaa kaaLee bhadrakaaLee kapaalinee 
+‖2‖
+
+durgaa shivaa kshhamaa dhaatree svaahaa svadhaa namo.astute                
+roopaM dehi jayaM dehi yasho dehi dvishho jahi 
+‖3‖
+
+mahishhaasura nirnaashi bhaktaanaaM sukhade namaH❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖4‖
+
+dhoomranetra vadhe devi dharma kaamaartha daayini❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖5‖
+
+rakta beeja vadhe devi caNDa muNDa vinaashini ❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖6‖
+
+nishumbhashumbha nirnaashi trailokya shubhade namaH  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖7‖
+
+vandi taanghriyuge devi sarvasaubhaagya daayini❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖8‖
+
+acintya roopa carite sarva shatRRi vinaashini❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖9‖
+
+natebhyaH sarvadaa bhaktyaa caaparNe duritaapahe❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖10‖
+
+stuvadbhyobhaktipoorvaM tvaaM caNDike vyaadhi naashini  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖11‖
+
+caNDike satataM yuddhe jayantee paapanaashini❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖12‖
+
+dehi saubhaagyamaarogyaM dehi devee paraM sukhaM❘  
+roopaM dhehi jayaM dehi yasho dhehi dvishho jahi
+‖13‖
+
+vidhehi devi kalyaaNaM vidhehi vipulaaM shriyaM❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖14‖
+
+vidhehi dvishhataaM naashaM vidhehi balamuccakaiH❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖15‖
+
+suraasurashiro ratna nighRRishhTacaraNe.ambike❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖16‖
+
+vidhyaavantaM yashasvantaM lakshhmeevantanca maaM kuru❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖17‖
+
+devi pracaNDa dordaNDa daitya darpa nishhoodini❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖18‖
+
+pracaNDa daityadarpaghne caNDike praNataayame❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖19‖
+
+caturbhuje caturvaktra saMstute parameshvari❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖20‖
+
+kRRishhNena saMstute devi shashvadbhaktyaa sadaambike❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖21‖
+
+himaacalasutaanaathasaMstute parameshvari❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖22‖
+
+indraaNee patisadbhaava poojite parameshvari❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi   
+‖23‖
+
+devi bhaktajanoddaama dattaanandodaye.ambike❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi   
+‖24‖
+
+bhaaryaaM manoramaaM dehi manovRRittaanusaariNeeM❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi
+‖25‖
+
+taariNeeM durga saMsaara saagara syaacalodbave❘  
+roopaM dehi jayaM dehi yasho dehi dvishho jahi   
+‖26‖
+
+idaMstotraM paThitvaa tu mahaastotraM paThennaraH❘  
+saptashateeM samaaraadhya varamaapnoti durlabhaM   
+‖27‖
+
+
+‖ iti shree argalaa stotraM samaaptaM ‖
+

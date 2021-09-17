@@ -328,3 +328,53 @@ kamaneeya moorti veMkaTashailapati neeku kaDuveDukai vuMD.e vuyyaala ‖
 కమలాసనాదులకు కన్నుల పండుగై గణుతింప నరుదాయె వుయ్యాల ❘  
 కమనీయ మూర్తి వేంకటశైలపతి నీకు కడువేడుకై వుండె వుయ్యాల ‖  
 
+### English
+
+#### annamayya kīrtana alara chañchalamaina
+
+alara cañcalamaina ātmalanduṇḍa nī yalavāṭu cese nī vuyyāla ❘  
+palumāru nucChvāsa pavanamanduṇḍa nī bhāvambu delipe nī vuyyāla ‖
+
+udāyāsta śailambu lonara kambhamulaina vuḍumaṇḍalamu moce nuyyāla ❘  
+adana ākāśapadamu aḍḍaudūlambaina akhilambu niṇḍe nī vuyyāla ‖
+
+padilamuga vedamulu baṅgāru cerulai paṭṭi verapai toce vuyyāla ❘  
+vadalakiṭu dharmadevata pīṭhamai migula varṇimpa narudāye vuyyāla ‖
+
+melu kaṭlayi mīku meghamaṇḍalamella merugunaku merugāye vuyyāla ❘  
+nīla śailamuvaṇṭi nī menikāntiki nijamaina toḍavāye vuyyāla ‖
+
+pāliṇḍlu kadalagā payyadalu rāpāḍa bhāminulu vaḍinūcu vuyyāla ❘  
+voli brahmāṇḍamulu voraguvo yani bhīti noyya noyyanairi vūciruyyāla ‖
+
+kamalakunu bhūpatiki kadalu kadalaku mimmu kaugalimpagajese nuyyāla ❘  
+amarāṅganalaku nī hāsa bhāva vilāsa mandanda cūpe nī vuyyāla ‖
+
+kamalāsanādulaku kannula paṇḍugai gaṇutimpa narudāye vuyyāla ❘  
+kamanīya mūrti veṅkaṭaśailapati nīku kaḍuveḍukai vuṇḍe vuyyāla ‖
+
+### PlainEnglish
+
+#### annamayya keertana alara chaMchalamaina
+
+alara caMcalamaina aatmalaMduMDa nee yalavaaTu ces.e nee vuyyaala ❘  
+palumaaru nucChvaasa pavanamaMduMDa nee bhaavaMbu d.elip.e nee vuyyaala ‖
+
+udaayaasta shailaMbu l.onara kaMbhamulaina vuDumaMDalamu moc.e nuyyaala ❘  
+adana aakaashapadamu aDDaudoolaMbaina akhilaMbu niMD.e nee vuyyaala ‖
+
+padilamuga vedamulu baMgaaru cerulai paTTi v.erapai toc.e vuyyaala ❘  
+vadalakiTu dharmadevata peeThamai migula varNiMpa narudaay.e vuyyaala ‖
+
+melu kaTlayi meeku meghamaNDalam.ella m.erugunaku m.erugaay.e vuyyaala ❘  
+neela shailamuvaMTi nee menikaaMtiki nijamaina t.oDavaay.e vuyyaala ‖
+
+paaliMDlu kadalagaa payyadalu raapaaDa bhaaminulu vaDinoocu vuyyaala ❘  
+voli brahmaaNDamulu v.oraguvo yani bheeti n.oyya n.oyyanairi voociruyyaala ‖
+
+kamalakunu bhoopatiki kadalu kadalaku mimmu kaugaliMpagajes.e nuyyaala ❘  
+amaraaMganalaku nee haasa bhaava vilaasa maMdaMda coop.e nee vuyyaala ‖
+
+kamalaasanaadulaku kannula paMDugai gaNutiMpa narudaay.e vuyyaala ❘  
+kamaneeya moorti veMkaTashailapati neeku kaDuveDukai vuMD.e vuyyaala ‖
+

@@ -484,3 +484,93 @@ yaH paThecChRRiNuyaadvaapi sarvatra vijayee bhavet ‖ 6 ‖
 ‖ ఇతి శ్రీచంద్ర కవచం సంపూర్ణమ్ ‖  
 
 
+### English
+
+#### chandra kavacham
+
+asya śrī candra kavacasya ❘  
+gautama ṛśhiḥ ❘  
+anuśhṭup Chandaḥ ❘  
+śrī candro devatā ❘  
+candra prītyarthe jape viniyogaḥ ‖
+
+dhyānaṃ  
+samaṃ caturbhujaṃ vande keyūra makuṭojvalam ❘  
+vāsudevasya nayanaṃ śaṅkarasya ca bhūśhaṇam ‖
+
+evaṃ dhyātvā japennityaṃ śaśinaḥ kavacaṃ śubham ‖
+
+atha candra kavacam  
+śaśī pātu śirodeśaṃ bhālaṃ pātu kalānidhiḥ ❘  
+cakśhuśhī candramāḥ pātu śrutī pātu niśāpatiḥ 
+‖ 1 ‖
+
+prāṇaṃ kśhapakaraḥ pātu mukhaṃ kumudabāndhavaḥ ❘  
+pātu kaṇṭhaṃ ca me somaḥ skandhe jaivātṛkastathā 
+‖ 2 ‖
+
+karau sudhākaraḥ pātu vakśhaḥ pātu niśākaraḥ ❘  
+hṛdayaṃ pātu me candro nābhiṃ śaṅkarabhūśhaṇaḥ 
+‖ 3 ‖
+
+madhyaṃ pātu suraśreśhṭhaḥ kaṭiṃ pātu sudhākaraḥ ❘  
+ūrū tārāpatiḥ pātu mṛgāṅko jānunī sadā 
+‖ 4 ‖
+
+abdhijaḥ pātu me jaṅghe pātu pādau vidhuḥ sadā ❘  
+sarvāṇyanyāni cāṅgāni pātu candrokhilaṃ vapuḥ 
+‖ 5 ‖
+
+phalaśrutiḥ  
+etaddhi kavacaṃ divyaṃ bhukti mukti pradāyakam ❘  
+yaḥ paṭhecChṛṇuyādvāpi sarvatra vijayī bhavet 
+‖ 6 ‖
+
+
+‖ iti śrīcandra kavacaṃ sampūrṇam ‖
+
+### PlainEnglish
+
+#### chaMdra kavacham
+
+asya shree caMdra kavacasya ❘  
+gautama RRishhiH ❘  
+anushhTup ChaMdaH ❘  
+shree caMdro devataa ❘  
+caMdra preetyarthe jape viniyogaH ‖
+
+dhyaanaM  
+samaM caturbhujaM vaMde keyoora makuTojvalam ❘  
+vaasudevasya nayanaM shaMkarasya ca bhooshhaNam ‖
+
+evaM dhyaatvaa japennityaM shashinaH kavacaM shubham ‖
+
+atha caMdra kavacam  
+shashee paatu shirodeshaM bhaalaM paatu kalaanidhiH ❘  
+cakshhushhee caMdramaaH paatu shrutee paatu nishaapatiH 
+‖ 1 ‖
+
+praaNaM kshhapakaraH paatu mukhaM kumudabaaMdhavaH ❘  
+paatu kaMThaM ca me somaH skaMdhe jaivaatRRikastathaa 
+‖ 2 ‖
+
+karau sudhaakaraH paatu vakshhaH paatu nishaakaraH ❘  
+hRRidayaM paatu me caMdro naabhiM shaMkarabhooshhaNaH 
+‖ 3 ‖
+
+madhyaM paatu surashreshhThaH kaTiM paatu sudhaakaraH ❘  
+ooroo taaraapatiH paatu mRRigaaMko jaanunee sadaa 
+‖ 4 ‖
+
+abdhijaH paatu me jaMghe paatu paadau vidhuH sadaa ❘  
+sarvaaNyanyaani caaMgaani paatu caMdrokhilaM vapuH 
+‖ 5 ‖
+
+phalashrutiH  
+etaddhi kavacaM divyaM bhukti mukti pradaayakam ❘  
+yaH paThecChRRiNuyaadvaapi sarvatra vijayee bhavet 
+‖ 6 ‖
+
+
+‖ iti shreecaMdra kavacaM saMpoorNam ‖
+

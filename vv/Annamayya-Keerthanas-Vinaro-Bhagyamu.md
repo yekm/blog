@@ -276,3 +276,45 @@ v.ellag.olip.e nee vishhNukatha ‖
 వెల్లి విరియాయె విష్ణుకథ ❘  
 ఇల్లిదె శ్రీ వేంకటేశ్వరు నామము  
 వెల్లగొలిపె నీ విష్ణుకథ ‖  
+### English
+
+#### annamayya kīrtana vinaro bhāgyamu
+
+vinaro bhāgyamu viśhṇukatha  
+venubalamidivo viśhṇukatha ‖
+
+ādi nuṇḍi sandhyādi vidhulalo  
+vedambayinadi viśhṇukatha ❘  
+nādiñchīnide nāradādulache  
+vīthi vīthulane viśhṇukatha ❘  
+vadalaka vedavyāsulu nuḍivina  
+vidita pāvanamu viśhṇukatha ❘  
+sadanambainadi saṅkīrtanayai  
+vedakinachoṭane viśhṇukatha ‖
+
+golletalu challalu gonakoni chilukaga  
+velli viriyāye viśhṇukatha ❘  
+illide śrī veṅkaṭeśvaru nāmamu  
+vellagolipe nī viśhṇukatha  ‖
+
+### PlainEnglish
+
+#### annamayya keertana vinaro bhaagyamu
+
+vinaro bhaagyamu vishhNukatha  
+v.enubalamidivo vishhNukatha ‖
+
+aadi nuMDi saMdhyaadi vidhulalo  
+vedaMbayinadi vishhNukatha ❘  
+naadiMcheenid.e naaradaadulache  
+veethi veethulane vishhNukatha ❘  
+vadalaka vedavyaasulu nuDivina  
+vidita paavanamu vishhNukatha ❘  
+sadanaMbainadi saMkeertanayai  
+v.edakinachoTane vishhNukatha ‖
+
+g.oll.etalu challalu g.onak.oni chilukaga  
+v.elli viriyaay.e vishhNukatha ❘  
+illid.e shree veMkaTeshvaru naamamu  
+v.ellag.olip.e nee vishhNukatha  ‖
+

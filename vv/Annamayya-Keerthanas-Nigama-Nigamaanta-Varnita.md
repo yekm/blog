@@ -302,3 +302,47 @@ navaneeta chora shreenaaraayaNaa ‖
 నవనీత చోర శ్రీనారాయణా ‖  
 
 
+### English
+
+#### annamayya kīrtana nigama nigamānta varṇita
+
+nigamanigamāntavarṇita manohara rūpa-   
+nagarājadharuḍa śrīnārayaṇā ‖
+
+dīpiñchu vairāgyadivya saukhyaṃ biyya-   
+nopakarā nannu noḍabarapuchu ❘  
+paipaine saṃsārabandhamula gaṭṭevu   
+nāpaluku chellunā nārāyaṇā ‖
+
+chikākupaḍina nā chittaśāntamu seya-   
+lekakā nīvu bahulīla nannu ❘  
+kākusesedavu bahukarmala baḍuvāru   
+nākoladivāralā nārāyaṇā ‖
+
+vivividha nirbandhamula veḍaladroyaka nannu   
+bhavasāgaramula naḍabaḍa jeturā ❘  
+divijendravandya śrī tiruveṅkaṭādrīśa   
+navanīta chora śrīnārāyaṇā ‖
+
+### PlainEnglish
+
+#### annamayya keertana nigama nigamaaMta varNita
+
+nigamanigamaaMtavarNita manohara roopa-   
+nagaraajadharuDa shreenaarayaNaa ‖
+
+deepiMchu vairaagyadivya saukhyaM biyya-   
+nopakaraa nannu n.oDabarapuchu ❘  
+paipain.e saMsaarabaMdhamula gaTTevu   
+naapaluku ch.ellunaa naaraayaNaa ‖
+
+chikaakupaDina naa chittashaaMtamu seya-   
+lekakaa neevu bahuleela nannu ❘  
+kaakuses.edavu bahukarmala baDuvaaru   
+naak.oladivaaralaa naaraayaNaa ‖
+
+vivividha nirbaMdhamula v.eDaladroyaka nannu   
+bhavasaagaramula naDabaDa jeturaa ❘  
+divijeMdravaMdya shree tiruveMkaTaadreesha   
+navaneeta chora shreenaaraayaNaa ‖
+

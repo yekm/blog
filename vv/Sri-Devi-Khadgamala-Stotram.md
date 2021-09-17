@@ -1524,3 +1524,197 @@ tasmaadgopyataraadgopyaM rahasyaM bhuktimuktidam ‖
 ‖ ఇతి శ్రీ వామకేశ్వరతంత్రే ఉమామహేశ్వరసంవాదే దేవీఖడ్గమాలాస్తోత్రరత్నం సమాప్తమ్ ‖  
 
 
+### English
+
+#### śrī devī khaḍgamālā stotram
+
+śrī devī prārthana  
+hrīṅkārāsanagarbhitānalaśikhāṃ sauḥ klīṃ kaḻāṃ bibhratīṃ  
+sauvarṇāmbaradhāriṇīṃ varasudhādhautāṃ trinetrojjvalām ❘  
+vande pustakapāśamaṅkuśadharāṃ sragbhūśhitāmujjvalāṃ  
+tvāṃ gaurīṃ tripurāṃ parātparakaḻāṃ śrīcakrasañcāriṇīm ‖
+
+asya śrī śuddhaśaktimālāmahāmantrasya, upasthendriyādhiśhṭhāyī varuṇāditya ṛśhayaḥ devī gāyatrī Chandaḥ sātvika kakārabhaṭṭārakapīṭhasthita kāmeśvarāṅkanilayā mahākāmeśvarī śrī lalitā bhaṭṭārikā devatā, aiṃ bījaṃ klīṃ śaktiḥ, sauḥ kīlakaṃ mama khaḍgasiddhyarthe sarvābhīśhṭasiddhyarthe jape viniyogaḥ, mūlamantreṇa śhaḍaṅganyāsaṃ kuryāt ❘  
+dhyānam  
+āraktābhāntriṇetrāmaruṇimavasanāṃ ratnatāṭaṅkaramyām  
+hastāmbhojaissapāśāṅkuśamadanadhanussāyakairvisphurantīm ❘  
+āpīnottuṅgavakśhoruhakalaśaluṭhattārahārojjvalāṅgīṃ  
+dhyāyedambhoruhasthāmaruṇimavasanāmīśvarīmīśvarāṇām ‖
+
+lamityādipañca pūjām kuryāt, yathāśakti mūlamantram japet ❘  
+laṃ - pṛthivītattvātmikāyai śrī lalitātripurasundarī parābhaṭṭārikāyai gandhaṃ parikalpayāmi - namaḥ  
+haṃ - ākāśatattvātmikāyai śrī lalitātripurasundarī parābhaṭṭārikāyai puśhpaṃ parikalpayāmi - namaḥ  
+yaṃ - vāyutattvātmikāyai śrī lalitātripurasundarī parābhaṭṭārikāyai dhūpaṃ parikalpayāmi - namaḥ  
+raṃ - tejastattvātmikāyai śrī lalitātripurasundarī parābhaṭṭārikāyai dīpaṃ parikalpayāmi - namaḥ  
+vaṃ - amṛtatattvātmikāyai śrī lalitātripurasundarī parābhaṭṭārikāyai amṛtanaivedyaṃ parikalpayāmi - namaḥ  
+saṃ - sarvatattvātmikāyai śrī lalitātripurasundarī parābhaṭṭārikāyai tāmbūlādisarvopacārān parikalpayāmi - namaḥ  
+śrī devī sambodhanaṃ (1)  
+oṃ aiṃ hrīṃ śrīṃ aiṃ klīṃ sauḥ oṃ namastripurasundarī,  
+nyāsāṅgadevatāḥ (6)  
+hṛdayadevī, śirodevī, śikhādevī, kavacadevī, netradevī, astradevī,  
+tithinityādevatāḥ (16)  
+kāmeśvarī, bhagamālinī, nityaklinne, bheruṇḍe, vahnivāsinī, mahāvajreśvarī, śivadūtī, tvarite, kulasundarī, nitye, nīlapatāke, vijaye, sarvamaṅgaḻe, jvālāmālinī, citre, mahānitye,  
+divyaughaguravaḥ (7)  
+parameśvara, parameśvarī, mitreśamayī, uḍḍīśamayī, caryānāthamayī, lopāmudramayī, agastyamayī,  
+siddhaughaguravaḥ (4)  
+kālatāpaśamayī, dharmācāryamayī, muktakeśīśvaramayī, dīpakalānāthamayī,  
+mānavaughaguravaḥ (8)  
+viśhṇudevamayī, prabhākaradevamayī, tejodevamayī, manojadevamayi, kaḻyāṇadevamayī, vāsudevamayī, ratnadevamayī, śrīrāmānandamayī,  
+śrīcakra prathamāvaraṇadevatāḥ  
+aṇimāsiddhe, laghimāsiddhe, garimāsiddhe, mahimāsiddhe, īśitvasiddhe, vaśitvasiddhe, prākāmyasiddhe, bhuktisiddhe, icChāsiddhe, prāptisiddhe, sarvakāmasiddhe, brāhmī, māheśvarī, kaumāri, vaiśhṇavī, vārāhī, māhendrī, cāmuṇḍe, mahālakśhmī, sarvasaṅkśhobhiṇī, sarvavidrāviṇī, sarvākarśhiṇī, sarvavaśaṅkarī, sarvonmādinī, sarvamahāṅkuśe, sarvakhecarī, sarvabīje, sarvayone, sarvatrikhaṇḍe, trailokyamohana cakrasvāminī, prakaṭayoginī,  
+śrīcakra dvitīyāvaraṇadevatāḥ  
+kāmākarśhiṇī, buddhyākarśhiṇī, ahaṅkārākarśhiṇī, śabdākarśhiṇī, sparśākarśhiṇī, rūpākarśhiṇī, rasākarśhiṇī, gandhākarśhiṇī, cittākarśhiṇī, dhairyākarśhiṇī, smṛtyākarśhiṇī, nāmākarśhiṇī, bījākarśhiṇī, ātmākarśhiṇī, amṛtākarśhiṇī, śarīrākarśhiṇī, sarvāśāparipūraka cakrasvāminī, guptayoginī,  
+śrīcakra tṛtīyāvaraṇadevatāḥ  
+anaṅgakusume, anaṅgamekhale, anaṅgamadane, anaṅgamadanāture, anaṅgarekhe, anaṅgaveginī, anaṅgāṅkuśe, anaṅgamālinī, sarvasaṅkśhobhaṇacakrasvāminī, guptatarayoginī,  
+śrīcakra caturthāvaraṇadevatāḥ  
+sarvasaṅkśhobhiṇī, sarvavidrāvinī, sarvākarśhiṇī, sarvahlādinī, sarvasammohinī, sarvastambhinī, sarvajṛmbhiṇī, sarvavaśaṅkarī, sarvarañjanī, sarvonmādinī, sarvārthasādhike, sarvasampattipūriṇī, sarvamantramayī, sarvadvandvakśhayaṅkarī, sarvasaubhāgyadāyaka cakrasvāminī, sampradāyayoginī,  
+śrīcakra pañcamāvaraṇadevatāḥ  
+sarvasiddhiprade, sarvasampatprade, sarvapriyaṅkarī, sarvamaṅgaḻakāriṇī, sarvakāmaprade, sarvaduḥkhavimocanī, sarvamṛtyupraśamani, sarvavighnanivāriṇī, sarvāṅgasundarī, sarvasaubhāgyadāyinī, sarvārthasādhaka cakrasvāminī, kulottīrṇayoginī,  
+śrīcakra śhaśhṭāvaraṇadevatāḥ  
+sarvaGYe, sarvaśakte, sarvaiśvaryapradāyinī, sarvaGYānamayī, sarvavyādhivināśinī, sarvādhārasvarūpe, sarvapāpahare, sarvānandamayī, sarvarakśhāsvarūpiṇī, sarvepsitaphalaprade, sarvarakśhākaracakrasvāminī, nigarbhayoginī,  
+śrīcakra saptamāvaraṇadevatāḥ  
+vaśinī, kāmeśvarī, modinī, vimale, aruṇe, jayinī, sarveśvarī, kauḻini, sarvarogaharacakrasvāminī, rahasyayoginī,  
+śrīcakra aśhṭamāvaraṇadevatāḥ  
+bāṇinī, cāpinī, pāśinī, aṅkuśinī, mahākāmeśvarī, mahāvajreśvarī, mahābhagamālinī, sarvasiddhipradacakrasvāminī, atirahasyayoginī,  
+śrīcakra navamāvaraṇadevatāḥ  
+śrī śrī mahābhaṭṭārike, sarvānandamayacakrasvāminī, parāpararahasyayoginī,  
+navacakreśvarī nāmāni  
+tripure, tripureśī, tripurasundarī, tripuravāsinī, tripurāśrīḥ, tripuramālinī, tripurasiddhe, tripurāmbā, mahātripurasundarī,  
+śrīdevī viśeśhaṇāni - namaskāranavākśharīca  
+mahāmaheśvarī, mahāmahārāGYī, mahāmahāśakte, mahāmahāgupte, mahāmahāGYapte, mahāmahānande, mahāmahāskandhe, mahāmahāśaye, mahāmahā śrīcakranagarasāmrāGYī, namaste namaste namaste namaḥ ❘  
+phalaśrutiḥ  
+eśhā vidyā mahāsiddhidāyinī smṛtimātrataḥ ❘  
+agnivātamahākśhobhe rājārāśhṭrasyaviplave ‖
+
+luṇṭhane taskarabhaye saṅgrāme salilaplave ❘  
+samudrayānavikśhobhe bhūtapretādike bhaye ‖
+
+apasmārajvaravyādhimṛtyukśhāmādijebhaye ❘  
+śākinī pūtanāyakśharakśhaḥkūśhmāṇḍaje bhaye ‖
+
+mitrabhede grahabhaye vyasaneśhvābhicārike ❘  
+anyeśhvapi ca dośheśhu mālāmantraṃ smarennaraḥ ‖
+
+tādṛśaṃ khaḍgamāpnoti yena hastasthitenavai ❘  
+aśhṭādaśamahādvīpasamrāḍbhoktābhaviśhyati ‖
+
+sarvopadravanirmuktassākśhācChivamayobhavet ❘  
+āpatkāle nityapūjāṃ vistārātkartumārabhet ‖
+
+ekavāraṃ japadhyānam sarvapūjāphalaṃ labhet ❘  
+navāvaraṇadevīnāṃ lalitāyā mahaujanaḥ ‖
+
+ekatra gaṇanārūpo vedavedāṅgagocaraḥ ❘  
+sarvāgamarahasyārthaḥ smaraṇātpāpanāśinī ‖
+
+lalitāyāmaheśānyā mālā vidyā mahīyasī ❘  
+naravaśyaṃ narendrāṇāṃ vaśyaṃ nārīvaśaṅkaram ‖
+
+aṇimādiguṇaiśvaryaṃ rañjanaṃ pāpabhañjanam ❘  
+tattadāvaraṇasthāyi devatābṛndamantrakam ‖
+
+mālāmantraṃ paraṃ guhyaṃ paraṃ dhāma prakīrtitam ❘  
+śaktimālā pañcadhāsyācChivamālā ca tādṛśī ‖
+
+tasmādgopyatarādgopyaṃ rahasyaṃ bhuktimuktidam ‖
+
+
+‖ iti śrī vāmakeśvaratantre umāmaheśvarasaṃvāde devīkhaḍgamālāstotraratnaṃ samāptam ‖
+
+### PlainEnglish
+
+#### shree devee khaDgamaalaa stotram
+
+shree devee praarthana  
+hreeMkaaraasanagarbhitaanalashikhaaM sauH kleeM kaLaaM bibhrateeM  
+sauvarNaaMbaradhaariNeeM varasudhaadhautaaM trinetrojjvalaam ❘  
+vaMde pustakapaashamaMkushadharaaM sragbhooshhitaamujjvalaaM  
+tvaaM gaureeM tripuraaM paraatparakaLaaM shreecakrasaMcaariNeem ‖
+
+asya shree shuddhashaktimaalaamahaamaMtrasya, upastheMdriyaadhishhThaayee varuNaaditya RRishhayaH devee gaayatree ChaMdaH saatvika kakaarabhaTTaarakapeeThasthita kaameshvaraaMkanilayaa mahaakaameshvaree shree lalitaa bhaTTaarikaa devataa, aiM beejaM kleeM shaktiH, sauH keelakaM mama khaDgasiddhyarthe sarvaabheeshhTasiddhyarthe jape viniyogaH, moolamaMtreNa shhaDaMganyaasaM kuryaat ❘  
+dhyaanam  
+aaraktaabhaaMtriNetraamaruNimavasanaaM ratnataaTaMkaramyaam  
+hastaaMbhojaissapaashaaMkushamadanadhanussaayakairvisphuraMteem ❘  
+aapeenottuMgavakshhoruhakalashaluThattaarahaarojjvalaaMgeeM  
+dhyaayedaMbhoruhasthaamaruNimavasanaameeshvareemeeshvaraaNaam ‖
+
+lamityaadipaMca poojaam kuryaat, yathaashakti moolamaMtram japet ❘  
+laM - pRRithiveetattvaatmikaayai shree lalitaatripurasuMdaree paraabhaTTaarikaayai gaMdhaM parikalpayaami - namaH  
+haM - aakaashatattvaatmikaayai shree lalitaatripurasuMdaree paraabhaTTaarikaayai pushhpaM parikalpayaami - namaH  
+yaM - vaayutattvaatmikaayai shree lalitaatripurasuMdaree paraabhaTTaarikaayai dhoopaM parikalpayaami - namaH  
+raM - tejastattvaatmikaayai shree lalitaatripurasuMdaree paraabhaTTaarikaayai deepaM parikalpayaami - namaH  
+vaM - amRRitatattvaatmikaayai shree lalitaatripurasuMdaree paraabhaTTaarikaayai amRRitanaivedyaM parikalpayaami - namaH  
+saM - sarvatattvaatmikaayai shree lalitaatripurasuMdaree paraabhaTTaarikaayai taaMboolaadisarvopacaaraan parikalpayaami - namaH  
+shree devee saMbodhanaM (1)  
+oM aiM hreeM shreeM aiM kleeM sauH oM namastripurasuMdaree,  
+nyaasaaMgadevataaH (6)  
+hRRidayadevee, shirodevee, shikhaadevee, kavacadevee, netradevee, astradevee,  
+tithinityaadevataaH (16)  
+kaameshvaree, bhagamaalinee, nityaklinne, bheruMDe, vahnivaasinee, mahaavajreshvaree, shivadootee, tvarite, kulasuMdaree, nitye, neelapataake, vijaye, sarvamaMgaLe, jvaalaamaalinee, citre, mahaanitye,  
+divyaughaguravaH (7)  
+parameshvara, parameshvaree, mitreshamayee, uDDeeshamayee, caryaanaathamayee, lopaamudramayee, agastyamayee,  
+siddhaughaguravaH (4)  
+kaalataapashamayee, dharmaacaaryamayee, muktakesheeshvaramayee, deepakalaanaathamayee,  
+maanavaughaguravaH (8)  
+vishhNudevamayee, prabhaakaradevamayee, tejodevamayee, manojadevamayi, kaLyaaNadevamayee, vaasudevamayee, ratnadevamayee, shreeraamaanaMdamayee,  
+shreecakra prathamaavaraNadevataaH  
+aNimaasiddhe, laghimaasiddhe, garimaasiddhe, mahimaasiddhe, eeshitvasiddhe, vashitvasiddhe, praakaamyasiddhe, bhuktisiddhe, icChaasiddhe, praaptisiddhe, sarvakaamasiddhe, braahmee, maaheshvaree, kaumaari, vaishhNavee, vaaraahee, maaheMdree, caamuMDe, mahaalakshhmee, sarvasaMkshhobhiNee, sarvavidraaviNee, sarvaakarshhiNee, sarvavashaMkaree, sarvonmaadinee, sarvamahaaMkushe, sarvakhecaree, sarvabeeje, sarvayone, sarvatrikhaMDe, trailokyamohana cakrasvaaminee, prakaTayoginee,  
+shreecakra dviteeyaavaraNadevataaH  
+kaamaakarshhiNee, buddhyaakarshhiNee, ahaMkaaraakarshhiNee, shabdaakarshhiNee, sparshaakarshhiNee, roopaakarshhiNee, rasaakarshhiNee, gaMdhaakarshhiNee, cittaakarshhiNee, dhairyaakarshhiNee, smRRityaakarshhiNee, naamaakarshhiNee, beejaakarshhiNee, aatmaakarshhiNee, amRRitaakarshhiNee, shareeraakarshhiNee, sarvaashaaparipooraka cakrasvaaminee, guptayoginee,  
+shreecakra tRRiteeyaavaraNadevataaH  
+anaMgakusume, anaMgamekhale, anaMgamadane, anaMgamadanaature, anaMgarekhe, anaMgaveginee, anaMgaaMkushe, anaMgamaalinee, sarvasaMkshhobhaNacakrasvaaminee, guptatarayoginee,  
+shreecakra caturthaavaraNadevataaH  
+sarvasaMkshhobhiNee, sarvavidraavinee, sarvaakarshhiNee, sarvahlaadinee, sarvasammohinee, sarvastaMbhinee, sarvajRRiMbhiNee, sarvavashaMkaree, sarvaraMjanee, sarvonmaadinee, sarvaarthasaadhike, sarvasampattipooriNee, sarvamaMtramayee, sarvadvaMdvakshhayaMkaree, sarvasaubhaagyadaayaka cakrasvaaminee, sampradaayayoginee,  
+shreecakra paMcamaavaraNadevataaH  
+sarvasiddhiprade, sarvasampatprade, sarvapriyaMkaree, sarvamaMgaLakaariNee, sarvakaamaprade, sarvaduHkhavimocanee, sarvamRRityuprashamani, sarvavighnanivaariNee, sarvaaMgasuMdaree, sarvasaubhaagyadaayinee, sarvaarthasaadhaka cakrasvaaminee, kulotteerNayoginee,  
+shreecakra shhashhTaavaraNadevataaH  
+sarvagnye, sarvashakte, sarvaishvaryapradaayinee, sarvagnyaanamayee, sarvavyaadhivinaashinee, sarvaadhaarasvaroope, sarvapaapahare, sarvaanaMdamayee, sarvarakshhaasvaroopiNee, sarvepsitaphalaprade, sarvarakshhaakaracakrasvaaminee, nigarbhayoginee,  
+shreecakra saptamaavaraNadevataaH  
+vashinee, kaameshvaree, modinee, vimale, aruNe, jayinee, sarveshvaree, kauLini, sarvarogaharacakrasvaaminee, rahasyayoginee,  
+shreecakra ashhTamaavaraNadevataaH  
+baaNinee, caapinee, paashinee, aMkushinee, mahaakaameshvaree, mahaavajreshvaree, mahaabhagamaalinee, sarvasiddhipradacakrasvaaminee, atirahasyayoginee,  
+shreecakra navamaavaraNadevataaH  
+shree shree mahaabhaTTaarike, sarvaanaMdamayacakrasvaaminee, paraapararahasyayoginee,  
+navacakreshvaree naamaani  
+tripure, tripureshee, tripurasuMdaree, tripuravaasinee, tripuraashreeH, tripuramaalinee, tripurasiddhe, tripuraaMbaa, mahaatripurasuMdaree,  
+shreedevee visheshhaNaani - namaskaaranavaakshhareeca  
+mahaamaheshvaree, mahaamahaaraagnyee, mahaamahaashakte, mahaamahaagupte, mahaamahaagnyapte, mahaamahaanaMde, mahaamahaaskaMdhe, mahaamahaashaye, mahaamahaa shreecakranagarasaamraagnyee, namaste namaste namaste namaH ❘  
+phalashrutiH  
+eshhaa vidyaa mahaasiddhidaayinee smRRitimaatrataH ❘  
+agnivaatamahaakshhobhe raajaaraashhTrasyaviplave ‖
+
+luMThane taskarabhaye saMgraame salilaplave ❘  
+samudrayaanavikshhobhe bhootapretaadike bhaye ‖
+
+apasmaarajvaravyaadhimRRityukshhaamaadijebhaye ❘  
+shaakinee pootanaayakshharakshhaHkooshhmaaMDaje bhaye ‖
+
+mitrabhede grahabhaye vyasaneshhvaabhicaarike ❘  
+anyeshhvapi ca doshheshhu maalaamaMtraM smarennaraH ‖
+
+taadRRishaM khaDgamaapnoti yena hastasthitenavai ❘  
+ashhTaadashamahaadveepasamraaDbhoktaabhavishhyati ‖
+
+sarvopadravanirmuktassaakshhaacChivamayobhavet ❘  
+aapatkaale nityapoojaaM vistaaraatkartumaarabhet ‖
+
+ekavaaraM japadhyaanam sarvapoojaaphalaM labhet ❘  
+navaavaraNadeveenaaM lalitaayaa mahaujanaH ‖
+
+ekatra gaNanaaroopo vedavedaaMgagocaraH ❘  
+sarvaagamarahasyaarthaH smaraNaatpaapanaashinee ‖
+
+lalitaayaamaheshaanyaa maalaa vidyaa maheeyasee ❘  
+naravashyaM nareMdraaNaaM vashyaM naareevashaMkaram ‖
+
+aNimaadiguNaishvaryaM raMjanaM paapabhaMjanam ❘  
+tattadaavaraNasthaayi devataabRRiMdamaMtrakam ‖
+
+maalaamaMtraM paraM guhyaM paraM dhaama prakeertitam ❘  
+shaktimaalaa paMcadhaasyaacChivamaalaa ca taadRRishee ‖
+
+tasmaadgopyataraadgopyaM rahasyaM bhuktimuktidam ‖
+
+
+‖ iti shree vaamakeshvarataMtre umaamaheshvarasaMvaade deveekhaDgamaalaastotraratnaM samaaptam ‖
+

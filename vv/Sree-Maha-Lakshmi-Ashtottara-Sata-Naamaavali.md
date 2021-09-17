@@ -1485,3 +1485,227 @@ oM bhuvaneshvaryai namaH (108)
 ఓం భువనేశ్వర్యై నమః (108)  
 
 
+### English
+
+#### śrī mahā lakśhmī aśhṭottara śata nāmāvaḻi
+
+oṃ prakṛtyai namaḥ  
+oṃ vikṛtyai namaḥ  
+oṃ vidyāyai namaḥ  
+oṃ sarvabhūtahitapradāyai namaḥ  
+oṃ śraddhāyai namaḥ  
+oṃ vibhūtyai namaḥ  
+oṃ surabhyai namaḥ  
+oṃ paramātmikāyai namaḥ  
+oṃ vāche namaḥ  
+oṃ padmālayāyai namaḥ (10)  
+oṃ padmāyai namaḥ  
+oṃ śuchyai namaḥ  
+oṃ svāhāyai namaḥ  
+oṃ svadhāyai namaḥ  
+oṃ sudhāyai namaḥ  
+oṃ dhanyāyai namaḥ  
+oṃ hiraṇmayyai namaḥ  
+oṃ lakśhmyai namaḥ  
+oṃ nityapuśhṭāyai namaḥ  
+oṃ vibhāvaryai namaḥ (20)  
+oṃ adityai namaḥ  
+oṃ dityai namaḥ  
+oṃ dīptāyai namaḥ  
+oṃ vasudhāyai namaḥ  
+oṃ vasudhāriṇyai namaḥ  
+oṃ kamalāyai namaḥ  
+oṃ kāntāyai namaḥ  
+oṃ kāmākśhyai namaḥ  
+oṃ krodhasambhavāyai namaḥ  
+oṃ anugrahaparāyai namaḥ (30)  
+oṃ ṛddhaye namaḥ  
+oṃ anaghāyai namaḥ  
+oṃ harivallabhāyai namaḥ  
+oṃ aśokāyai namaḥ  
+oṃ amṛtāyai namaḥ  
+oṃ dīptāyai namaḥ  
+oṃ lokaśoka vināśinyai namaḥ  
+oṃ dharmanilayāyai namaḥ  
+oṃ karuṇāyai namaḥ  
+oṃ lokamātre namaḥ (40)  
+oṃ padmapriyāyai namaḥ  
+oṃ padmahastāyai namaḥ  
+oṃ padmākśhyai namaḥ  
+oṃ padmasundaryai namaḥ  
+oṃ padmodbhavāyai namaḥ  
+oṃ padmamukhyai namaḥ  
+oṃ padmanābhapriyāyai namaḥ  
+oṃ ramāyai namaḥ  
+oṃ padmamālādharāyai namaḥ  
+oṃ devyai namaḥ (50)  
+oṃ padminyai namaḥ  
+oṃ padmaganthinyai namaḥ  
+oṃ puṇyagandhāyai namaḥ  
+oṃ suprasannāyai namaḥ  
+oṃ prasādābhimukhyai namaḥ  
+oṃ prabhāyai namaḥ  
+oṃ chandravadanāyai namaḥ  
+oṃ chandrāyai namaḥ  
+oṃ chandrasahodaryai namaḥ  
+oṃ chaturbhujāyai namaḥ (60)  
+oṃ chandrarūpāyai namaḥ  
+oṃ indirāyai namaḥ  
+oṃ induśītulāyai namaḥ  
+oṃ āhlodajananyai namaḥ  
+oṃ puśhṭyai namaḥ  
+oṃ śivāyai namaḥ  
+oṃ śivakaryai namaḥ  
+oṃ satyai namaḥ  
+oṃ vimalāyai namaḥ  
+oṃ viśvajananyai namaḥ (70)  
+oṃ tuśhṭyai namaḥ  
+oṃ dāridrya nāśinyai namaḥ  
+oṃ prītipuśhkariṇyai namaḥ  
+oṃ śāntāyai namaḥ  
+oṃ śuklamālyāmbarāyai namaḥ  
+oṃ śriyai namaḥ  
+oṃ bhāskaryai namaḥ  
+oṃ bilvanilayāyai namaḥ  
+oṃ varārohāyai namaḥ  
+oṃ yaśasvinyai namaḥ (80)  
+oṃ vasundharāyai namaḥ  
+oṃ udārāṅgāyai namaḥ  
+oṃ hariṇyai namaḥ  
+oṃ hemamālinyai namaḥ  
+oṃ dhanadhānya karyai namaḥ  
+oṃ siddhaye namaḥ  
+oṃ straiṇa saumyāyai namaḥ  
+oṃ śubhapradāyai namaḥ  
+oṃ nṛpaveśma gatānandāyai namaḥ  
+oṃ varalakśhmyai namaḥ (90)  
+oṃ vasupradāyai namaḥ  
+oṃ śubhāyai namaḥ  
+oṃ hiraṇyaprākārāyai namaḥ  
+oṃ samudra tanayāyai namaḥ  
+oṃ jayāyai namaḥ  
+oṃ maṅgaḻāyai namaḥ  
+oṃ devyai namaḥ  
+oṃ viśhṇu vakśhaḥsthala sthitāyai namaḥ  
+oṃ viśhṇupatnyai namaḥ  
+oṃ prasannākśhyai namaḥ (100)  
+oṃ nārāyaṇa samāśritāyai namaḥ  
+oṃ dāridrya dhvaṃsinyai namaḥ  
+oṃ sarvopadrava vāriṇyai namaḥ  
+oṃ navadurgāyai namaḥ  
+oṃ mahākāḻyai namaḥ  
+oṃ brahma viśhṇu śivātmikāyai namaḥ  
+oṃ trikāla GYāna sampannāyai namaḥ  
+oṃ bhuvaneśvaryai namaḥ (108)  
+### PlainEnglish
+
+#### shree mahaa lakshhmee ashhTottara shata naamaavaLi
+
+oM prakRRityai namaH  
+oM vikRRityai namaH  
+oM vidyaayai namaH  
+oM sarvabhootahitapradaayai namaH  
+oM shraddhaayai namaH  
+oM vibhootyai namaH  
+oM surabhyai namaH  
+oM paramaatmikaayai namaH  
+oM vaache namaH  
+oM padmaalayaayai namaH (10)  
+oM padmaayai namaH  
+oM shuchyai namaH  
+oM svaahaayai namaH  
+oM svadhaayai namaH  
+oM sudhaayai namaH  
+oM dhanyaayai namaH  
+oM hiraNmayyai namaH  
+oM lakshhmyai namaH  
+oM nityapushhTaayai namaH  
+oM vibhaavaryai namaH (20)  
+oM adityai namaH  
+oM dityai namaH  
+oM deeptaayai namaH  
+oM vasudhaayai namaH  
+oM vasudhaariNyai namaH  
+oM kamalaayai namaH  
+oM kaaMtaayai namaH  
+oM kaamaakshhyai namaH  
+oM krodhasaMbhavaayai namaH  
+oM anugrahaparaayai namaH (30)  
+oM RRiddhaye namaH  
+oM anaghaayai namaH  
+oM harivallabhaayai namaH  
+oM ashokaayai namaH  
+oM amRRitaayai namaH  
+oM deeptaayai namaH  
+oM lokashoka vinaashinyai namaH  
+oM dharmanilayaayai namaH  
+oM karuNaayai namaH  
+oM lokamaatre namaH (40)  
+oM padmapriyaayai namaH  
+oM padmahastaayai namaH  
+oM padmaakshhyai namaH  
+oM padmasuMdaryai namaH  
+oM padmodbhavaayai namaH  
+oM padmamukhyai namaH  
+oM padmanaabhapriyaayai namaH  
+oM ramaayai namaH  
+oM padmamaalaadharaayai namaH  
+oM devyai namaH (50)  
+oM padminyai namaH  
+oM padmagaMthinyai namaH  
+oM puNyagaMdhaayai namaH  
+oM suprasannaayai namaH  
+oM prasaadaabhimukhyai namaH  
+oM prabhaayai namaH  
+oM chaMdravadanaayai namaH  
+oM chaMdraayai namaH  
+oM chaMdrasahodaryai namaH  
+oM chaturbhujaayai namaH (60)  
+oM chaMdraroopaayai namaH  
+oM iMdiraayai namaH  
+oM iMdusheetulaayai namaH  
+oM aahlodajananyai namaH  
+oM pushhTyai namaH  
+oM shivaayai namaH  
+oM shivakaryai namaH  
+oM satyai namaH  
+oM vimalaayai namaH  
+oM vishvajananyai namaH (70)  
+oM tushhTyai namaH  
+oM daaridrya naashinyai namaH  
+oM preetipushhkariNyai namaH  
+oM shaaMtaayai namaH  
+oM shuklamaalyaaMbaraayai namaH  
+oM shriyai namaH  
+oM bhaaskaryai namaH  
+oM bilvanilayaayai namaH  
+oM varaarohaayai namaH  
+oM yashasvinyai namaH (80)  
+oM vasuMdharaayai namaH  
+oM udaaraaMgaayai namaH  
+oM hariNyai namaH  
+oM hemamaalinyai namaH  
+oM dhanadhaanya karyai namaH  
+oM siddhaye namaH  
+oM straiNa saumyaayai namaH  
+oM shubhapradaayai namaH  
+oM nRRipaveshma gataanaMdaayai namaH  
+oM varalakshhmyai namaH (90)  
+oM vasupradaayai namaH  
+oM shubhaayai namaH  
+oM hiraNyapraakaaraayai namaH  
+oM samudra tanayaayai namaH  
+oM jayaayai namaH  
+oM maMgaLaayai namaH  
+oM devyai namaH  
+oM vishhNu vakshhaHsthala sthitaayai namaH  
+oM vishhNupatnyai namaH  
+oM prasannaakshhyai namaH (100)  
+oM naaraayaNa samaashritaayai namaH  
+oM daaridrya dhvaMsinyai namaH  
+oM sarvopadrava vaariNyai namaH  
+oM navadurgaayai namaH  
+oM mahaakaaLyai namaH  
+oM brahma vishhNu shivaatmikaayai namaH  
+oM trikaala gnyaana saMpannaayai namaH  
+oM bhuvaneshvaryai namaH (108)  

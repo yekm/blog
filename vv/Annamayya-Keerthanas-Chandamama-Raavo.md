@@ -289,3 +289,47 @@ sirimiMchu n.eravaadi jaaNaku maa shree veMkaTeshvaruniki ‖
 విరుల వింటి వాని యయ్యకు వేవేలు రూపుల స్వామికి  
 సిరిమించు నెరవాది జాణకు మా శ్రీ వేంకటేశ్వరునికి ‖  
 
+### English
+
+#### annamayya kīrtana chandamāma rāvo
+
+chandamāma rāvo jābilli rāvo  
+kundanapu paiḍi kora venna pālu tevo ‖
+
+nagumomu chakkani yayyaku naluva buṭṭiñchina taṇḍriki  
+nigamamu landuṇḍe yappaku mā nīla varṇuniki ❘  
+jagamella nelina svāmiki indira maganiki  
+muguriki modalaina ghanunikimā muddula murāri bāluniki ‖
+
+telidammi kannula meṭiki mañchi tiyyani māṭala gummaku  
+kaliki chetala koḍekumā katala kāri ī biḍḍaku ❘  
+kula muddhiñchina paṭṭeku mañchi guṇamulu kaligina koḍeku  
+niluvella niṇḍu voyyāriki nava nidhula chūpula jūse suguṇunaku ‖
+
+surala gāchina devaraku chuñchu garuḍuni nekkina gabbiki  
+neravādi buddhula peddaku mā nīṭu chetala paṭṭiki ❘  
+virula viṇṭi vāni yayyaku vevelu rūpula svāmiki  
+sirimiñchu neravādi jāṇaku mā śrī veṅkaṭeśvaruniki ‖
+
+### PlainEnglish
+
+#### annamayya keertana chaMdamaama raavo
+
+chaMdamaama raavo jaabilli raavo  
+kuMdanapu paiDi kora v.enna paalu tevo ‖
+
+nagumomu chakkani yayyaku naluva buTTiMchina taMDriki  
+nigamamu laMduMDe yappaku maa neela varNuniki ❘  
+jagam.ella nelina svaamiki iMdira maganiki  
+muguriki m.odalaina ghanunikimaa muddula muraari baaluniki ‖
+
+t.elidammi kannula meTiki maMchi tiyyani maaTala gummaku  
+kaliki chetala koD.ekumaa katala kaari ee biDDaku ❘  
+kula muddhiMchina paTT.eku maMchi guNamulu kaligina koD.eku  
+niluv.ella niMDu v.oyyaariki nava nidhula choopula joose suguNunaku ‖
+
+surala gaachina devaraku chuMchu garuDuni n.ekkina gabbiki  
+n.eravaadi buddhula p.eddaku maa neeTu chetala paTTiki ❘  
+virula viMTi vaani yayyaku vevelu roopula svaamiki  
+sirimiMchu n.eravaadi jaaNaku maa shree veMkaTeshvaruniki ‖
+

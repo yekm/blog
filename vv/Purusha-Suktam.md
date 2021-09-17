@@ -1108,3 +1108,297 @@ oM shaaM _ti_ H shaaM _ti_ H shaaMti'H ‖
 
 ఓం శాం _తిః_ శాం _తిః_ శాంతిః' ‖  
 
+### English
+
+#### puruśha sūktam
+
+oṃ tacchaṃ yorāvṛ'ṇīmahe ❘  
+gātuṃ yaGYāya' ❘  
+gātuṃ yaGYapa'taye ❘  
+daivī'' svastira'stu naḥ ❘  
+svastirmānu'śhebhyaḥ ❘  
+ūrdhvaṃ ji'gātu bheśhajaṃ ❘  
+śaṃ no' astu dvipade'' ❘  
+śaṃ chatu'śhpade ❘  
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+sahasra'śīr-śhā puru'śhaḥ ❘  
+sahasrākśhaḥ sahasra'pāt ❘  
+sa bhūmi'ṃ viśvato' vṛtvā ❘  
+atya'tiśhṭhaddaśāṅgulam ‖
+
+puru'śha evedag-m sarvam'' ❘  
+yadbhūtaṃ yachcha bhavyam'' ❘  
+utāmṛ'tatva syeśā'naḥ ❘  
+yadanne'nātiroha'ti ‖
+
+etāvā'nasya mahimā ❘  
+ato jyāyāg'ścha pūru'śhaḥ ❘  
+pādo'''sya viśvā' bhūtāni' ❘  
+tripāda'syāmṛta'ṃ divi ‖
+
+tripādūrdhva udaitpuru'śhaḥ ❘  
+pādo'''syehā''bha'vātpuna'ḥ ❘  
+tato viśhvaṅvya'krāmat ❘  
+sāśanānaśane abhi ‖
+
+tasmā''dvirāḍa'jāyata ❘  
+virājo adhi pūru'śhaḥ ❘  
+sa jāto atya'richyata ❘  
+paśchād-bhūmimatho' puraḥ ‖
+
+yatpuru'śheṇa haviśhā'' ❘  
+devā yaGYamata'nvata ❘  
+vasanto a'syāsīdājyam'' ❘  
+grīśhma idhmaśśaradhdhaviḥ ‖
+
+saptāsyā'san-paridhaya'ḥ ❘  
+triḥ sapta samidha'ḥ kṛtāḥ ❘  
+devā yadyaGYaṃ ta'nvānāḥ ❘  
+aba'dhnan-puru'śhaṃ paśuṃ ‖
+
+taṃ yaGYaṃ barhiśhi praukśhan' ❘  
+puru'śhaṃ jātama'grataḥ ❘  
+tena' devā aya'janta ❘  
+sādhyā ṛśha'yaścha ye ‖
+
+tasmā''dyaGYāthsa'rvahuta'ḥ ❘  
+sambhṛ'taṃ pṛśhadājyaṃ ❘  
+paśūg-stāg-ścha'kre vāyavyān' ❘  
+āraṇyān-grāmyāścha ye ‖
+
+tasmā''dyaGYāthsa'rvahuta'ḥ ❘  
+ṛchaḥ sāmā'ni jaGYire ❘  
+Chandāg'ṃsi jaGYire tasmā''t ❘  
+yajustasmā'dajāyata ‖
+
+tasmādaśvā' ajāyanta ❘  
+ye ke cho'bhayāda'taḥ ❘  
+gāvo' ha jaGYire tasmā''t ❘  
+tasmā''jjātā a'jāvaya'ḥ ‖
+
+yatpuru'śhaṃ vya'dadhuḥ ❘  
+katithā vya'kalpayan ❘  
+mukhaṃ kima'sya kau bāhū ❘  
+kāvūrū pādā'vuchyete ‖
+
+brāhmaṇo'''sya mukha'māsīt ❘  
+bāhū rā'janya'ḥ kṛtaḥ ❘  
+ūrū tada'sya yadvaiśya'ḥ ❘  
+padbhyāgṃ śūdro a'jāyataḥ ‖
+
+chandramā mana'so jātaḥ ❘  
+chakśhoḥ sūryo' ajāyata ❘  
+mukhādindra'śchāgniścha' ❘  
+prāṇādvāyura'jāyata ‖
+
+nābhyā' āsīdantari'kśham ❘  
+śīrśhṇo dyauḥ sama'vartata ❘  
+padbhyāṃ bhūmirdiśaḥ śrotrā''t ❘  
+tathā' lokāg-m a'kalpayan ‖
+
+vedāhametaṃ puru'śhaṃ mahāntam'' ❘  
+ādityava'rṇaṃ tama'sastu pāre ❘  
+sarvā'ṇi rūpāṇi' vichitya dhīra'ḥ ❘  
+nāmā'ni kṛtvā'bhivadan, yadā''ste'' ‖
+
+dhātā purastādyamu'dājahāra' ❘  
+śakraḥ pravidvān-pradiśaśchata'sraḥ ❘  
+tamevaṃ vidvānamṛta' iha bha'vati ❘  
+nānyaḥ panthā aya'nāya vidyate ‖
+
+yaGYena' yaGYama'yajanta devāḥ ❘  
+tāni dharmā'ṇi prathamānyā'san ❘  
+te ha nāka'ṃ mahimāna'ḥ sachante ❘  
+yatra pūrve' sādhyāssanti' devāḥ ‖
+
+adbhyaḥ sambhū'taḥ pṛthivyai rasā''chcha ❘  
+viśvaka'rmaṇaḥ sama'vartatādhi' ❘  
+tasya tvaśhṭā' vidadha'drūpame'ti ❘  
+tatpuru'śhasya viśvamājā'namagre'' ‖
+
+vedāhametaṃ puru'śhaṃ mahāntam'' ❘  
+ādityava'rṇaṃ tama'saḥ para'stāt ❘  
+tamevaṃ vidvānamṛta' iha bha'vati ❘  
+nānyaḥ panthā' vidyateaya'nāya ‖
+
+prajāpa'tiścharati garbhe' antaḥ ❘  
+ajāya'māno bahudhā vijā'yate ❘  
+tasya dhīrāḥ pari'jānanti yonim'' ❘  
+marī'chīnāṃ padami'cChanti vedhasa'ḥ ‖
+
+yo devebhya āta'pati ❘  
+yo devānā''ṃ purohi'taḥ ❘  
+pūrvo yo devebhyo' jātaḥ ❘  
+namo' ruchāya brāhma'ye ‖
+
+rucha'ṃ brāhmaṃ janaya'ntaḥ ❘  
+devā agre tada'bruvan ❘  
+yastvaivaṃ brā''hmaṇo vidyāt ❘  
+tasya' devā asan vaśe'' ‖
+
+hrīścha' te lakśhmīścha patnyau'' ❘  
+ahorātre pārśve ❘  
+nakśha'trāṇi rūpam ❘  
+aśvinau vyāttam'' ❘  
+iśhṭaṃ ma'niśhāṇa ❘  
+amuṃ ma'niśhāṇa ❘  
+sarva'ṃ maniśhāṇa ‖
+
+tacchaṃ yorāvṛ'ṇīmahe ❘  
+gātuṃ yaGYāya' ❘  
+gātuṃ yaGYapa'taye ❘  
+daivī'' svastira'stu naḥ ❘  
+svastirmānu'śhebhyaḥ ❘  
+ūrdhvaṃ ji'gātu bheśhajaṃ ❘  
+śaṃ no' astu dvipade'' ❘  
+śaṃ chatu'śhpade ❘  
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+### PlainEnglish
+
+#### purushha sooktam
+
+oM tacchaM yoraavRRi'Neemahe ❘  
+gaatuM yagnyaaya' ❘  
+gaatuM yagnyapa'taye ❘  
+daivee'' svastira'stu naH ❘  
+svastirmaanu'shhebhyaH ❘  
+oordhvaM ji'gaatu bheshhajaM ❘  
+shaM no' astu dvipade'' ❘  
+shaM chatu'shhpade ❘  
+oM shaaMtiH shaaMtiH shaaMti'H ‖
+
+sahasra'sheer-shhaa puru'shhaH ❘  
+sahasraakshhaH sahasra'paat ❘  
+sa bhoomi'M vishvato' vRRitvaa ❘  
+atya'tishhThaddashaaMgulam ‖
+
+puru'shha evedag-m sarvam'' ❘  
+yadbhootaM yachcha bhavyam'' ❘  
+utaamRRi'tatva syeshaa'naH ❘  
+yadanne'naatiroha'ti ‖
+
+etaavaa'nasya mahimaa ❘  
+ato jyaayaag'shcha pooru'shhaH ❘  
+paado''.asya vishvaa' bhootaani' ❘  
+tripaada'syaamRRita'M divi ‖
+
+tripaadoordhva udaitpuru'shhaH ❘  
+paado''.asyehaa.a.abha'vaatpuna'H ❘  
+tato vishhvanvya'kraamat ❘  
+saashanaanashane abhi ‖
+
+tasmaa''dviraaDa'jaayata ❘  
+viraajo adhi pooru'shhaH ❘  
+sa jaato atya'richyata ❘  
+pashchaad-bhoomimatho' puraH ‖
+
+yatpuru'shheNa havishhaa'' ❘  
+devaa yagnyamata'nvata ❘  
+vasaMto a'syaaseedaajyam'' ❘  
+greeshhma idhmashsharadhdhaviH ‖
+
+saptaasyaa'san-paridhaya'H ❘  
+triH sapta samidha'H kRRitaaH ❘  
+devaa yadyagnyaM ta'nvaanaaH ❘  
+aba'dhnan-puru'shhaM pashuM ‖
+
+taM yagnyaM barhishhi praukshhan' ❘  
+puru'shhaM jaatama'grataH ❘  
+tena' devaa aya'janta ❘  
+saadhyaa RRishha'yashcha ye ‖
+
+tasmaa''dyagnyaathsa'rvahuta'H ❘  
+saMbhRRi'taM pRRishhadaajyaM ❘  
+pashoog-staag-shcha'kre vaayavyaan' ❘  
+aaraNyaan-graamyaashcha ye ‖
+
+tasmaa''dyagnyaathsa'rvahuta'H ❘  
+RRichaH saamaa'ni jagnyire ❘  
+ChaMdaag'Msi jagnyire tasmaa''t ❘  
+yajustasmaa'dajaayata ‖
+
+tasmaadashvaa' ajaayanta ❘  
+ye ke cho'bhayaada'taH ❘  
+gaavo' ha jagnyire tasmaa''t ❘  
+tasmaa''jjaataa a'jaavaya'H ‖
+
+yatpuru'shhaM vya'dadhuH ❘  
+katithaa vya'kalpayan ❘  
+mukhaM kima'sya kau baahoo ❘  
+kaavooroo paadaa'vuchyete ‖
+
+braahmaNo''.asya mukha'maaseet ❘  
+baahoo raa'janya'H kRRitaH ❘  
+ooroo tada'sya yadvaishya'H ❘  
+padbhyaagM shoodro a'jaayataH ‖
+
+chaMdramaa mana'so jaataH ❘  
+chakshhoH sooryo' ajaayata ❘  
+mukhaadindra'shchaagnishcha' ❘  
+praaNaadvaayura'jaayata ‖
+
+naabhyaa' aaseedantari'kshham ❘  
+sheershhNo dyauH sama'vartata ❘  
+padbhyaaM bhoomirdishaH shrotraa''t ❘  
+tathaa' lokaag-m a'kalpayan ‖
+
+vedaahametaM puru'shhaM mahaaMtam'' ❘  
+aadityava'rNaM tama'sastu paare ❘  
+sarvaa'Ni roopaaNi' vichitya dheera'H ❘  
+naamaa'ni kRRitvaa.abhivadan, yadaa.a.aste'' ‖
+
+dhaataa purastaadyamu'daajahaara' ❘  
+shakraH pravidvaan-pradishashchata'sraH ❘  
+tamevaM vidvaanamRRita' iha bha'vati ❘  
+naanyaH panthaa aya'naaya vidyate ‖
+
+yagnyena' yagnyama'yajaMta devaaH ❘  
+taani dharmaa'Ni prathamaanyaa'san ❘  
+te ha naaka'M mahimaana'H sachante ❘  
+yatra poorve' saadhyaassanti' devaaH ‖
+
+adbhyaH saMbhoo'taH pRRithivyai rasaa''chcha ❘  
+vishvaka'rmaNaH sama'vartataadhi' ❘  
+tasya tvashhTaa' vidadha'droopame'ti ❘  
+tatpuru'shhasya vishvamaajaa'namagre'' ‖
+
+vedaahametaM puru'shhaM mahaantam'' ❘  
+aadityava'rNaM tama'saH para'staat ❘  
+tamevaM vidvaanamRRita' iha bha'vati ❘  
+naanyaH panthaa' vidyate.aya'naaya ‖
+
+prajaapa'tishcharati garbhe' antaH ❘  
+ajaaya'maano bahudhaa vijaa'yate ❘  
+tasya dheeraaH pari'jaananti yonim'' ❘  
+maree'cheenaaM padami'cChanti vedhasa'H ‖
+
+yo devebhya aata'pati ❘  
+yo devaanaa''M purohi'taH ❘  
+poorvo yo devebhyo' jaataH ❘  
+namo' ruchaaya braahma'ye ‖
+
+rucha'M braahmaM janaya'ntaH ❘  
+devaa agre tada'bruvan ❘  
+yastvaivaM braa''hmaNo vidyaat ❘  
+tasya' devaa asan vashe'' ‖
+
+hreeshcha' te lakshhmeeshcha patnyau'' ❘  
+ahoraatre paarshve ❘  
+nakshha'traaNi roopam ❘  
+ashvinau vyaattam'' ❘  
+ishhTaM ma'nishhaaNa ❘  
+amuM ma'nishhaaNa ❘  
+sarva'M manishhaaNa ‖
+
+tacchaM yoraavRRi'Neemahe ❘  
+gaatuM yagnyaaya' ❘  
+gaatuM yagnyapa'taye ❘  
+daivee'' svastira'stu naH ❘  
+svastirmaanu'shhebhyaH ❘  
+oordhvaM ji'gaatu bheshhajaM ❘  
+shaM no' astu dvipade'' ❘  
+shaM chatu'shhpade ❘  
+oM shaaMtiH shaaMtiH shaaMti'H ‖
+

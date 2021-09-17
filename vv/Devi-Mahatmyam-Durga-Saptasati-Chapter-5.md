@@ -3487,3 +3487,707 @@ tadaacakshhvaa surendraaya sa ca yuktaM karotu yat ‖76‖
  **ఆహుతి  
 ** క్లీం జయంతీ సాంగాయై సాయుధాయై సశక్తికాయై సపరివారాయై సవాహనాయై ధూమ్రాక్ష్యై విష్ణుమాయాది చతుర్వింశద్ దేవతాభ్యో మహాహుతిం సమర్పయామి నమః స్వాహా ‖  
 
+### English
+
+#### devī mahātmyam durgā saptaśati panchamoadhyāyaḥ
+
+devyā dūta saṃvādo nāma pañcamo dhyāyaḥ ‖
+
+asya śrī uttaracaritrasya rudra ṛśhiḥ ❘  
+śrī mahāsarasvatī devatā ❘  
+anuśhṭupChandhaḥ |bhīmā śaktiḥ ❘  
+bhrāmarī bījaṃ ❘  
+sūryastatvaṃ ❘  
+sāmavedaḥ ❘  
+svarūpaṃ ❘  
+śrī mahāsarasvatiprītyarthe ❘  
+uttaracaritrapāṭhe viniyogaḥ ‖
+
+dhyānaṃ  
+ghaṇṭāśūlahalāni śaṅkha musale cakraṃ dhanuḥ sāyakaṃ  
+hastābjairdhadatīṃ ghanāntavilasacChītāṃśutulyaprabhāṃ  
+gaurī deha samudbhavāṃ trijagatāṃ ādhārabhūtāṃ mahā  
+pūrvāmatra sarasvatī manubhaje śumbhādidaityārdinīṃ‖
+
+
+‖ṛśhiruvāca‖
+
+‖ 1 ‖
+
+purā śumbhaniśumbhābhyāmasurābhyāṃ śachīpateḥ  
+trailokyaṃ yaGYya bhāgāśca hṛtā madabalāśrayāt   
+‖2‖
+
+tāveva sūryatām tadvadadhikāraṃ tathaindavaṃ  
+kouberamatha yāmyaṃ chakrānte varuṇasya ca              
+tāveva pavanarddhi'ṃ ca cakraturvahni karmaca  
+tato devā vinirdhūtā bhraśhṭarājyāḥ parājitāḥ   
+‖3‖
+
+hṛtādhikārāstridaśāstābhyāṃ sarve nirākṛtā❘  
+mahāsurābhyāṃ tāṃ devīṃ saṃsmarantyaparājitāṃ   
+‖4‖
+
+tayāsmākaṃ varo datto yadhāpatsu smṛtākhilāḥ❘  
+bhavatāṃ nāśayiśhyāmi tatkśhaṇātparamāpadaḥ   
+‖5‖
+
+itikṛtvā matiṃ devā himavantaṃ nageśvaraṃ❘  
+jagmustatra tato devīṃ viśhṇumāyāṃ pratuśhṭuvuḥ   
+‖6‖
+
+devā ūcuḥ  
+namo devyai mahādevyai śivāyai satataṃ namaḥ❘  
+namaḥ prakṛtyai bhadrāyai niyatāḥ praṇatāḥ smatāṃ   
+‖6‖
+
+roudrāya namo nityāyai gouryai dhātryai namo namaḥ  
+jyotsnāyai cendurūpiṇyai sukhāyai satataṃ namaḥ   
+‖8‖
+
+kaḻyāṇyai praṇatā vṛddhyai siddhyai kurmo namo namaḥ❘  
+nairṛtyai bhūbhṛtāṃ lakśhmai śarvāṇyai te namo namaḥ   
+‖9‖
+
+durgāyai durgapārāyai sārāyai sarvakāriṇyai  
+khyātyai tathaiva kṛśhṇāyai dhūmrāyai satataṃ namaḥ   
+‖10‖
+
+atisaumyatiroudrāyai natāstasyai namo namaḥ  
+namo jagatpratiśhṭhāyai devyai kṛtyai namo namaḥ   
+‖11‖
+
+yādevī sarvabhūteśhū viśhṇumāyeti śabdhitā❘  
+namastasyai, namastasyai,namastasyai namonamaḥ   ‖
+
+12  
+yādevī sarvabhūteśhū cetanetyabhidhīyate❘  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖13‖
+
+yādevī sarvabhūteśhū buddhirūpeṇa saṃsthitā❘  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖14‖
+
+yādevī sarvabhūteśhū nidrārūpeṇa saṃsthitā❘  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖15‖
+
+yādevī sarvabhūteśhū kśhudhārūpeṇa saṃsthitā  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖16‖
+
+yādevī sarvabhūteśhū Chāyārūpeṇa saṃsthitā  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖17‖
+
+yādevī sarvabhūteśhū śaktirūpeṇa saṃsthitā  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖18‖
+
+yādevī sarvabhūteśhū tṛśhṇārūpeṇa saṃsthitā  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖19‖
+
+yādevī sarvabhūteśhū kśhāntirūpeṇa saṃsthitā  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖20‖
+
+yādevī sarvabhūteśhū jātirūpeṇa saṃsthitā  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖21‖
+
+yādevī sarvabhūteśhū lajjārūpeṇa saṃsthitā  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖22‖
+
+yādevī sarvabhūteśhū śāntirūpeṇa saṃsthitā  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖23‖
+
+yādevī sarvabhūteśhū śraddhārūpeṇa saṃsthitā  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖24‖
+
+yādevī sarvabhūteśhū kāntirūpeṇa saṃsthitā  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖25‖
+
+yādevī sarvabhūteśhū lakśhmīrūpeṇa saṃsthitā  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖26‖
+
+yādevī sarvabhūteśhū vṛttirūpeṇa saṃsthitā  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖27‖
+
+yādevī sarvabhūteśhū smṛtirūpeṇa saṃsthitā  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖28‖
+
+yādevī sarvabhūteśhū dayārūpeṇa saṃsthitā  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖29‖
+
+yādevī sarvabhūteśhū tuśhṭirūpeṇa saṃsthitā  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖30‖
+
+yādevī sarvabhūteśhū mātṛrūpeṇa saṃsthitā  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖31‖
+
+yādevī sarvabhūteśhū bhrāntirūpeṇa saṃsthitā  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖32‖
+
+indriyāṇāmadhiśhṭhātrī bhūtānāṃ cākhileśhu yā❘  
+bhūteśhu satataṃ tasyai vyāpti devyai namo namaḥ   
+‖33‖
+
+citirūpeṇa yā kṛtsnameta dvyāpya sthitā jagat  
+namastasyai, namastasyai,namastasyai namonamaḥ     
+‖34‖
+
+stutāsuraiḥ pūrvamabhīśhṭa saṃśrayāttathā  
+surendreṇa dineśhusevitā❘  
+karotusā naḥ śubhaheturīśvarī  
+śubhāni bhadrāṇya bhihantu cāpadaḥ   
+‖35‖
+
+yā sāmprataṃ coddhatadaityatāpitai  
+rasmābhirīśācasurairnamaśyate❘  
+yāca smatā tat^kśhaṇa meva hanti naḥ  
+sarvā padobhaktivinamramūrtibhiḥ   
+‖36‖
+
+ṛśhiruvāca‖
+
+evaṃ stavābhi yuktānāṃ devānāṃ tatra pārvatī❘  
+snātumabhyāyayau toye jāhnavyā nṛpanandana   
+‖37‖
+
+sābravīttān surān subhrūrbhavadbhiḥ stūyateatra kā  
+śarīrakośataścāsyāḥ samudbhūtā' bravīcChivā     
+‖38‖
+
+stotraṃ mamaitatkriyate śumbhadaitya nirākṛtaiḥ  
+devaiḥ sametaiḥ samare niśumbhena parājitaiḥ     
+‖39‖
+
+śarīrakośādyattasyāḥ pārvatyā niḥsṛtāmbikā❘  
+kauśikīti samasteśhu tato lokeśhu gīyate   
+‖40‖
+
+tasyāṃvinirgatāyāṃ tu kṛśhṇābhūtsāpi pārvatī❘  
+kāḻiketi samākhyātā himācalakṛtāśrayā     
+‖41‖
+
+tatoambikāṃ paraṃ rūpaṃ bibhrāṇāṃ sumanoharaṃ ❘  
+dadarśa caṇdo muṇdaśca bhṛtyau śumbhaniśumbhayoḥ   
+‖42‖
+
+tābhyāṃ śumbhāya cākhyātā sātīva sumanoharā❘  
+kāpyāste strī mahārāja bhāsa yantī himācalam   
+‖43‖
+
+naiva tādṛk kvacidrūpaṃ dṛśhṭaṃ kenaciduttamam❘  
+GYāyatāṃ kāpyasau devī gṛhyatāṃ cāsureśvara     
+‖44‖
+
+strī ratna maticārvañjgī dyotayantīdiśastviśhā❘  
+sātutiśhṭati daityendra tāṃ bhavān draśhṭu marhati     
+‖45‖
+
+yāni ratnāni maṇayo gajāśvādīni vai prabho❘  
+trai lokyetu samastāni sāmprataṃ bhāntite gṛhe     
+‖46‖
+
+airāvataḥ samānīto gajaratnaṃ punardarāt❘  
+pārijāta taruścāyaṃ tathaivoccaiḥ śravā hayaḥ     
+‖47‖
+
+vimānaṃ haṃsasaṃyuktametattiśhṭhati teaṅgaṇe❘  
+ratnabhūta mihānītaṃ yadāsīdvedhasoadbhutaṃ     
+‖48‖
+
+nidhireśha mahā padmaḥ samānīto dhaneśvarāt❘  
+kiñjalkinīṃ dadau cābdhirmālāmamlānapajkajāṃ       
+‖49‖
+
+Chatraṃ tevāruṇaṃ gehe kāñcanasrāvi tiśhṭhati❘  
+tathāyaṃ syandanavaro yaḥ purāsītprajāpateḥ       
+‖50‖
+
+mṛtyorutkrāntidā nāma śaktirīśa tvayā hṛtā❘  
+pāśaḥ salila rājasya bhrātustava parigrahe     
+‖51‖
+
+niśumbhasyābdhijātāśca samastā ratna jātayaḥ❘  
+vahniścāpi dadau tubhya magniśauce ca vāsasī       
+‖52‖
+
+evaṃ daityendra ratnāni samastānyāhṛtāni te  
+strrī ratna meśhā kalyāṇī tvayā kasmānna gṛhyate     
+‖53‖
+
+ṛśhiruvāca❘  
+niśamyeti vacaḥ śumbhaḥ sa tadā caṇḍamuṇḍayoḥ❘  
+preśhayāmāsa sugrīvaṃ dūtaṃ devyā mahāsuraṃ     
+‖54‖
+
+iti ceti ca vaktavyā sā gatvā vacanānmama❘  
+yathā cābhyeti samprītyā tathā kāryaṃ tvayā laghu     
+‖55‖
+
+satatra gatvā yatrāste śailoddośeatiśobhane❘  
+sādevī tāṃ tataḥ prāha ślakśhṇaṃ madhurayā girā     
+‖56‖
+
+dūta uvāca‖
+
+devi daityeśvaraḥ śumbhastrelokye parameśvaraḥ❘  
+dūtoahaṃ preśhi tastena tvatsakāśamihāgataḥ       
+‖57‖
+
+avyāhatāGYaḥ sarvāsu yaḥ sadā devayoniśhu❘  
+nirjitākhila daityāriḥ sa yadāha śṛṇuśhva tat     
+‖58‖
+
+mamatrailokya makhilaṃ mamadevā vaśānugāḥ❘  
+yaGYabhāgānahaṃ sarvānupāśnāmi pṛthak pṛthak     
+‖59‖
+
+trailokyevararatnāni mama vaśyānyaśeśhataḥ❘  
+tathaiva gajaratnaṃ ca hṛtaṃ devendravāhanaṃ       
+‖60‖
+
+kśhīrodamathanodbhūta maśvaratnaṃ mamāmaraiḥ❘  
+uccaiḥśravasasaṃGYaṃ tatpraṇipatya samarpitaṃ       
+‖61‖
+
+yānicānyāni deveśhu gandharveśhūrageśhu ca ❘  
+ratnabhūtāni bhūtāni tāni mayyeva śobhane       
+‖62‖
+
+strī ratnabhūtāṃ tāṃ devīṃ loke manyā mahe vayaṃ❘  
+sā tvamasmānupāgacCha yato ratnabhujo vayaṃ     
+‖63‖
+
+māṃvā mamānujaṃ vāpi niśumbhamuruvikramam❘  
+bhajatvaṃ cañcalāpājgi ratna bhūtāsi vai yataḥ     
+‖64‖
+
+paramaiśvarya matulaṃ prāpsyase matparigrahāt❘  
+etadbhudthyā samālocya matparigrahatāṃ vraja       
+‖65‖
+
+ṛśhiruvāca‖
+
+ityuktā sā tadā devī gambhīrāntaḥsmitā jagau❘  
+durgā bhagavatī bhadrā yayedaṃ dhāryate jagat     
+‖66‖
+
+devyuvāca‖
+
+satya muktaṃ tvayā nātra mithyākiñcittvayoditam❘  
+trailokyādhipatiḥ śumbho niśumbhaścāpi tādṛśaḥ     
+‖67‖
+
+kiṃ tvatra yatpratiGYātaṃ mithyā tatkriyate katham❘  
+śrūyatāmalpabhuddhitvāt tpratiGYā yā kṛtā purā     
+‖68‖
+
+yomām jayati sajgrāme yo me darpaṃ vyapohati❘  
+yome pratibalo loke sa me bhartā bhaviśhyati       
+‖69‖
+
+tadāgacChatu śumbhoatra niśumbho vā mahāsuraḥ❘  
+māṃ jitvā kiṃ cireṇātra pāṇiṅgṛhṇātumelaghu         
+‖70‖
+
+dūta uvāca‖
+
+avaliptāsi maivaṃ tvaṃ devi brūhi mamāgrataḥ❘  
+trailokyekaḥ pumāṃstiśhṭed agre śumbhaniśumbhayoḥ     
+‖71‖
+
+anyeśhāmapi daityānāṃ sarve devā na vai yudhi❘  
+kiṃ tiśhṭhanti summukhe devi punaḥ strī tvamekikā       
+‖72‖
+
+indrādyāḥ sakalā devāstasthuryeśhāṃ na saṃyuge❘  
+śumbhādīnāṃ kathaṃ teśhāṃ strī prayāsyasi sammukham     
+‖73‖
+
+sātvaṃ gacCha mayaivoktā pārśvaṃ śumbhaniśumbhayoḥ❘  
+keśākarśhaṇa nirdhūta gauravā mā gamiśhyasi
+‖74‖
+
+devyuvāca❘  
+evametad balī śumbho niśumbhaścātivīryavān❘  
+kiṃ karomi pratiGYā me yadanālocitāpurā       
+‖75‖
+
+satvaṃ gacCha mayoktaṃ te yadetattsarva mādṛtaḥ❘  
+tadācakśhvā surendrāya sa ca yuktaṃ karotu yat     
+‖76‖
+
+
+‖ iti śrī mārkaṇḍeya purāṇe sāvarnike manvantare devi mahatmye devyā dūta saṃvādo nāma pañcamo dhyāyaḥ samāptaṃ ‖
+
+āhuti  
+klīṃ jayantī sāṅgāyai sāyudhāyai saśaktikāyai saparivārāyai savāhanāyai dhūmrākśhyai viśhṇumāyādi chaturviṃśad devatābhyo mahāhutiṃ samarpayāmi namaḥ svāhā ‖
+
+### PlainEnglish
+
+#### devee mahaatmyam durgaa saptashati panchamo.adhyaayaH
+
+devyaa doota saMvaado naama pancamo dhyaayaH ‖
+
+asya shree uttaracaritrasya rudra RRishhiH ❘  
+shree mahaasarasvatee devataa ❘  
+anushhTupChandhaH |bheemaa shaktiH ❘  
+bhraamaree beejaM ❘  
+sooryastatvaM ❘  
+saamavedaH ❘  
+svaroopaM ❘  
+shree mahaasarasvatipreetyarthe ❘  
+uttaracaritrapaaThe viniyogaH ‖
+
+dhyaanaM  
+ghaNTaashoolahalaani shaMkha musale cakraM dhanuH saayakaM  
+hastaabjairdhadateeM ghanaantavilasacCheetaaMshutulyaprabhaaM  
+gauree deha samudbhavaaM trijagataaM aadhaarabhootaaM mahaa  
+poorvaamatra sarasvatee manubhaje shumbhaadidaityaardineeM‖
+
+
+‖RRishhiruvaaca‖
+
+‖ 1 ‖
+
+puraa shumbhanishumbhaabhyaamasuraabhyaaM shacheepateH  
+trailokyaM yagnyya bhaagaashca hRRitaa madabalaashrayaat   
+‖2‖
+
+taaveva sooryataam tadvadadhikaaraM tathaindavaM  
+k.ouberamatha yaamyaM chakraaMte varuNasya ca              
+taaveva pavanarddhi.aM ca cakraturvahni karmaca  
+tato devaa vinirdhootaa bhrashhTaraajyaaH paraajitaaH   
+‖3‖
+
+hRRitaadhikaaraastridashaastaabhyaaM sarve niraakRRitaa❘  
+mahaasuraabhyaaM taaM deveeM saMsmarantyaparaajitaaM   
+‖4‖
+
+tayaasmaakaM varo datto yadhaapatsu smRRitaakhilaaH❘  
+bhavataaM naashayishhyaami tatkshhaNaatparamaapadaH   
+‖5‖
+
+itikRRitvaa matiM devaa himavantaM nageshvaraM❘  
+jagmustatra tato deveeM vishhNumaayaaM pratushhTuvuH   
+‖6‖
+
+devaa oocuH  
+namo devyai mahaadevyai shivaayai satataM namaH❘  
+namaH prakRRityai bhadraayai niyataaH praNataaH smataaM   
+‖6‖
+
+r.oudraaya namo nityaayai g.ouryai dhaatryai namo namaH  
+jyotsnaayai cenduroopiNyai sukhaayai satataM namaH   
+‖8‖
+
+kaLyaaNyai praNataa vRRiddhyai siddhyai kurmo namo namaH❘  
+nairRRityai bhoobhRRitaaM lakshhmai sharvaaNyai te namo namaH   
+‖9‖
+
+durgaayai durgapaaraayai saaraayai sarvakaariNyai  
+khyaatyai tathaiva kRRishhNaayai dhoomraayai satataM namaH   
+‖10‖
+
+atisaumyatir.oudraayai nataastasyai namo namaH  
+namo jagatpratishhThaayai devyai kRRityai namo namaH   
+‖11‖
+
+yaadevee sarvabhooteshhoo vishhNumaayeti shabdhitaa❘  
+namastasyai, namastasyai,namastasyai namonamaH   ‖
+
+12  
+yaadevee sarvabhooteshhoo cetanetyabhidheeyate❘  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖13‖
+
+yaadevee sarvabhooteshhoo buddhiroopeNa saMsthitaa❘  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖14‖
+
+yaadevee sarvabhooteshhoo nidraaroopeNa saMsthitaa❘  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖15‖
+
+yaadevee sarvabhooteshhoo kshhudhaaroopeNa saMsthitaa  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖16‖
+
+yaadevee sarvabhooteshhoo ChaayaaroopeNa saMsthitaa  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖17‖
+
+yaadevee sarvabhooteshhoo shaktiroopeNa saMsthitaa  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖18‖
+
+yaadevee sarvabhooteshhoo tRRishhNaaroopeNa saMsthitaa  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖19‖
+
+yaadevee sarvabhooteshhoo kshhaantiroopeNa saMsthitaa  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖20‖
+
+yaadevee sarvabhooteshhoo jaatiroopeNa saMsthitaa  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖21‖
+
+yaadevee sarvabhooteshhoo lajjaaroopeNa saMsthitaa  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖22‖
+
+yaadevee sarvabhooteshhoo shaantiroopeNa saMsthitaa  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖23‖
+
+yaadevee sarvabhooteshhoo shraddhaaroopeNa saMsthitaa  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖24‖
+
+yaadevee sarvabhooteshhoo kaantiroopeNa saMsthitaa  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖25‖
+
+yaadevee sarvabhooteshhoo lakshhmeeroopeNa saMsthitaa  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖26‖
+
+yaadevee sarvabhooteshhoo vRRittiroopeNa saMsthitaa  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖27‖
+
+yaadevee sarvabhooteshhoo smRRitiroopeNa saMsthitaa  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖28‖
+
+yaadevee sarvabhooteshhoo dayaaroopeNa saMsthitaa  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖29‖
+
+yaadevee sarvabhooteshhoo tushhTiroopeNa saMsthitaa  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖30‖
+
+yaadevee sarvabhooteshhoo maatRRiroopeNa saMsthitaa  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖31‖
+
+yaadevee sarvabhooteshhoo bhraantiroopeNa saMsthitaa  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖32‖
+
+indriyaaNaamadhishhThaatree bhootaanaaM caakhileshhu yaa❘  
+bhooteshhu satataM tasyai vyaapti devyai namo namaH   
+‖33‖
+
+citiroopeNa yaa kRRitsnameta dvyaapya sthitaa jagat  
+namastasyai, namastasyai,namastasyai namonamaH     
+‖34‖
+
+stutaasuraiH poorvamabheeshhTa saMshrayaattathaa  
+surendreNa dineshhusevitaa❘  
+karotusaa naH shubhahetureeshvaree  
+shubhaani bhadraaNya bhihantu caapadaH   
+‖35‖
+
+yaa saamprataM coddhatadaityataapitai  
+rasmaabhireeshaacasurairnamashyate❘  
+yaaca smataa tat^kshhaNa meva hanti naH  
+sarvaa padobhaktivinamramoortibhiH   
+‖36‖
+
+RRishhiruvaaca‖
+
+evaM stavaabhi yuktaanaaM devaanaaM tatra paarvatee❘  
+snaatumabhyaayayau toye jaahnavyaa nRRipanandana   
+‖37‖
+
+saabraveettaan suraan subhroorbhavadbhiH stooyate.atra kaa  
+shareerakoshatashcaasyaaH samudbhootaa.a braveecChivaa     
+‖38‖
+
+stotraM mamaitatkriyate shumbhadaitya niraakRRitaiH  
+devaiH sametaiH samare nishumbhena paraajitaiH     
+‖39‖
+
+shareerakoshaadyattasyaaH paarvatyaa niHsRRitaambikaa❘  
+kaushikeeti samasteshhu tato lokeshhu geeyate   
+‖40‖
+
+tasyaaMvinirgataayaaM tu kRRishhNaabhootsaapi paarvatee❘  
+kaaLiketi samaakhyaataa himaacalakRRitaashrayaa     
+‖41‖
+
+tato.ambikaaM paraM roopaM bibhraaNaaM sumanoharaM ❘  
+dadarsha caNdo muNdashca bhRRityau shumbhanishumbhayoH   
+‖42‖
+
+taabhyaaM shumbhaaya caakhyaataa saateeva sumanoharaa❘  
+kaapyaaste stree mahaaraaja bhaasa yantee himaacalam   
+‖43‖
+
+naiva taadRRik kvacidroopaM dRRishhTaM kenaciduttamam❘  
+gnyaayataaM kaapyasau devee gRRihyataaM caasureshvara     
+‖44‖
+
+stree ratna maticaarvaMjgee dyotayanteedishastvishhaa❘  
+saatutishhTati daityendra taaM bhavaan drashhTu marhati     
+‖45‖
+
+yaani ratnaani maNayo gajaashvaadeeni vai prabho❘  
+trai lokyetu samastaani saamprataM bhaantite gRRihe     
+‖46‖
+
+airaavataH samaaneeto gajaratnaM punardaraat❘  
+paarijaata tarushcaayaM tathaivoccaiH shravaa hayaH     
+‖47‖
+
+vimaanaM haMsasaMyuktametattishhThati te.angaNe❘  
+ratnabhoota mihaaneetaM yadaaseedvedhaso.adbhutaM     
+‖48‖
+
+nidhireshha mahaa padmaH samaaneeto dhaneshvaraat❘  
+kinjalkineeM dadau caabdhirmaalaamamlaanapajkajaaM       
+‖49‖
+
+ChatraM tevaaruNaM gehe kaancanasraavi tishhThati❘  
+tathaayaM syandanavaro yaH puraaseetprajaapateH       
+‖50‖
+
+mRRityorutkraantidaa naama shaktireesha tvayaa hRRitaa❘  
+paashaH salila raajasya bhraatustava parigrahe     
+‖51‖
+
+nishumbhasyaabdhijaataashca samastaa ratna jaatayaH❘  
+vahnishcaapi dadau tubhya magnishauce ca vaasasee       
+‖52‖
+
+evaM daityendra ratnaani samastaanyaahRRitaani te  
+strree ratna meshhaa kalyaaNee tvayaa kasmaanna gRRihyate     
+‖53‖
+
+RRishhiruvaaca❘  
+nishamyeti vacaH shumbhaH sa tadaa caNDamuNDayoH❘  
+preshhayaamaasa sugreevaM dootaM devyaa mahaasuraM     
+‖54‖
+
+iti ceti ca vaktavyaa saa gatvaa vacanaanmama❘  
+yathaa caabhyeti sampreetyaa tathaa kaaryaM tvayaa laghu     
+‖55‖
+
+satatra gatvaa yatraaste shailoddoshe.atishobhane❘  
+saadevee taaM tataH praaha shlakshhNaM madhurayaa giraa     
+‖56‖
+
+doota uvaaca‖
+
+devi daityeshvaraH shumbhastr.elokye parameshvaraH❘  
+dooto.ahaM preshhi tastena tvatsakaashamihaagataH       
+‖57‖
+
+avyaahataagnyaH sarvaasu yaH sadaa devayonishhu❘  
+nirjitaakhila daityaariH sa yadaaha shRRiNushhva tat     
+‖58‖
+
+mamatrailokya makhilaM mamadevaa vashaanugaaH❘  
+yagnyabhaagaanahaM sarvaanupaashnaami pRRithak pRRithak     
+‖59‖
+
+trailokyevararatnaani mama vashyaanyasheshhataH❘  
+tathaiva gajaratnaM ca hRRitaM devendravaahanaM       
+‖60‖
+
+kshheerodamathanodbhoota mashvaratnaM mamaamaraiH❘  
+uccaiHshravasasaMgnyaM tatpraNipatya samarpitaM       
+‖61‖
+
+yaanicaanyaani deveshhu gandharveshhoorageshhu ca ❘  
+ratnabhootaani bhootaani taani mayyeva shobhane       
+‖62‖
+
+stree ratnabhootaaM taaM deveeM loke manyaa mahe vayaM❘  
+saa tvamasmaanupaagacCha yato ratnabhujo vayaM     
+‖63‖
+
+maaMvaa mamaanujaM vaapi nishumbhamuruvikramam❘  
+bhajatvaM cancalaapaajgi ratna bhootaasi vai yataH     
+‖64‖
+
+paramaishvarya matulaM praapsyase matparigrahaat❘  
+etadbhudthyaa samaalocya matparigrahataaM vraja       
+‖65‖
+
+RRishhiruvaaca‖
+
+ityuktaa saa tadaa devee gambheeraantaHsmitaa jagau❘  
+durgaa bhagavatee bhadraa yayedaM dhaaryate jagat     
+‖66‖
+
+devyuvaaca‖
+
+satya muktaM tvayaa naatra mithyaakincittvayoditam❘  
+trailokyaadhipatiH shumbho nishumbhashcaapi taadRRishaH     
+‖67‖
+
+kiM tvatra yatpratignyaataM mithyaa tatkriyate katham❘  
+shrooyataamalpabhuddhitvaat tpratignyaa yaa kRRitaa puraa     
+‖68‖
+
+yomaam jayati sajgraame yo me darpaM vyapohati❘  
+yome pratibalo loke sa me bhartaa bhavishhyati       
+‖69‖
+
+tadaagacChatu shumbho.atra nishumbho vaa mahaasuraH❘  
+maaM jitvaa kiM cireNaatra paaNiMgRRihNaatumelaghu         
+‖70‖
+
+doota uvaaca‖
+
+avaliptaasi maivaM tvaM devi broohi mamaagrataH❘  
+trailokyekaH pumaaMstishhTed agre shumbhanishumbhayoH     
+‖71‖
+
+anyeshhaamapi daityaanaaM sarve devaa na vai yudhi❘  
+kiM tishhThanti summukhe devi punaH stree tvamekikaa       
+‖72‖
+
+indraadyaaH sakalaa devaastasthuryeshhaaM na saMyuge❘  
+shumbhaadeenaaM kathaM teshhaaM stree prayaasyasi sammukham     
+‖73‖
+
+saatvaM gacCha mayaivoktaa paarshvaM shumbhanishumbhayoH❘  
+keshaakarshhaNa nirdhoota gauravaa maa gamishhyasi
+‖74‖
+
+devyuvaaca❘  
+evametad balee shumbho nishumbhashcaativeeryavaan❘  
+kiM karomi pratignyaa me yadanaalocitaapuraa       
+‖75‖
+
+satvaM gacCha mayoktaM te yadetattsarva maadRRitaH❘  
+tadaacakshhvaa surendraaya sa ca yuktaM karotu yat     
+‖76‖
+
+
+‖ iti shree maarkaNDeya puraaNe saavarnike manvantare devi mahatmye devyaa doota saMvaado naama pancamo dhyaayaH samaaptaM ‖
+
+aahuti  
+kleeM jayaMtee saaMgaayai saayudhaayai sashaktikaayai saparivaaraayai savaahanaayai dhoomraakshhyai vishhNumaayaadi chaturviMshad devataabhyo mahaahutiM samarpayaami namaH svaahaa ‖
+

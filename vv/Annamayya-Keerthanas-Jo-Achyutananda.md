@@ -757,3 +757,117 @@ maMgaLamu tirupaTla madanagopaala ‖
 మంగళము తిరుపట్ల మదనగోపాల ‖  
 
 
+### English
+
+#### annamayya kīrtana jo achyutānanda
+
+jo acyutānanda jojo mukundā  
+rāve paramānanda rāma govindā ‖
+
+aṅgajuni ganna mā yanna yiṭu rārā  
+baṅgāru ginnelo pālu poserā ❘  
+doṅga nīvani satulu goṅkucunnārā  
+muṅgiṭa nāḍarā mohanākāra ‖
+
+govardhanambella goḍugugā paṭṭi  
+kāvarammuna nunna kaṃsupaḍagoṭṭi ❘  
+nīvu madhurāpuramu nelacepaṭṭi  
+ṭhīvito nelina devakīpaṭṭi ‖
+
+nandu niṇṭanu jeri nayamu mīRaṅga  
+candravadanalu nīku seva ceyaṅga ❘  
+nandamuga vāriṇḍla nāḍucuṇḍaṅga  
+mandalaku doṅga mā mudduraṅga ‖
+
+pālavārāśilo pavaḻiñcināvu  
+bālugā munula kabhayamiccināvu ❘  
+melugā vasudevu kudayiñcināvu  
+bāluḍai yuṇḍi gopāluḍaināvu ‖
+
+aṭṭugaṭṭina mīga ḍaṭṭe tinnāḍe  
+paṭṭi koḍalu mūtipai rāsināḍe ❘  
+aṭṭe tinenani yatta yaḍaga vinnāḍe  
+gaṭṭigā nidi doṅga koṭṭumannāḍe ‖
+
+gollavāriṇḍlaku gobbunakuboyi  
+kollalugā trāvi kuṇḍalanu neyi ❘  
+cellunā maganāṇḍra jeligi yīśāyī  
+cillatanamulu seya jellunaṭavoyi ‖
+
+repalle satulella gopambutonu  
+gopamma mī koḍuku mā yiṇḍla lonu ❘  
+māpugāne vacci mā mānamulanu  
+nī pāpaḍe ceRice nemandumamma ‖
+
+okani yālinidecci nokani kaḍabeṭṭi  
+jagaḍamulu kalipiñci satipatulabaṭṭi ❘  
+pagalu nalujāmulunu bāluḍai naṭṭi  
+maganāṇḍra cepaṭṭi madanuḍai naṭṭi ‖
+
+aligi tṛṇāvartu navani gūlcitivi  
+balimimai būtana baṭṭi pīlcitivi ❘  
+celagi śakaṭāsuruni jeri ḍolcitivi  
+talaci maddulu reṇḍu dharaṇi vrālcitivi ‖
+
+haṅgugā tāllapākannayya cāla  
+śṛṅgāra racanagā ceppe nī jola ❘  
+saṅgatiga sakala sampadala nīveḻa  
+maṅgaḻamu tirupaṭla madanagopāla ‖
+
+### PlainEnglish
+
+#### annamayya keertana jo achyutaanaMda
+
+jo acyutaanaMda jojo mukuMdaa  
+raav.e paramaanaMda raama goviMdaa ‖
+
+aMgajuni ganna maa yanna yiTu raaraa  
+baMgaaru ginn.elo paalu poseraa ❘  
+d.oMga neevani satulu g.oMkucunnaaraa  
+muMgiTa naaDaraa mohanaakaara ‖
+
+govardhanaMb.ella g.oDugugaa paTTi  
+kaavarammuna nunna kaMsupaDag.oTTi ❘  
+neevu madhuraapuramu nelacepaTTi  
+Theevito nelina devakeepaTTi ‖
+
+naMdu niMTanu jeri nayamu meeRaMga  
+caMdravadanalu neeku seva ceyaMga ❘  
+naMdamuga vaariMDla naaDucuMDaMga  
+maMdalaku d.oMga maa mudduraMga ‖
+
+paalavaaraashilo pavaLiMcinaavu  
+baalugaa munula kabhayamiccinaavu ❘  
+melugaa vasudevu kudayiMcinaavu  
+baaluDai yuMDi gopaaluDainaavu ‖
+
+aTTugaTTina meega DaTT.e tinnaaDe  
+paTTi koDalu mootipai raasinaaDe ❘  
+aTT.e tin.enani yatta yaDaga vinnaaDe  
+gaTTigaa nidi d.oMga k.oTTumannaaDe ‖
+
+g.ollavaariMDlaku g.obbunakuboyi  
+k.ollalugaa traavi kuMDalanu neyi ❘  
+c.ellunaa maganaaMDra j.eligi yeeshaayee  
+cillatanamulu seya j.ellunaTavoyi ‖
+
+repall.e satul.ella gopaMbutonu  
+gopamma mee k.oDuku maa yiMDla lonu ❘  
+maapugaane vacci maa maanamulanu  
+nee paapaDe c.eRic.e nemaMdumamma ‖
+
+.okani yaalinid.ecci n.okani kaDab.eTTi  
+jagaDamulu kalipiMci satipatulabaTTi ❘  
+pagalu nalujaamulunu baaluDai naTTi  
+maganaaMDra cepaTTi madanuDai naTTi ‖
+
+aligi tRRiNaavartu navani goolcitivi  
+balimimai bootana baTTi peelcitivi ❘  
+c.elagi shakaTaasuruni jeri D.olcitivi  
+talaci maddulu r.eMDu dharaNi vraalcitivi ‖
+
+haMgugaa taallapaakannayya caala  
+shRRiMgaara racanagaa c.epp.e nee jola ❘  
+saMgatiga sakala saMpadala neeveLa  
+maMgaLamu tirupaTla madanagopaala ‖
+

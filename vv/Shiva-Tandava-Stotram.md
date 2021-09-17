@@ -1500,3 +1500,191 @@ ends.
 లక్ష్మీం సదైవ సుముఖిం ప్రదదాతి శంభుః ‖ 15 ‖  
 
 
+### English
+
+#### śiva tāṇḍava stotram
+
+jaṭāṭavīgalajjalapravāhapāvitasthale  
+galevalambya lambitāṃ bhujaṅgatuṅgamālikām ❘  
+ḍamaḍḍamaḍḍamaḍḍamanninādavaḍḍamarvayaṃ  
+chakāra chaṇḍatāṇḍavaṃ tanotu naḥ śivaḥ śivam 
+‖ 1 ‖
+
+jaṭākaṭāhasambhramabhramannilimpanirjharī-  
+-vilolavīchivallarīvirājamānamūrdhani ❘  
+dhagaddhagaddhagajjvalallalāṭapaṭṭapāvake  
+kiśorachandraśekhare ratiḥ pratikśhaṇaṃ mama 
+‖ 2 ‖
+
+dharādharendranandinīvilāsabandhubandhura  
+sphuraddigantasantatipramodamānamānase ❘  
+kṛpākaṭākśhadhoraṇīniruddhadurdharāpadi  
+kvachiddigambare mano vinodametu vastuni 
+‖ 3 ‖
+
+jaṭābhujaṅgapiṅgaḻasphuratphaṇāmaṇiprabhā  
+kadambakuṅkumadravapraliptadigvadhūmukhe ❘  
+madāndhasindhurasphurattvaguttarīyamedure  
+mano vinodamadbhutaṃ bibhartu bhūtabhartari 
+‖ 4 ‖
+
+sahasralochanaprabhṛtyaśeśhalekhaśekhara  
+prasūnadhūḻidhoraṇī vidhūsarāṅghripīṭhabhūḥ ❘  
+bhujaṅgarājamālayā nibaddhajāṭajūṭaka  
+śriyai chirāya jāyatāṃ chakorabandhuśekharaḥ 
+‖ 5 ‖
+
+lalāṭachatvarajvaladdhanañjayasphuliṅgabhā-  
+-nipītapañchasāyakaṃ namannilimpanāyakam ❘  
+sudhāmayūkhalekhayā virājamānaśekharaṃ  
+mahākapālisampadeśirojaṭālamastu naḥ 
+‖ 6 ‖
+
+karālaphālapaṭṭikādhagaddhagaddhagajjvala-  
+ddhanañjayādharīkṛtaprachaṇḍapañchasāyake ❘  
+dharādharendranandinīkuchāgrachitrapatraka-  
+-prakalpanaikaśilpini trilochane matirmama 
+‖ 7 ‖
+
+navīnameghamaṇḍalī niruddhadurdharasphurat-  
+kuhūniśīthinītamaḥ prabandhabandhukandharaḥ ❘  
+nilimpanirjharīdharastanotu kṛttisindhuraḥ  
+kaḻānidhānabandhuraḥ śriyaṃ jagaddhurandharaḥ 
+‖ 8 ‖
+
+praphullanīlapaṅkajaprapañchakālimaprabhā-  
+-vilambikaṇṭhakandalīruchiprabaddhakandharam ❘  
+smarachChidaṃ purachChidaṃ bhavachChidaṃ makhachChidaṃ  
+gajachChidāndhakachChidaṃ tamantakachChidaṃ bhaje 
+‖ 9 ‖
+
+agarvasarvamaṅgaḻākaḻākadambamañjarī  
+rasapravāhamādhurī vijṛmbhaṇāmadhuvratam ❘  
+smarāntakaṃ purāntakaṃ bhavāntakaṃ makhāntakaṃ  
+gajāntakāndhakāntakaṃ tamantakāntakaṃ bhaje 
+‖ 10 ‖
+
+jayatvadabhravibhramabhramadbhujaṅgamaśvasa-  
+-dvinirgamatkramasphuratkarālaphālahavyavāṭ ❘  
+dhimiddhimiddhimidhvananmṛdaṅgatuṅgamaṅgaḻa  
+dhvanikramapravartita prachaṇḍatāṇḍavaḥ śivaḥ 
+‖ 11 ‖
+
+dṛśhadvichitratalpayorbhujaṅgamauktikasrajor-  
+-gariśhṭharatnalośhṭhayoḥ suhṛdvipakśhapakśhayoḥ ❘  
+tṛśhṇāravindachakśhuśhoḥ prajāmahīmahendrayoḥ  
+samaṃ pravartayanmanaḥ kadā sadāśivaṃ bhaje 
+‖ 12 ‖
+
+kadā nilimpanirjharīnikuñjakoṭare vasan  
+vimuktadurmatiḥ sadā śiraḥsthamañjaliṃ vahan ❘  
+vimuktalolalochano lalāṭaphālalagnakaḥ  
+śiveti mantramuchcharan sadā sukhī bhavāmyaham 
+‖ 13 ‖
+
+imaṃ hi nityamevamuktamuttamottamaṃ stavaṃ  
+paṭhansmaranbruvannaro viśuddhimetisantatam ❘  
+hare gurau subhaktimāśu yāti nānyathā gatiṃ  
+vimohanaṃ hi dehināṃ suśaṅkarasya chintanam 
+‖ 14 ‖
+
+pūjāvasānasamaye daśavaktragītaṃ yaḥ  
+śambhupūjanaparaṃ paṭhati pradośhe ❘  
+tasya sthirāṃ rathagajendraturaṅgayuktāṃ  
+lakśhmīṃ sadaiva sumukhiṃ pradadāti śambhuḥ 
+‖ 15 ‖
+
+### PlainEnglish
+
+#### shiva taaMDava stotram
+
+jaTaaTaveegalajjalapravaahapaavitasthale  
+galevalaMbya laMbitaaM bhujaMgatuMgamaalikaam ❘  
+DamaDDamaDDamaDDamanninaadavaDDamarvayaM  
+chakaara chaMDataaMDavaM tanotu naH shivaH shivam 
+‖ 1 ‖
+
+jaTaakaTaahasaMbhramabhramanniliMpanirjharee-  
+-vilolaveechivallareeviraajamaanamoordhani ❘  
+dhagaddhagaddhagajjvalallalaaTapaTTapaavake  
+kishorachaMdrashekhare ratiH pratikshhaNaM mama 
+‖ 2 ‖
+
+dharaadhareMdranaMdineevilaasabaMdhubaMdhura  
+sphuraddigaMtasaMtatipramodamaanamaanase ❘  
+kRRipaakaTaakshhadhoraNeeniruddhadurdharaapadi  
+kvachiddigaMbare mano vinodametu vastuni 
+‖ 3 ‖
+
+jaTaabhujaMgapiMgaLasphuratphaNaamaNiprabhaa  
+kadaMbakuMkumadravapraliptadigvadhoomukhe ❘  
+madaaMdhasiMdhurasphurattvaguttareeyamedure  
+mano vinodamadbhutaM bibhartu bhootabhartari 
+‖ 4 ‖
+
+sahasralochanaprabhRRityasheshhalekhashekhara  
+prasoonadhooLidhoraNee vidhoosaraaMghripeeThabhooH ❘  
+bhujaMgaraajamaalayaa nibaddhajaaTajooTaka  
+shriyai chiraaya jaayataaM chakorabaMdhushekharaH 
+‖ 5 ‖
+
+lalaaTachatvarajvaladdhanaMjayasphuliMgabhaa-  
+-nipeetapaMchasaayakaM namanniliMpanaayakam ❘  
+sudhaamayookhalekhayaa viraajamaanashekharaM  
+mahaakapaalisaMpadeshirojaTaalamastu naH 
+‖ 6 ‖
+
+karaalaphaalapaTTikaadhagaddhagaddhagajjvala-  
+ddhanaMjayaadhareekRRitaprachaMDapaMchasaayake ❘  
+dharaadhareMdranaMdineekuchaagrachitrapatraka-  
+-prakalpanaikashilpini trilochane matirmama 
+‖ 7 ‖
+
+naveenameghamaMDalee niruddhadurdharasphurat-  
+kuhoonisheethineetamaH prabaMdhabaMdhukaMdharaH ❘  
+niliMpanirjhareedharastanotu kRRittisiMdhuraH  
+kaLaanidhaanabaMdhuraH shriyaM jagaddhuraMdharaH 
+‖ 8 ‖
+
+praphullaneelapaMkajaprapaMchakaalimaprabhaa-  
+-vilaMbikaMThakaMdaleeruchiprabaddhakaMdharam ❘  
+smarachChidaM purachChidaM bhavachChidaM makhachChidaM  
+gajachChidaaMdhakachChidaM tamaMtakachChidaM bhaje 
+‖ 9 ‖
+
+agarvasarvamaMgaLaakaLaakadaMbamaMjaree  
+rasapravaahamaadhuree vijRRiMbhaNaamadhuvratam ❘  
+smaraaMtakaM puraaMtakaM bhavaaMtakaM makhaaMtakaM  
+gajaaMtakaaMdhakaaMtakaM tamaMtakaaMtakaM bhaje 
+‖ 10 ‖
+
+jayatvadabhravibhramabhramadbhujaMgamashvasa-  
+-dvinirgamatkramasphuratkaraalaphaalahavyavaaT ❘  
+dhimiddhimiddhimidhvananmRRidaMgatuMgamaMgaLa  
+dhvanikramapravartita prachaMDataaMDavaH shivaH 
+‖ 11 ‖
+
+dRRishhadvichitratalpayorbhujaMgamauktikasrajor-  
+-garishhTharatnaloshhThayoH suhRRidvipakshhapakshhayoH ❘  
+tRRishhNaaraviMdachakshhushhoH prajaamaheemaheMdrayoH  
+samaM pravartayanmanaH kadaa sadaashivaM bhaje 
+‖ 12 ‖
+
+kadaa niliMpanirjhareenikuMjakoTare vasan  
+vimuktadurmatiH sadaa shiraHsthamaMjaliM vahan ❘  
+vimuktalolalochano lalaaTaphaalalagnakaH  
+shiveti maMtramuchcharan sadaa sukhee bhavaamyaham 
+‖ 13 ‖
+
+imaM hi nityamevamuktamuttamottamaM stavaM  
+paThansmaranbruvannaro vishuddhimetisaMtatam ❘  
+hare gurau subhaktimaashu yaati naanyathaa gatiM  
+vimohanaM hi dehinaaM sushaMkarasya chiMtanam 
+‖ 14 ‖
+
+poojaavasaanasamaye dashavaktrageetaM yaH  
+shaMbhupoojanaparaM paThati pradoshhe ❘  
+tasya sthiraaM rathagajeMdraturaMgayuktaaM  
+lakshhmeeM sadaiva sumukhiM pradadaati shaMbhuH 
+‖ 15 ‖
+

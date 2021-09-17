@@ -744,3 +744,117 @@ kshhamasva tvaM kshhamasva tvaM sheshhashaila shikhaamaNe ‖
 అజ్ఞానినా మయా దోషా న శేషాన్విహితాన్ హరే ❘  
 క్షమస్వ త్వం క్షమస్వ త్వం శేషశైల శిఖామణే ‖  
 
+### English
+
+#### śrī veṅkaṭeśvara stotram
+
+kamalākucha chūchuka kuṅkamato  
+niyatāruṇi tātula nīlatano ❘  
+kamalāyata lochana lokapate  
+vijayībhava veṅkaṭa śailapate ‖
+
+sachaturmukha śhaṇmukha pañchamukhe  
+pramukhā khiladaivata mauḻimaṇe ❘  
+śaraṇāgata vatsala sāranidhe  
+paripālaya māṃ vṛśha śailapate ‖
+
+ativelatayā tava durviśhahai  
+ranu velakṛtai raparādhaśataiḥ ❘  
+bharitaṃ tvaritaṃ vṛśha śailapate  
+parayā kṛpayā paripāhi hare ‖
+
+adhi veṅkaṭa śaila mudāramate-  
+rjanatābhi matādhika dānaratāt ❘  
+paradevatayā gaditānigamaiḥ  
+kamalādayitānna paraṅkalaye ‖
+
+kala veṇura vāvaśa gopavadhū  
+śata koṭi vṛtātsmara koṭi samāt ❘  
+prati pallavikābhi matāt-sukhadāt  
+vasudeva sutānna paraṅkalaye ‖
+
+abhirāma guṇākara dāśaradhe  
+jagadeka dhanurthara dhīramate ❘  
+raghunāyaka rāma rameśa vibho  
+varado bhava deva dayā jaladhe ‖
+
+avanī tanayā kamanīya karaṃ  
+rajanīkara chāru mukhāmburuham ❘  
+rajanīchara rājata momi hiraṃ  
+mahanīya mahaṃ raghurāmamaye ‖
+
+sumukhaṃ suhṛdaṃ sulabhaṃ sukhadaṃ  
+svanujaṃ cha sukāyama moghaśaram ❘  
+apahāya raghūdvaya manyamahaṃ  
+na kathañchana kañchana jātubhaje ‖
+
+vinā veṅkaṭeśaṃ na nātho na nāthaḥ  
+sadā veṅkaṭeśaṃ smarāmi smarāmi ❘  
+hare veṅkaṭeśa prasīda prasīda  
+priyaṃ veṅkaṭeśa prayacCha prayacCha ‖
+
+ahaṃ dūradaste padāṃ bhojayugma  
+praṇāmecChayā gatya sevāṃ karomi ❘  
+sakṛtsevayā nitya sevāphalaṃ tvaṃ  
+prayacCha payacCha prabho veṅkaṭeśa ‖
+
+aGYāninā mayā dośhā na śeśhānvihitān hare ❘  
+kśhamasva tvaṃ kśhamasva tvaṃ śeśhaśaila śikhāmaṇe ‖
+
+### PlainEnglish
+
+#### shree veMkaTeshvara stotram
+
+kamalaakucha choochuka kuMkamato  
+niyataaruNi taatula neelatano ❘  
+kamalaayata lochana lokapate  
+vijayeebhava veMkaTa shailapate ‖
+
+sachaturmukha shhaNmukha paMchamukhe  
+pramukhaa khiladaivata mauLimaNe ❘  
+sharaNaagata vatsala saaranidhe  
+paripaalaya maaM vRRishha shailapate ‖
+
+ativelatayaa tava durvishhahai  
+ranu velakRRitai raparaadhashataiH ❘  
+bharitaM tvaritaM vRRishha shailapate  
+parayaa kRRipayaa paripaahi hare ‖
+
+adhi veMkaTa shaila mudaaramate-  
+rjanataabhi mataadhika daanarataat ❘  
+paradevatayaa gaditaanigamaiH  
+kamalaadayitaanna paraMkalaye ‖
+
+kala veNura vaavasha gopavadhoo  
+shata koTi vRRitaatsmara koTi samaat ❘  
+prati pallavikaabhi mataat-sukhadaat  
+vasudeva sutaanna paraMkalaye ‖
+
+abhiraama guNaakara daasharadhe  
+jagadeka dhanurthara dheeramate ❘  
+raghunaayaka raama ramesha vibho  
+varado bhava deva dayaa jaladhe ‖
+
+avanee tanayaa kamaneeya karaM  
+rajaneekara chaaru mukhaaMburuham ❘  
+rajaneechara raajata momi hiraM  
+mahaneeya mahaM raghuraamamaye ‖
+
+sumukhaM suhRRidaM sulabhaM sukhadaM  
+svanujaM cha sukaayama moghasharam ❘  
+apahaaya raghoodvaya manyamahaM  
+na kathaMchana kaMchana jaatubhaje ‖
+
+vinaa veMkaTeshaM na naatho na naathaH  
+sadaa veMkaTeshaM smaraami smaraami ❘  
+hare veMkaTesha praseeda praseeda  
+priyaM veMkaT.esha prayacCha prayacCha ‖
+
+ahaM dooradaste padaaM bhojayugma  
+praNaamecChayaa gatya sevaaM karomi ❘  
+sakRRitsevayaa nitya sevaaphalaM tvaM  
+prayacCha payacCha prabho veMkaTesha ‖
+
+agnyaaninaa mayaa doshhaa na sheshhaanvihitaan hare ❘  
+kshhamasva tvaM kshhamasva tvaM sheshhashaila shikhaamaNe ‖
+

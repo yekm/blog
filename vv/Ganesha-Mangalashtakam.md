@@ -616,3 +616,87 @@ Would definitely get one all that one wants.
 ‖ ఇతి శ్రీ గణేశ మంగళాష్టకమ్ ‖  
 
 
+### English
+
+#### gaṇeśa maṅgaḻāśhṭakam
+
+gajānanāya gāṅgeyasahajāya sadātmane ❘  
+gaurīpriya tanūjāya gaṇeśāyāstu maṅgaḻam 
+‖ 1 ‖
+
+nāgayaGYopavīdāya natavighnavināśine ❘  
+nandyādi gaṇanāthāya nāyakāyāstu maṅgaḻam 
+‖ 2 ‖
+
+ibhavaktrāya cendrādi vanditāya cidātmane ❘  
+īśānapremapātrāya nāyakāyāstu maṅgaḻam 
+‖ 3 ‖
+
+sumukhāya suśuṇḍāgrāt-kśhiptāmṛtaghaṭāya ca ❘  
+surabṛnda niśhevyāya ceśhṭadāyāstu maṅgaḻam 
+‖ 4 ‖
+
+caturbhujāya candrārdhavilasanmastakāya ca ❘  
+caraṇāvanatānantatāraṇāyāstu maṅgaḻam 
+‖ 5 ‖
+
+vakratuṇḍāya vaṭave vanyāya varadāya ca ❘  
+virūpākśha sutāyāstu maṅgaḻam 
+‖ 6 ‖
+
+pramodamodarūpāya siddhiviGYānarūpiṇe ❘  
+prakṛśhṭā pāpanāśāya phaladāyāstu maṅgaḻam 
+‖ 7 ‖
+
+maṅgaḻaṃ gaṇanāthāya maṅgaḻaṃ harasūnane ❘  
+maṅgaḻaṃ vighnarājāya vighahartrestu maṅgaḻaṃ 
+‖ 8 ‖
+
+ślokāśhṭakamidaṃ puṇyaṃ maṅgaḻaprada mādarāt ❘  
+paṭhitavyaṃ prayatnena sarvavighnanivṛttaye ‖
+
+
+‖ iti śrī gaṇeśa maṅgaḻāśhṭakam ‖
+
+### PlainEnglish
+
+#### gaNesha maMgaLaashhTakam
+
+gajaananaaya gaaMgeyasahajaaya sadaatmane ❘  
+gaureepriya tanoojaaya gaNeshaayaastu maMgaLam 
+‖ 1 ‖
+
+naagayagnyopaveedaaya natavighnavinaashine ❘  
+naMdyaadi gaNanaathaaya naayakaayaastu maMgaLam 
+‖ 2 ‖
+
+ibhavaktraaya ceMdraadi vaMditaaya cidaatmane ❘  
+eeshaanapremapaatraaya naayakaayaastu maMgaLam 
+‖ 3 ‖
+
+sumukhaaya sushuMDaagraat-kshhiptaamRRitaghaTaaya ca ❘  
+surabRRiMda nishhevyaaya ceshhTadaayaastu maMgaLam 
+‖ 4 ‖
+
+caturbhujaaya caMdraardhavilasanmastakaaya ca ❘  
+caraNaavanataanaMtataaraNaayaastu maMgaLam 
+‖ 5 ‖
+
+vakratuMDaaya vaTave vanyaaya varadaaya ca ❘  
+viroopaakshha sutaayaastu maMgaLam 
+‖ 6 ‖
+
+pramodamodaroopaaya siddhivignyaanaroopiNe ❘  
+prakRRishhTaa paapanaashaaya phaladaayaastu maMgaLam 
+‖ 7 ‖
+
+maMgaLaM gaNanaathaaya maMgaLaM harasoonane ❘  
+maMgaLaM vighnaraajaaya vighahartrestu maMgaLaM 
+‖ 8 ‖
+
+shlokaashhTakamidaM puNyaM maMgaLaprada maadaraat ❘  
+paThitavyaM prayatnena sarvavighnanivRRittaye ‖
+
+
+‖ iti shree gaNesha maMgaLaashhTakam ‖
+

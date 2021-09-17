@@ -341,3 +341,49 @@ veMkaTeshuDaa r.eppalu vichchi choochi levayyaa ‖
 
 
 
+### English
+
+#### annamayya kīrtana vinnapālu vinavale
+
+rāgaṃ: bhūpāḻaṃ  
+vinnapālu vinavale vinta vintalu ❘  
+pannagapu domatera paikettavelayyā ‖
+
+tellavāre jāmekke devatalu munulu ❘  
+allanalla nantaninta nadigovāre ❘  
+challani tammirekulu sārasapu gannulu ❘  
+mellamellane vichchi melukonavelayyā ‖
+
+garuḍa kinnarayakśha kāminulu gamulai ❘  
+virahapu gītamula vintālāpāla ❘  
+pariparividhamula bāḍeruninnadivo ❘  
+sirimogamu derachi chittagiñchavelayyā ‖
+
+poṅkapu śeśhādulu tumburunāradādulu ❘  
+paṅkajabhavādulu nī pādālu cheri ❘  
+aṅkelanunnāru lechi alamelumaṅganu ❘  
+veṅkaṭeśuḍā reppalu vichchi chūchi levayyā ‖
+
+### PlainEnglish
+
+#### annamayya keertana vinnapaalu vinaval.e
+
+raagaM: bhoopaaLaM  
+vinnapaalu vinaval.e viMta viMtalu ❘  
+pannagapu domat.era paik.ettavelayyaa ‖
+
+t.ellavaar.e jaam.ekk.e devatalu munulu ❘  
+allanalla naMtaniMta nadigovaare ❘  
+challani tammirekulu saarasapu gannulu ❘  
+m.ellam.ellan.e vichchi meluk.onavelayyaa ‖
+
+garuDa kinnarayakshha kaaminulu gamulai ❘  
+virahapu geetamula viMtaalaapaala ❘  
+pariparividhamula baaDeruninnadivo ❘  
+sirim.ogamu d.erachi chittagiMchavelayyaa ‖
+
+p.oMkapu sheshhaadulu tuMburunaaradaadulu ❘  
+paMkajabhavaadulu nee paadaalu cheri ❘  
+aMk.elanunnaaru lechi alamelumaMganu ❘  
+veMkaTeshuDaa r.eppalu vichchi choochi levayyaa ‖
+

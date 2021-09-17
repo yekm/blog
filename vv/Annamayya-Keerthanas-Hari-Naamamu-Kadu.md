@@ -302,3 +302,47 @@ taDavavo taDavavo taDavavo manasaa ‖
 తడవవో తడవవో తడవవో మనసా ‖  
 
 
+### English
+
+#### annamayya kīrtana hari nāmamu kaḍu
+
+harināmamu kaḍu nānandakaramu   
+marugavo marugavo marugavo manasā ‖
+
+naḻinākśhu śrīnāmamu   
+kalidośhaharamu kaivalyamu ❘  
+phalasāramu bahubandha mochanamu   
+talachavo talachavo manasā ‖
+
+nagadharu nāmamu narakaharaṇamu   
+jagadekahitamu sammatamu ❘  
+saguṇa nirguṇamu sākśhātkāramu   
+pogaḍavo pogaḍavo pogaḍavo manasā ‖
+
+kaḍagi śrīveṅkaṭapati nāmamu   
+oḍi oḍine sampatkaramu ❘  
+aḍiyālaṃ bila nati sukhamūlamu   
+taḍavavo taḍavavo taḍavavo manasā ‖
+
+### PlainEnglish
+
+#### annamayya keertana hari naamamu kaDu
+
+harinaamamu kaDu naanaMdakaramu   
+marugavo marugavo marugavo manasaa ‖
+
+naLinaakshhu shreenaamamu   
+kalidoshhaharamu kaivalyamu ❘  
+phalasaaramu bahubaMdha mochanamu   
+talachavo talachavo manasaa ‖
+
+nagadharu naamamu narakaharaNamu   
+jagadekahitamu sammatamu ❘  
+saguNa nirguNamu saakshhaatkaaramu   
+p.ogaDavo p.ogaDavo p.ogaDavo manasaa ‖
+
+kaDagi shreeveMkaTapati naamamu   
+.oDi .oDine saMpatkaramu ❘  
+aDiyaalaM bila nati sukhamoolamu   
+taDavavo taDavavo taDavavo manasaa ‖
+

@@ -1407,3 +1407,255 @@ anaMtaakhya sute tubhyaM chaamooMDaayai sumaMgaLaM‖
 
 ‖ఇతి శ్రీ చాముండేశ్వరీ మంగళం సంపూర్ణం‖  
 
+### English
+
+#### devī mahātmyam chāmunḍeśvarī maṅgaḻam
+
+śrī śailarāja tanaye chaṇḍa muṇḍa niśhūdinī  
+mṛgendra vāhane tubhyaṃ chāmuṇḍāyai sumaṅgaḻaṃ|1❘  
+pañcha viṃśati sālāḍya śrī chakrapua nivāsinī  
+bindupīṭha sthite tubhyaṃ chāmuṇḍāyai sumaṅgaḻaṃ
+‖2‖
+
+rāja rājeśvarī śrīmad kāmeśvara kuṭumbinīṃ  
+yuga nādha tate tubhyaṃ chāmuṇḍāyai sumaṅgaḻaṃ
+‖3‖
+
+mahākāḻī mahālakśhmī mahāvāṇī manonmaṇī  
+yoganidrātmake tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ
+‖4‖
+
+matrinī daṇḍinī mukhya yoginī gaṇa sevite❘  
+bhaṇḍa daitya hare tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ
+‖5‖
+
+niśumbha mahiśhā śumbhe raktabījādi mardinī  
+mahāmāye śivetubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ‖
+
+kāḻa rātri mahādurge nārāyaṇa sahodarī  
+vindhya vāsinī tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ‖
+
+chandra lekhā lasatpāle śrī madsiṃhāsaneśvarī  
+kāmeśvarī namastubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ‖
+
+prapañcha sṛśhṭi rakśhādi pañcha kārya dhrandhare  
+pañchapretāsane tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ‖
+
+madhukaiṭabha saṃhatrīṃ kadambavana vāsinī  
+mahendra varade tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ‖
+
+nigamāgama saṃvedye śrī devī lalitāmbike  
+oḍyāṇa pīṭhagade tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ
+‖12‖
+
+puṇdeśhu khaṇḍa daṇḍa puśhpa kaṇṭha lasatkare  
+sadāśiva kale tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ
+‖12‖
+
+kāmeśa bhakta māṅgalya śrīmad tripura sundarī❘  
+sūryāgnindu trilochanī tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ
+‖13‖
+
+chidagni kuṇḍa sambhūte mūla prakṛti svarūpiṇī  
+kandarpa dīpake tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ
+‖14‖
+
+mahā padmāṭavī madhye sadānanda dvihāriṇī  
+pāsāṅkuśa dhare tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ
+‖15‖
+
+sarvamantrātmike prāGYe sarva yantra svarūpiṇī  
+sarvatantrātmike tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ
+‖16‖
+
+sarva prāṇi sute vāse sarva śakti svarūpiṇī  
+sarvā bhiśhṭa prade tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ
+‖17‖
+
+vedamāta mahārāGYī lakśhmī vāṇī vaśapriye  
+trailokya vandite tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ
+‖18‖
+
+brahmopendra surendrādi sampūjita padāmbuje  
+sarvāyudha kare tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ
+‖19‖
+
+mahāvidhyā sampradāyai savidhyenija vaibahve❘  
+sarva mudrā kare tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ
+‖20‖
+
+eka pañchāśate pīṭhe nivāsātma vilāsinī  
+apāra mahime tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ
+‖21‖
+
+tejo mayīdayāpūrṇe sacchidānanda rūpiṇī  
+sarva varṇātmike tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ
+‖22‖
+
+haṃsārūḍhe chatuvaktre brāhmī rūpa samanvite  
+dhūmrākśhas hantrike tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ
+‖23‖
+
+māhesvarī svarūpayai pañchāsyai vṛśhabhavāhane❘  
+sugrīva pañchike tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ
+‖24‖
+
+mayūra vāhe śhṭ vaktre koumarī rūpa śobhite  
+śakti yukta kare tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ‖
+
+pakśhirāja samārūḍhe śaṅkha chakra lasatkare❘  
+vaiśhnavī saṃGYike tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ‖
+
+vārāhī mahiśhārūḍhe ghora rūpa samanvite  
+daṃśhtrāyudha dhare tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ‖
+
+gajendra vāhanā ruḍhe indrāṇī rūpa vāsure  
+vajrāyudha kare tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ‖
+
+chaturbhuje siṃha vāhe jatā maṇḍila maṇḍite  
+chaṇḍike śubhage tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ‖
+
+daṃśṭrā karāla vadane siṃha vaktre chaturbhuje  
+nārasiṃhī sadā tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ‖
+
+jvala jihvā karālāsye chaṇḍakopa samanvite  
+jvālā mālinī tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ‖
+
+bhṛgiṇe darśitātmīya prabhāve paramesvarī  
+nana rūpa dhare tubhya chāmūṇḍāyai sumaṅgaḻaṃ‖
+
+gaṇeśa skanda jananī mātaṅgī bhuvaneśvarī  
+bhadrakāḻī sadā tubyaṃ chāmūṇḍāyai sumaṅgaḻaṃ‖
+
+agastyāya hayagrīva prakaṭī kṛta vaibhave  
+anantākhya sute tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ‖
+
+
+‖iti śrī chāmuṇḍeśvarī maṅgaḻaṃ sampūrṇaṃ‖
+
+### PlainEnglish
+
+#### devee mahaatmyam chaamunDeshvaree maMgaLam
+
+shree shailaraaja tanaye chaMDa muMDa nishhoodinee  
+mRRigeMdra vaahane tubhyaM chaamuMDaayai sumaMgaLaM|1❘  
+paMcha viMshati saalaaDya shree chakrapua nivaasinee  
+biMdupeeTha sthit.e tubhyaM chaamuMDaayai sumaMgaLaM
+‖2‖
+
+raaja raajeshvaree shreemad kaameshvara kuTuMbineeM  
+yuga naadha tate tubhyaM chaamuMDaayai sumaMgaLaM
+‖3‖
+
+mahaakaaLee mahaalakshhmee mahaavaaNee manonmaNee  
+yoganidraatmake tubhyaM chaamooMDaayai sumaMgaLaM
+‖4‖
+
+matrinee daMDinee mukhya yoginee gaNa sevite❘  
+bhaNDa daitya hare tubhyaM chaamooMDaayai sumaMgaLaM
+‖5‖
+
+nishuMbha mahishhaa shuMbhe raktabeejaadi mardinee  
+mahaamaaye shivetubhyaM chaamooMDaayai sumaMgaLaM‖
+
+kaaLa raatri mahaadurge naaraayaNa sahodaree  
+viMdhya vaasinee tubhyaM chaamooMDaayai sumaMgaLaM‖
+
+chaMdra lekhaa lasatpaale shree madsiMhaasaneshvaree  
+kaameshvaree namastubhyaM chaamooMDaayai sumaMgaLaM‖
+
+prapaMcha sRRishhTi rakshhaadi paMcha kaarya dhraMdhare  
+paMchapretaasane tubhyaM chaamooMDaayai sumaMgaLaM‖
+
+madhukaiTabha saMhatreeM kadaMbavana vaasinee  
+maheMdra varade tubhyaM chaamooMDaayai sumaMgaLaM‖
+
+nigamaagama saMvedye shree devee lalitaaMbike  
+oDyaaNa peeThagade tubhyaM chaamooMDaayai sumaMgaLaM
+‖12‖
+
+puNdeshhu khaMDa daNDa pushhpa kaNTha lasatkare  
+sadaashiva kale tubhyaM chaamooMDaayai sumaMgaLaM
+‖12‖
+
+kaamesha bhakta maaMgalya shreemad tripura suMdaree❘  
+sooryaagniMdu trilochanee tubhyaM chaamooMDaayai sumaMgaLaM
+‖13‖
+
+chidagni kuNDa saMbhoote moola prakRRiti svaroopiNee  
+kaMdarpa deepake tubhyaM chaamooMDaayai sumaMgaLaM
+‖14‖
+
+mahaa padmaaTavee madhye sadaanaMda dvihaariNee  
+paasaaMkusha dhare tubhyaM chaamooMDaayai sumaMgaLaM
+‖15‖
+
+sarvamaMtraatmike praagnye sarva yaMtra svaroopiNee  
+sarvataMtraatmike tubhyaM chaamooMDaayai sumaMgaLaM
+‖16‖
+
+sarva praaNi sute vaase sarva shakti svaroopiNee  
+sarvaa bhishhTa prade tubhyaM chaamooMDaayai sumaMgaLaM
+‖17‖
+
+vedamaata mahaaraagnyee lakshhmee vaaNee vashapriye  
+trailokya vandite tubhyaM chaamooMDaayai sumaMgaLaM
+‖18‖
+
+brahmopeMdra sureMdraadi saMpoojita padaaMbuje  
+sarvaayudha kare tubhyaM chaamooMDaayai sumaMgaLaM
+‖19‖
+
+mahaavidhyaa saMpradaayai savidhyenija vaibahve❘  
+sarva mudraa kare tubhyaM chaamooMDaayai sumaMgaLaM
+‖20‖
+
+eka paMchaashate peeThe nivaasaatma vilaasinee  
+apaara mahime tubhyaM chaamooMDaayai sumaMgaLaM
+‖21‖
+
+tejo mayeedayaapoorNe sacchidaanaMda roopiNee  
+sarva varNaatmike tubhyaM chaamooMDaayai sumaMgaLaM
+‖22‖
+
+haMsaarooDhe chatuvaktre braahmee roopa samanvite  
+dhoomraakshhas hantrike tubhyaM chaamooMDaayai sumaMgaLaM
+‖23‖
+
+maahesvaree svaroopayai paMchaasyai vRRishhabhavaahane❘  
+sugreeva paMchike tubhyaM chaamooMDaayai sumaMgaLaM
+‖24‖
+
+mayoora vaahe shhT vaktre k.oumaree roopa shobhite  
+shakti yukta kare tubhyaM chaamooMDaayai sumaMgaLaM‖
+
+pakshhiraaja samaarooDhe shaMkha chakra lasatkare❘  
+vaishhnavee saMgnyike tubhyaM chaamooMDaayai sumaMgaLaM‖
+
+vaaraahee mahishhaarooDhe ghora roopa samanvite  
+daMshhtraayudha dhar.e tubhyaM chaamooMDaayai sumaMgaLaM‖
+
+gajeMdra vaahanaa ruDhe iMdraaNee roopa vaasure  
+vajraayudha kar.e tubhyaM chaamooMDaayai sumaMgaLaM‖
+
+chaturbhuj.e siMha vaahe jataa maMDila maMDite  
+chaMDik.e shubhage tubhyaM chaamooMDaayai sumaMgaLaM‖
+
+daMshTraa karaala vadane siMha vaktr.e chaturbhuje  
+naarasiMhee sadaa tubhyaM chaamooMDaayai sumaMgaLaM‖
+
+jvala jihvaa karaalaasye chaMDakopa samanvite  
+jvaalaa maalinee tubhyaM chaamooMDaayai sumaMgaLaM‖
+
+bhRRigiNe darshitaatmeeya prabhaave paramesvaree  
+nana roopa dhare tubhya chaamooMDaayai sumaMgaLaM‖
+
+gaNesha skaMda jananee maataMgee bhuvaneshvaree  
+bhadrakaaLee sadaa tubyaM chaamooMDaayai sumaMgaLaM‖
+
+agastyaaya hayagreeva prakaTee kRRita vaibhave  
+anaMtaakhya sute tubhyaM chaamooMDaayai sumaMgaLaM‖
+
+
+‖iti shree chaamuMDeshvaree maMgaLaM saMpoorNaM‖
+

@@ -289,3 +289,47 @@ cakkagaa nee daasulamu sarvesha anaMta ‖
 యిక్కువ నీ నామములు యివియే నా జపములు  
 చక్కగా నీ దాసులము సర్వేశ అనంత ‖  
 
+### English
+
+#### annamayya kīrtana macca kūrma varāha
+
+macca kūrma varāha manuśhya siṃha vāmanā  
+yicca rāma rāma rāma hita budhdha kalikī ‖
+
+nannugāvu keśava nārāyaṇa mādhava  
+manniñcu govinda viśhṇu madhusūdana ❘  
+vannela trivikrama vāmanā śrīdharā  
+sannutiñce hṛśhikeśa sāraku padmanābha ‖
+
+kaṇṭimi dāmodara saṅkarśhaṇa vāsudeva  
+aṇṭejālu pradyumnuḍā anirudhdhuḍā ❘  
+toṇṭe puruśhottama athokśhajā nārasiṃhamā  
+jaṇṭavāyuku macyuta janārdana ‖
+
+mokkemu vupendra hari mohana śrīkṛśhṇarāya  
+yekkiti śrīveṅkaṭa mindirānātha ❘  
+yikkuva nī nāmamulu yiviye nā japamulu  
+cakkagā nī dāsulamu sarveśa ananta ‖
+
+### PlainEnglish
+
+#### annamayya keertana macca koorma varaaha
+
+macca koorma varaaha manushhya siMha vaamanaa  
+yicca raama raama raama hita budhdha kalikee ‖
+
+nannugaavu keshava naaraayaNa maadhava  
+manniMcu goviMda vishhNu madhusoodana ❘  
+vann.ela trivikrama vaamanaa shreedharaa  
+sannutiMce hRRishhikesha saaraku padmanaabha ‖
+
+kaMTimi daamodara saMkarshhaNa vaasudeva  
+aMTejaalu pradyumnuDaa anirudhdhuDaa ❘  
+t.oMTe purushhottama athokshhajaa naarasiMhamaa  
+jaMTavaayuku macyuta janaardana ‖
+
+m.okkemu vupeMdra hari mohana shreekRRishhNaraaya  
+y.ekkiti shreeveMkaTa miMdiraanaatha ❘  
+yikkuva nee naamamulu yiviye naa japamulu  
+cakkagaa nee daasulamu sarvesha anaMta ‖
+

@@ -6932,3 +6932,1273 @@ dvallabha neeku daasuDanu daasharathee karuNaapayonidhee. ‖ 104 ‖
 
 
 
+### English
+
+#### dāśarathī śatakam
+
+śrī raghurāma chārutula-sītādaḻadhāma śamakśhamādi śṛṃ  
+gāra guṇābhirāma trija-gannuta śaurya ramālalāma du  
+rvāra kabandharākśhasa vi-rāma jagajjana kalmaśhārnavo  
+ttārakanāma! bhadragiri-dāśarathī karuṇāpayonidhī.  
+‖ 1 ‖
+
+rāmaviśāla vikrama parājita bhārgavarāma sadguṇa  
+stoma parāṅganāvimukha suvrata kāma vinīla nīrada  
+śyāma kakutdhsavaṃśa kalaśāmbhudhisoma surāridorbhalo  
+ddhāma virāma bhadragiri - dāśarathī karuṇāpayonidhī.  
+‖ 2 ‖
+
+agaṇita satyabhāśha, śaraṇāgatapośha, dayālasajgharī  
+vigata samastadośha, pṛthivīsuratośha, triloka pūtakṛ  
+dgaga nadhunīmaranda padakañja viśeśha maṇiprabhā dhaga  
+ddhagita vibhūśha bhadragiri dāśarathī karuṇāpayonidhī. 
+‖ 3 ‖
+
+raṅgadarātibhaṅga, khaga rājaturaṅga, vipatparamparo  
+ttuṅga tamaḥpataṅga, pari tośhitaraṅga, dayāntaraṅga sa  
+tsaṅga dharātmajā hṛdaya sārasabhṛṅga niśācharābjamā  
+taṅga, śubhāṅga, bhadragiri dāśarathī karuṇāpayonithī. 
+‖ 4 ‖
+
+śrīda sanandanādi munisevita pāda digantakīrtisaṃ  
+pāda samastabhūta paripāla vinoda viśhāda valli kā  
+chCheda dharādhināthakula sindhusudhāmayapāda nṛttagī  
+tādi vinoda bhadragiri dāśarathī karuṇāpayonidhī. 
+‖ 5 ‖
+
+āryula kella mrokkivina tāṅguḍanai raghunādha bhaṭṭarā  
+rāryula kañjaletti kavi sattamulan vinutiñchi kārya sau  
+karya melarpanokka śatakambona gūrchi rachintuneḍutā  
+tparyamunan grahimpumidi dāśarathī karuṇāpayonidhī. 
+‖ 6 ‖
+
+masakoni reṅgubaṇḍlukunu mauktikamul velavosinaṭludu  
+rvyasanamujendi kāvyamu durātmulakichchitimosa mayye nā  
+rasanakuṃ būtavṛttisuka rambuga jekurunaṭlu vāksudhā  
+rasamuluchilka badyumukha raṅgamunandunaṭimpa vayyasaṃ  
+tasamu jendi bhadragiri dāśarathī karuṇāpayonidhī. 
+‖ 7 ‖
+
+śrīramaṇīyahāra yatasī kusumābhaśarīra, bhakta maṃ  
+dāra, vikāradūra, paratattvavihāra triloka chetano  
+dāra, duranta pātaka vitāna vidūra, kharādi daityakāṃ  
+tāra kuṭhāra bhadragiri dāśarathī karuṇāpayonidhī.  
+‖ 8 ‖
+
+duritalatālavitra, khara dūśhaṇakānanavītihotra, bhū  
+bharaṇakaḻāvichitra, bhava bandhavimochanasūtra, chāruvi  
+sphuradaravindanetra, ghana puṇyacharitra, vinīlabhūrikaṃ  
+dharasamagātra, bhadragiri dāśarathī karuṇāpayonidhī.  
+‖ 9 ‖
+
+kanakaviśālachela bhavakānana śātakuṭhāradhāra sa  
+jjanaparipālaśīla divijastuta sadguṇa kāṇḍakāṇḍa saṃ  
+janita parākramakrama viśārada śārada kandakunda chaṃ  
+dana ghanasāra sārayaśa dāśarathī karuṇāpayonidhī.  
+‖ 10 ‖
+
+śrī raghuvaṃśa toyadhiki śītamayūkhuḍavaina nī pavi  
+trorupadābjamul vikasitotpala champaka vṛttamādhurī  
+pūritavākprasūnamula būjalonarcheda jittagimpumī  
+tārakanāma bhadragiri dāśarathī karuṇāpayonidhī.  
+‖ 11 ‖
+
+gurutaramaina kāvyarasa gumbhanakabbura mandimuśhkarul  
+sarasulamāḍki santasila jūluduroṭuśaśāṅka chandrikāṃ  
+kuramula kindu kāntamaṇi koṭisraviñchina bhaṅgivindhyabhū  
+dharamuna jāRune śilalu dāśarathī karuṇāpayonidhī.  
+‖ 12 ‖
+
+taraṇikuleśa nānuḍula dappulu galgina nīdunāma sa  
+dvirachitamaina kāvyamu pavitramugāde viyannadījalaṃ  
+baraguchuvaṅkayaina malinākṛti bāRina danmahatvamuṃ  
+darame gaṇimpa nevvariki dāśarathī karuṇāpayonidhī.  
+‖ 13 ‖
+
+dāruṇapāta kābdhiki sadā baḍabāgni bhavākulārtivi  
+stāradavānalārchiki sudhārasavṛśhṭi duranta durmatā  
+chārabhayaṅka rāṭaviki jaṇḍakaṭhorakuṭhāradhāra nī  
+tārakanāma mennukona dāśarathī karuṇāpayonidhī.  
+‖ 14 ‖
+
+harunaku navvibhīśhaṇunaka drijakuṃ dirumantra rājamai  
+kariki sahalyakuṃ drupadakanyaku nārtihariñchuchuṭṭamai  
+paraginayaṭṭi nīpatita pāvananāmamu jihvapai niraṃ  
+taramu naṭimpajeyumika dāśarathī karuṇāpayonidhī.  
+‖ 15 ‖
+
+muppuna gālakiṅkarulu muṅgiṭavachchina veḻa, rogamul  
+gopparamainacho gaphamu kuttuka niṇḍinaveḻa, bāndhavul  
+gappinaveḻa, mīsmaraṇa galguno galgado nāṭi kippuḍe  
+tappakachetu mībhajana dāśarathī karuṇāpayonidhī.  
+‖ 16 ‖
+
+paramadayānidhe patitapāvananāma hare yaṭañchu su  
+sdhiramatulai sadābhajana seyu mahātmula pādadhūḻi nā  
+śiramunadāltumīraṭaku jerakuḍañchu yamuṇḍu kiṅkaro  
+tkaramula kāna beṭṭunaṭa dāśarathī karuṇāpayonidhī.  
+‖ 17 ‖
+
+ajunaku taṇḍrivayyu sanakādulakuṃ baratattvamayyusa  
+ddvijamunikoṭikellabara detavayyu dineśavaṃśa bhū  
+bhujulaku meṭivayyubari pūrṇuḍavai veligondupakśhirā  
+ḍdhvajamimu brastutiñchedanu dāśarathī karuṇāpayonidhī.  
+‖ 18 ‖
+
+paṇḍita rakśhakuṃ ḍakhila pāpavimochanu ḍabjasambhavā  
+khaṇḍala pūjituṇḍu daśakaṇṭha viluṇṭhana chaṇḍakāṇḍako  
+daṇḍakaḻā pravīṇuḍavu tāvaka kīrti vadhūṭi kittupū  
+daṇḍalu gāga nā kavita dāśarathī karuṇāpayonidhī.  
+‖ 19 ‖
+
+śrīrama sītagāga nijasevaka bṛndamu vīravaiśhṇavā  
+chāra javambugāga virajānadi gautamigā vikuṇṭha mu  
+nnārayabhadra śailaśikharāgramugāga vasiñchu chetano  
+ddhārakuḍaina viśhṇuḍavu dāśarathī karuṇāpayonidhī.  
+‖ 20 ‖
+
+kaṇṭi nadītaṭambuboḍagaṇṭini bhadranagādhivāsamun  
+gaṇṭi nilātanūjanuru kārmuka mārgaṇaśaṅkhachakramul  
+gaṇṭini mimmu lakśhmaṇuni gaṇṭi kṛtārdhuḍa naiti no jaga  
+tkaṇṭaka daityanirdhaḻana dāśarathī karuṇāpayonidhī.  
+‖ 21 ‖
+
+halikunakun halāgramuna nardhamu sekurubhaṅgi dappiche  
+nalamaṭa jenduvāniki surāpagalo jala mabbinaṭlu du  
+rmalina manovikāriyagu martyuni nannoḍagūrchi nīpayin  
+dalavu ghaṭimpajesitive dāśarathī karuṇāpayonidhī.  
+‖ 22 ‖
+
+koñjakatarka vādamanu guddaliche baratattvabhūsdhalin  
+rañjiladravvi kaṅgonani rāmanidhānamu neḍu bhaktisi  
+ddhāñjanamanduhastagata mayyebaḻī yanagā madīyahṛ  
+tkañjamunan vasimpumika dāśarathī karuṇāpayonidhī.  
+‖ 23 ‖
+
+rāmuṇḍu ghora pātaka virāmuḍu sadguṇakalpavallikā  
+rāmuḍu śhaḍvikārajaya rāmuḍu sādhujanāvanavrato  
+ddāmuṇḍu rāmuḍe parama daivamu mākani mī yaḍuṅgu geṃ  
+dāmarale bhujiñchedanu dāśarathī karuṇāpayonidhī.  
+‖ 24 ‖
+
+chakkeramānivemudina jālinakaivaḍi mānavādhamul  
+pekkuru okka daivamula vemaRugolchedaraṭla kādayā  
+mrokkinanīku mrokkavale mokśha mosaṅgina nīvayīvaleṃ  
+dakkinamāṭa lemiṭiki dāśarathī karuṇāpayonidhī.  
+‖ 25 ‖
+
+'rā' kaluśhambulella bayalambaḍadrochina 'mā'ka vāṭamai  
+ḍīkoniprovuchunikka manidhīyutulennandadīya varṇamul  
+gaikoni bhakti che nuḍuvaṅgānaru gāka vipatparamparal  
+dākonune jagajjanula dāśarathī karuṇāpayonidhī.  
+‖ 26 ‖
+
+rāmahare kakutdhsakula rāmahare raghurāmarāmaśrī  
+rāmahareyaṭañchu madi rañjila bhekagaḻambulīla nī  
+nāmamu saṃsmariñchina janambu bhavambeḍabāsi tatparaṃ  
+dhāma nivāsulauduraṭa dāśarathī karuṇāpayonidhī.  
+‖ 27 ‖
+
+chakkera lappakun migula javvani keñjigurāku movikiṃ  
+jokkapujuṇṭi teniyaku jokkuluchuṅgana leru gāka ne  
+ḍakkaṭa rāmanāmamadhu rāmṛtamānuṭakaṇṭe saukhyāmā  
+takkinamādhurī mahima dāśarathī karuṇāpayonidhī.  
+‖ 28 ‖
+
+aṇḍajavāha ninnu hṛdayambunanammina vāri pāpamul  
+koṇḍalavaṇṭivaina vesagūli naśimpaka yunne santa tā  
+khaṇḍalavaibhavonnatulu galgakamānune mokśha lakśhmikai  
+daṇḍayosaṅgakunne tuda dāśarathī karuṇāpayonidhī.  
+‖ 29 ‖
+
+chikkanipālapai misimi jendina mīgaḍa pañchadārato  
+mekkinabhaṅgi mīvimala mechakarūpa sudhārasambu nā  
+makkuva paḻlerambuna samāhita dāsyamu neṭido yiṭan  
+dakkenaṭañchu jurredanu dāśarathī karuṇāpayonidhī.  
+‖ 30 ‖
+
+siruliḍasīta pīḍalega jimmuṭakun hanumantuḍārtiso  
+daruḍu sumitrasūti duritambulumānupa rāma nāmamuṃ  
+garuṇadalirpa mānavulagāvaga bannina vajrapañjaro  
+tkaramugadā bhavanmahima dāśarathī karuṇāpayonidhī.  
+‖ 31 ‖
+
+halikuliśāṅkuśadhvaja śarāsana śaṅkharathāṅga kalpako  
+jvalajalajāta rekhalanu sāṃśamulai kanupaṭṭuchunna mī  
+kalitapadāmbuja dvayamu gautamapatni kosaṅginaṭlu nā  
+talapuna jerchikāvagade dāśarathī karuṇāpayonidhī.  
+‖ 32 ‖
+
+jalanidhilonadūRi kula śailamumīṭi dharitrigommunaṃ  
+dalavaḍamāṭirakkasuni yaṅgamugīṭibalīndrunin rasā  
+talamunamāṭi pārdhivaka dambamugūRchina meṭirāma nā  
+talapunanāṭi rāgadave dāśarathī karuṇāpayonidhī.  
+‖ 33 ‖
+
+bhaṇḍana bhīmuḍā rtajana bāndhavuḍujjvala bāṇatūṇako  
+daṇḍakaḻāprachaṇḍa bhuja tāṇḍavakīrtiki rāmamūrtikin  
+reṇḍava sāṭidaivamika leḍanuchun gaḍagaṭṭi bherikā  
+dāṇḍada dāṇḍa dāṇḍa nina dambulajāṇḍamu niṇḍamattave  
+daṇḍamu nekki chāṭedanu dāśarathī karuṇāpayonidhī.  
+‖ 34 ‖
+
+avanija kannudoyi togalandu veliṅgeḍu soma, jānakī  
+kuvalayanetra gabbichanukoṇḍala nuṇḍu ghanamba maidhilī  
+navanava yauvanambanu vanambukun madadanti vīvekā  
+davili bhajintu nellapuḍu dāśarathī karuṇāpayonidhī.  
+‖ 35 ‖
+
+kharakaravaṃśajā vinu mukhaṇḍita bhūtapiśāchaḍhākinī  
+jvara paritāpasarpabhaya vārakamaina bhavatpadābja ni  
+spura duruvajrapañjaramujochchiti, nīyeḍa dīna mānavo  
+dhdhara birudaṅka memaRuku dāśarathī karuṇāpayonidhī.  
+‖ 36 ‖
+
+jurredamīka thāmṛtamu jurredamīpadakañjato yamun  
+jurreda rāmanāmamuna jobbiluchunna sudhārasamba ne  
+jurreda jurrujurruṅga ruchul ganuvāripadambu gūrpave  
+turrulatoḍi pottiḍaka dāśarathī karuṇāpayonidhī.  
+‖ 37 ‖
+
+ghorakṛtānta vīrabhaṭa koṭiki guṇḍedigul daridratā  
+kārapiśācha saṃharaṇa kāryavinodi vikuṇṭha mandira  
+dvāra kavāṭa bhedi nijadāsa janāvaḻikella proddu nī  
+tārakanāma mennukona dāśarathī karuṇāpayonidhī.  
+‖ 38 ‖
+
+vinnapamālakiñchu raghuvīra nahipratilokamandu nā  
+kannadurātmuḍuṃ barama kāruṇikottama velpulandu nī  
+kanna mahātmuḍuṃ batita kalmaśhadūruḍu leḍunākuvi  
+dvannuta nīvenāku gati dāśarathī karuṇāpayonidhī.  
+‖ 39 ‖
+
+pempunandallivai kaluśha bṛndasamāgama mondukuṇḍu ra  
+kśhimpanudaṇḍrivai meyu vasiñchudu śendriya rogamul nivā  
+rimpanu vejjavai kṛpa guRiñchi parambu dirabugāṅga sa  
+tsampadalīya nīvegati dāśarathī karuṇāpayonidhī.  
+‖ 40 ‖
+
+kukśhinajāṇḍapaṃ ktulona gūrchi charācharajantukoṭi saṃ  
+rakśhaṇaseyu taṇḍrivi parampara nī tanayuṇḍanaina nā  
+pakśhamu nīvugāvalade pāpamu lenni yonarchinan jaga  
+drakśhaka kartavīvekada dāśarathī karuṇāpayonidhī.  
+‖ 41 ‖
+
+gaddariyo gihṛtkamala gandhara sānubhavambuñjendu pe  
+nniddavu gaṇḍuṃ deṇṭi tharaṇīsuta kauṅgilipañjarambunan  
+muddulugulku rāchiluka muktinidhānamurāmarāṅgade  
+taddayu neṇḍu nākaḍaku dāśarathī karuṇāpayonidhī.  
+‖ 42 ‖
+
+kaliyuga martyakoṭininu gaṅgona rānividhambo bhaktava  
+tsalatavahimpavo chaṭula sāndravipaddaśa vārdhi gruṅkucho  
+bilichina balka vintamaRapī naruliṭlanarādu gāka nī  
+talapuna lede sīta cheRa dāśarathī karuṇāpayonidhī.  
+‖ 43 ‖
+
+janavara mīka thāli vinasaimpaka karṇamulandu ghaṇṭikā  
+ninada vinodamul sulupunīchunakun varamichchināvu ni  
+nnanayamunammi kolchina mahātmunakemi yosaṅgu dosanaṃ  
+dananuta mākosaṅgumaya dāśarathī karuṇāpayonidhī.  
+‖ 44 ‖
+
+pāpamu londuveḻa raṇapannaga bhūta bhayajvārādulan  
+dāpada nonduveḻa bharatāgraja mimmu bhajiñchuvārikin  
+brāpuga nīvudammu ḍirupakkiyalan jani tadvitti saṃ  
+tāpamu māmpi kāturaṭa dāśarathī karuṇāpayonidhi.  
+‖ 45 ‖
+
+agaṇita janmakarmaduri tāmbudhilo bahuduḥkhavīchikal  
+degipaḍavīḍaleka jagatīdhara nīpadabhakti nāvache  
+dagili tarimpagoriti badampabaḍi nadu bhayambhu māmpave  
+tagadani chittamaṃ diḍaka dāśarathī karuṇāpayonidhī.  
+‖ 46 ‖
+
+nenonariñchu pāpamula nekamulainanu nādujihvakuṃ  
+bānakamayyemīparama pāvananāmamudoṇṭi chilkarā  
+mānanugāvumanna tudi māṭaku sadgati jendegāvunan  
+dāni dharimpagoredanu dāśarathī karuṇāpayonidhī.  
+‖ 47 ‖
+
+paradhanamul hariñchi parabhāmalanaṇṭi parānna mabbinan  
+muripama kānimīndanagu mosameRuṅgadu mānasambu  
+staramadikālakiṅkara gadāhati pālpaḍanīka mammu nedu  
+taRidarijerchi kāchedavo dāśarathī karuṇāpayonidhī.  
+‖ 48 ‖
+
+chesiti ghorakṛtyamulu chesiti bhāgavatāpachāramul  
+chesiti nanyadaivamulaṃ jeri bhajiñchina vāripondu neṃ  
+jesina neramul dalañchi chikkulambeṭṭakumayyayayya nī  
+dāsuṇḍanayya bhadragiri dāśarathī karuṇāpayonidhī.  
+‖ 49 ‖
+
+parula dhanambuñjūchipara bhāmalajūchi harimpagoru ma  
+dgurutaramānasaṃ baneḍu doṅganubaṭṭinirūḍhadāsya vi  
+sphuritaviveka pāśamulaṃ juṭṭi bhavachcharaṇambane maru  
+ttaruvunagaṭṭiveyaga de dāśarathī karuṇāpayonidhī.  
+‖ 50 ‖
+
+salalita rāmanāma japasāra meRuṅganu gāśikāpurī  
+nilayuḍagānumīcharaṇa nīrajareṇu mahāprabhāvamuṃ  
+deliyanahalyagānu jagatīvara nīdagu satyavākyamuṃ  
+dalapaga rāvaṇāsuruni tammuḍagānu bhavadvilāsamul  
+dalachinutimpa nātarame dāśarathī karuṇāpayonidhī.  
+‖ 51 ‖
+
+pātakulaina mīkṛpaku bātrulu kāretalañchichūḍa ja  
+ṭrātikigalge bāvana marātiki rājyasukhambugalge du  
+rjātiki buṇyamabbegapi jātimahattvamunondegāvunaṃ  
+dātava yeṭṭivāralaku dāśarathī karuṇāpayonidhī.  
+‖ 52 ‖
+
+māmaka pātaka vajramu mrāmpanagaṇyamu chitraguptule  
+yemani vrāturo? śamanuḍemi vidhiñchuno? kālakiṅkara  
+stoma monarchiṭemo? vinajoppaḍa dintakamunnedīnachiṃ  
+tāmaṇi yoṭlu gāchedavo dāśarathī karuṇāpayonidhī.  
+‖ 53 ‖
+
+dāsina chuṭṭūmā śabari? dāni dayāmati nelināvu; nī  
+dāsuni dāsuḍā? guhuḍu tāvakadāsya mosaṅgināvu ne  
+jesina pāpamo! vinuti chesinagāvavu gāvumayya! nī  
+dāsulalona nenokaṇḍa dāśarathī karuṇāpayonidhī.  
+‖ 54 ‖
+
+dīkśhavahiñchi nākoladi dīnula nendaRi gāchito jaga  
+drakśhaka tolliyā drupada rājatanūja talañchinantane  
+yakśhayamaina valvaliḍi takkaṭa nāmoRajittagiñchi  
+pratyakśhamu gāvavemiṭiki dāśarathī karuṇāpayonidhī.  
+‖ 55 ‖
+
+nīlaghanābhamūrtivagu ninnu ganuṅgonikori veḍinan  
+jālamusesi ḍāgedavu saṃstuti kekkina rāmanāma me  
+mūlanu dāchukogalavu muktiki brāpadi pāpamūlaku  
+ddālamugāde māyeḍala dāśarathī karuṇāpayonidhī.  
+‖ 56 ‖
+
+valadu parāku bhaktajanavatsala nī charitambu vammugā  
+valadu parāku nībirudu vajramuvaṇṭidi gāna kūrake  
+valadu parāku nādurita vārdhiki deppavugā manambulo  
+dalatumekā nirantaramu dāśarathī karunāpayonidhī.  
+‖ 57 ‖
+
+tappuleRuṅga leka duritambulu sesitinaṇṭi nīvumā  
+yappavugāvu maṇṭi nikananyulakun nuduraṇṭanaṇṭinī  
+koppidamaina dāsajanu loppina baṇṭuku baṭavaṇṭi nā  
+tappula kella nīvegati dāśarathī karuṇāpayonidhī.  
+‖ 58 ‖
+
+itaḍu durātmuḍañchujanu lennaṅga nāRaḍiṅgoṇṭinenepo  
+patituṇḍa naṇṭino patita pāvanamūrtivi nīvugalla ne  
+nitirula veṇḍanaṇṭi niha michchinanimmuparambosaṅgumī  
+yatulita rāmanāma madhu rākśhara pāḻinirantaraṃ bahṛ  
+dgatamani nammikolchedanu dāśarathī karuṇāpayonidhī.  
+‖ 59 ‖
+
+añchitamainanīdu karuṇāmṛtasāramu nādupaini bro  
+kśhiñchina jāludānanira siñchedanāduritambu lelladū  
+liñcheda vairivarga meḍaliñcheda gorkulanīdubaṇṭanai  
+dañcheda, gālakiṅkarula dāśarathī karuṇāpayonidhī.  
+‖ 60 ‖
+
+jalanidhu leḍunokka mogiṃ jakkikidechcheśarambu, Rātiniṃ  
+palaraṅga jesenātigamba dābjaparāgamu, nī charitramuṃ  
+jalajabhavādi nirjarulu sannuti seyaṅga leru gāvunaṃ  
+dalapanagaṇyamayya yidi dāśarathī karuṇāpayonidhī.  
+‖ 61 ‖
+
+kotikiśakyamā yasurakoṭula gelvanu gālchebo nijaṃ  
+bātanimena śītakaruḍauṭa davānalu ḍeṭṭivinta? mā  
+sītapativratā mahimasevaku bhāgyamumīkaṭākśhamu  
+dhātaku śakyamā pogaḍa dāśarathī karuṇāpayonidhī.  
+‖ 62 ‖
+
+bhūpalalāma rāmaraghupuṅgavarāma triloka rājya saṃ  
+sdhāpanarāma mokśhaphala dāyaka rāma madīya pāpamul  
+pāpagadayyarāma ninu brastuti chesedanayyarāma sī  
+tāpatirāma bhadragiri dāsarathī karuṇāpayonidhī.  
+‖ 63 ‖
+
+nīsahajambu sātvikamu nīviḍipaṭṭu sudhāpayodhi, pa  
+dmāsanuḍātmajuṇḍu, gamalālayanī priyurālu nīku siṃ  
+hāsanamiddharitri; goḍugāka samakśhulu chandrabāskarul  
+nīsumatalpamādiphaṇi nīve samastamu golchinaṭṭi nī  
+dāsula bhāgyameṭṭidaya dāśarathī karuṇāpayonidhī.  
+‖ 64 ‖
+
+charaṇamu sokinaṭṭi śilajavvanirūpagu ṭokkavinta, su  
+sdhiramuga nīṭipai girulu delina dokkaṭi vintagāni mī  
+smaraṇa danarchumānavulu sadgati jendina dentavinta? yī  
+dharanu dharātmajāramaṇa dāśarathī karuṇāpayonidhī.  
+‖ 65 ‖
+
+daivamu tallidaṇḍritagu dāta guruṇḍu sakhuṇḍu ninne kā  
+bhāvana seyuchunnataRi pāpamulella manovikāra du  
+rbhāvitujeyuchunnavikṛpāmativainanu kāvumī jaga  
+tpāvanamūrti bhadragiri dāśarathī karuṇāpayonidhī.  
+‖ 66 ‖
+
+vāsava rājyabhoga sukha vārdhini delu prabhutvamabbinā  
+yāsakumera ledu kanakādrisamāna dhanambugūrchinaṃ  
+gāsunu veṇṭarādu kani kānaka chesina puṇyapāpamul  
+vīsarabova nīvu padivelaku jālu bhavambunolla nī  
+dāsunigāga nelukonu dāśarathī karuṇāpayonidhī.  
+‖ 67 ‖
+
+sūrijanul dayāparulu sūnṛtavādu lalubdhamānavul  
+verapatipratāṅganalu viprulu govulu vedamul mahā  
+bhāramudālpagā janulu pāvanamaina paropakāra sa  
+tkāra meRuṅgule rakaṭa dāśarathī karuṇāpayonidhī.  
+‖ 68 ‖
+
+vāricharāvatāramu vāridhilo joRabāRi krodha vi  
+stāraguḍaina yā nigamataskaravīra niśācharendruniṃ  
+jeri vadhiñchi vedamula chikkeḍaliñchi viriñchiki maho  
+dāratanichchitīvegada dāśarathī karuṇāpayonidhī.  
+‖ 69 ‖
+
+karamanura ktimandaramu gavvamugā nahirājudrāḍugā  
+dorakona devadānavulu dugdhapayodhimathiñchuchunnacho  
+dharaṇichalimpalokamulu tallaḍamandaga gūrmamai dharā  
+dharamu dhariñchitīvekada dāśarathī karuṇāpayonidhī.  
+‖ 70 ‖
+
+dhāruṇi jāpajuṭṭina vidhambunagaikoni hemanetruḍa  
+vvāridhilonadāginanu vānivadhiñchi varāhamūrtivai  
+dhāruṇidoṇṭikai vaḍini dakśhiṇaśṛṅgamuna dhariñchi vi  
+stāra monarchitīve kada dāśarathī karuṇāpayonidhī.  
+‖ 71 ‖
+
+peṭapeṭanukku kambamuna bhīkaradanta nakhāntara prabhā  
+paṭalamu gappa nuppatili bhaṇḍanavīdhi nṛsiṃhabhīkara  
+sphuṭapaṭuśakti hemakaśipu vidaḻiñchi surāripaṭṭi naṃ  
+taṭagṛpajūchitīvekada dāśarathī karuṇāpayonidhī.  
+‖ 72 ‖
+
+padayugaḻambu bhūgagana bhāgamula vesanūni vikramā  
+spadamagunabbalīndrunoka pādamunandala krindanottime  
+lodavajagattrayambu buru hūtunikiyyavaṭuṇḍavainachi  
+tsadamalamūrti vīvekada dāśarathī karuṇāpayonidhī.  
+‖ 73 ‖
+
+iruvadiyokkamāRu dharaṇīśula nellavadhiñchi tatkaḻe  
+bara rudhira pravāhamuna baitṛkatarpaṇa moppajesi bhū  
+suravarakoṭiki mudamu soppaḍa bhārgavarāmamūrtivai  
+dharaṇinosaṅgitī vekada dāśarathī karuṇāpayonidhī.  
+‖ 74 ‖
+
+duramuna dāṭakandunimi dhūrjaṭivil dunumāḍisītanuṃ  
+bariṇayamandi taṇḍripanupa ghana kānanabhūmi kegi du  
+starapaṭuchaṇḍa kāṇḍakuliśāhati rāvaṇakumbhakarṇa bhū  
+dharamula gūlchitī vekada dāśarathī karuṇāpayonidhī.  
+‖ 75 ‖
+
+anupamayādavānvayasu dhābdhisudhānidhi kṛśhṇamūrtinī  
+kanujuḍugājaniñchi kujanāvaḻinella naḍañchi rohiṇī  
+tanayuḍanaṅga bāhubala darpamuna balarāma mūrtivai  
+tanarina velpavīvekada dāśarathī karuṇāpayonidhī.  
+‖ 76 ‖
+
+suralunutimpagā dripura sundarula variyimpabuddharū  
+parayaga dālchitīvu tripurāsurakoṭi dahiñchunappuḍā  
+harunakudoḍugā varaśa rāsana bāṇamukho grasādhano  
+tkara monariñchitīvukada dāśarathī karuṇāpayonidhī.  
+‖ 77 ‖
+
+saṅkaradurgamai durita saṅkulamaina jagambujūchi sa  
+rvaṅkaśhalīla nu ttama turaṅgamunekki karāsibūni vī  
+rāṅkavilāsa moppa gali kākṛta sajjanakoṭiki nirā  
+taṅka monarchitīvukada dāśarathī karuṇāpayonidhī.  
+‖ 78 ‖
+
+manamunanūhapośhaṇalu marvakamunne kaphādirogamul  
+danuvunanaṇṭi menibigi dappakamunnenaruṇḍu mokśha sā  
+dhana monarimpaṅgāvalayuṃ dattvavichāramu māniyuṇḍuṭa  
+ltanuvunaku virodhamidi dāśarathī karuṇāpayonidhī.  
+‖ 79 ‖
+
+mudamuna kāṭapaṭṭubhava mohamadva diradāṅkuśambu saṃ  
+padala koṭāru korikala paṇṭa parambuna kādi vairula  
+nnadana jayiñchutrova vipadabdhikināvagadā sadābhava  
+tsadamalanāmasaṃsmaraṇa dāśarathī karuṇāpayonidhī.  
+‖ 80 ‖
+
+durita latānusāra bhaya duḥkha kadambamu rāmanāmabhī  
+karatala heticheṃ degi vakāvakalai chanakuṇḍa nerchune  
+darikoni maṇḍuchuṇḍu śikha dārkonina śalabādikīṭako  
+tkaramu vilīnamaichanave dāśarathī karuṇāpayonidhī.  
+‖ 81 ‖
+
+haripadabhaktinindriyaja yānvituḍuttamuṇḍindrimambulan  
+marugaka nilpanūdinanu madhyamuṇḍindriyapāraśyuḍai  
+paraginacho nikṛśhṭuḍani palkaga durmatinaina nannu nā  
+daramuna neṭlukāchedavo dāśarathī karuṇāpayonidhī.  
+‖ 82 ‖
+
+vanakarichikku mainasaku pāchavikiṃ jeḍipoye mīnutā  
+vinikikiñjikkeñjilvaganu venduRuṃ jendenu lellu tāvilo  
+manikinaśiñche deṭitara māyirumūṇṭini gelvanai dusā  
+dhanamulanī ve kāvanagu dāśarathī karuṇāpayonidhī.  
+‖ 83 ‖
+
+karamulumīkumrokkuliḍa kannulu mimmune chūḍa jihva mī  
+smaraṇadanarpavīnulubha vatkathalan vinuchuṇḍanāsa mī  
+yaRutunu beṭṭupūsarula kāsagonaṃ baramārtha sādhano  
+tkaramidi cheyavekṛpanu dāśarathī karuṇāpayonidhī.  
+‖ 84 ‖
+
+chiratarabhakti nokkatuḻasīdaḻa marpaṇa cheyuvāḍu khe  
+charagaru ḍoraga pramukha saṅghamulo velugan sadhā bhavat  
+suruchira dhīnda pādamula būjalonarchina vārikellada  
+tpara marachetidhātrigada dāśarathī karuṇāpayonidhī.  
+‖ 85 ‖
+
+bhānuḍu tūrpunanduganu puṭṭinaṃ bāvaka chandra tejamul  
+hīnata jendinaṭlu jagadeka virājitamaina nī pada  
+dhyānamu cheyuchunnaṃ bara daivamarīchulaḍaṅgakuṇḍu ne  
+dānava garva nirdaḻana dāśarathī karuṇāpayonidhī.  
+‖ 86 ‖
+
+nīmahanīyatattva rasa nirṇa yabodha kathāmṛtābdhilo  
+dāmunugruṅkulāḍakavṛ thātanukaśhṭamujendi mānavuṃ  
+ḍī mahilokatīrthamula nella muniṅgina durvikāra hṛ  
+tāmasapaṅkamul vidune dāśarathī karuṇāpayonidhī.  
+‖ 87 ‖
+
+nīmahanīyatattva rasa nirṇa yabodha kathāmṛtābdhilo  
+dāmunugruṅkulāḍakavṛ thātanukaśhṭamujendi mānavuṃ  
+ḍī mahilokatīrthamula nella muniṅgina durvikāra hṛ  
+tāmasapaṅkamul vidune dāśarathī karuṇāpayonidhī.  
+‖ 88 ‖
+
+kāñchana vastusaṅkalita kalmaśha magni puṭambu beṭṭevā  
+riñchinarīti nātmanigiḍiñchina duśhkara durmalatrayaṃ  
+bañchita bha ktiyoga daha nārchindagulpaka pāyune kana  
+tkāñchanakuṇḍalābharaṇa dāśarathī karuṇāpayonidhī.  
+‖ 89 ‖
+
+nīsati pekku galmuliḍanerpiri, loka makalmaśhambugā  
+nīsuta seyu pāvanamu nirmita kāryadhurīṇa dakśhuḍai  
+nīsutuḍichchu nāyuvulu ninna bhujiñchinaṃ galgakuṇḍune  
+dāsulakīpsi tārthamula dāśarathī karuṇāpayonidhī.  
+‖ 90 ‖
+
+vārijapatramandiḍina vārividhambuna vartanīyamaṃ  
+dāraya rompilona danu vaṇṭani kummarapurvurīti saṃ  
+sāramuna melaṅguchu vichāraḍaiparamondugādesa  
+tkāra meRiṅgi mānavuḍu dāśarathī karuṇāpayonidhī.  
+‖ 91 ‖
+
+ekkaḍi tallidaṇḍri sutulekkaḍi vāru kaḻatra bāndhavaṃ  
+bekkaḍa jīvuṇḍeṭṭi tanu vettina buṭṭunu bovuchunna vā  
+ḍokkaḍepāpa puṇaya phala mondina nokkaḍe kānarāḍuve  
+Rokkaḍu veṇṭanaṇṭibhava mollanayākṛpa jūḍuvayyanī  
+ṭakkari māyalandiḍaka dāśarathī karuṇā payonidhī.  
+‖ 92 ‖
+
+dorasinakāyamulmudimi tochinañjūchiprabhutvamulsiru  
+lmeRapulugāgajūchimaRi medinilondamatoḍivārumuṃ  
+daruguṭajūchichūchi tegu nāyuveRuṅgaka mohapāśamu  
+ldaruganivārikemigati dāśarathī karuṇāpayonidhī.  
+‖ 93 ‖
+
+sirigalanāṇḍu maimaRachi chikkinanāṇḍudalañchi puṇyamul  
+porimbori seyanaitinani pokkinaṃ galgu negālichichchupaiṃ  
+geralina veḻandappikoni kīḍpaḍu veḻa jalambu gori ta  
+ttaramunaṃ dravvinaṃ galade dāśarathī karuṇāpayonidhī.  
+‖ 94 ‖
+
+jīvanamiṅkaṃ baṅkamuna jikkina mīnu chalimpakentayu  
+dāvunanilchi jīvaname daddayuṃ goruvidhambu choppaḍaṃ  
+dāvalamainaṅgāni guRi tappanivāṇḍu tariñchuvāṇḍayā  
+tāvakabhaktiyo gamuna dāśarathī karuṇāpayonidhī.  
+‖ 95 ‖
+
+sarasunimānasambu sara saGYuḍeruṅgunu muśhkarādhamuṃ  
+ḍeRiṅgigrahiñchuvāḍe kola nekanisamuṃ gāgadurduraṃ  
+barayaṅga nerchuneṭlu vika chābdamaranda rasaika saurabho  
+tkaramumiḻinda mondukriya dāśarathī karuṇāpayonidhī.  
+‖ 96 ‖
+
+noñchinatallidaṇḍrikiṃ danūbhavuṇḍokkaḍechālu meṭiche  
+chāñchanivāḍu veRokaṇḍu chāchina ledana kichchuvāṇḍuno  
+rāñchinijambakāni palu kāḍanivāṇḍu raṇambulona men  
+dāchanivāṇḍu bhadragiri dāśarathī karuṇāpayonidhī.  
+‖ 97 ‖
+
+śrīyutajānakīramaṇa chinnayarūpa rameśarāma nā  
+rāyaṇa pāhipāhiyani brastutiṃ jesiti nāmanambunaṃ  
+bāyaka kilbiśhavraja vi pāṭanamandaṅga jesi satkaḻā  
+dāyi phalambunākiyave dāśarathī karuṇāpayonidhī.  
+‖ 98 ‖
+
+entaṭipuṇyamo śabari yeṅgiligoṇṭivi vintagāde nī  
+mantana meṭṭido yuḍuta mainika rāgra nakhāṅkurambulan  
+santasamandaṃ jesitivi satkulajanmamu lemi lekka ve  
+dāntamugāde nī mahima dāśarathī karuṇāpayonidhī.  
+‖ 99 ‖
+
+boṅkanivāṇḍeyogyuḍari bṛndamu lettina choṭajivvakuṃ  
+jaṅkanivāṇḍejodu rabhasambuna narthi karambusāñchinaṃ  
+goṅkanivāṇḍedāta mimuṃ golchibhajiñchina vāṇḍe ponirā  
+taṅka manaskuṃ ḍenna ganu dāśarathī karuṇāpayonidhī.  
+‖ 100 ‖
+
+bhramaramugīṭakambuṃ goni pālpaḍi jhāṅkaraṇo kāriyai  
+bhramaramugānonarchunani palkuṭaṃ jesi bhavādi duḥkhasaṃ  
+tamasameḍalchi bhaktisahi tambuga jīvuni viśvarūpa ta  
+ttvamunadhariñchu ṭemarudu dāśarathī karuṇāpayonidhī.  
+‖ 101 ‖
+
+taruvulu pūchikāyalagu dakkusumambulu pūjagābhava  
+chcharaṇamu sokidāsulaku sāramulo dhanadhānyarāśulai  
+karibhaṭa ghoṭakāmbara nakāyamulai virajā samu  
+ttaraṇa monarchujitramidi dāśarathī karuṇāpayonidhī.  
+‖ 102 ‖
+
+paṭṭitibhaṭṭarāryaguru pādamulimmeyinūrdhva puṇḍramul  
+veṭṭitimantrarāja moḍi beṭṭiti nayyamakiṅka rālikiṃ  
+gaṭṭitibommamīcharaṇa kañjalanduṃ dalampupeṭṭi bo  
+daṭṭitiṃ bāpapuñjamula dāśarathī karuṇāpayonidhī.  
+‖ 103 ‖
+
+allana liṅgamantri sutuḍatrija gotrajuḍādiśākha kaṃ  
+cherla kulodbavuṃ dambrasiddhiḍanai bhavadaṅkitambugā  
+nellakavul nutimpa rachiyiñchiti gopakavīndruḍan jaga  
+dvallabha nīku dāsuḍanu dāśarathī karuṇāpayonidhī.  
+‖ 104 ‖
+
+### PlainEnglish
+
+#### daasharathee shatakam
+
+shree raghuraama chaarutula-seetaadaLadhaama shamakshhamaadi shRRiM  
+gaara guNaabhiraama trija-gannuta shaurya ramaalalaama du  
+rvaara kabaMdharaakshhasa vi-raama jagajjana kalmashhaarnavo  
+ttaarakanaama! bhadragiri-daasharathee karuNaapayonidhee.  
+‖ 1 ‖
+
+raamavishaala vikrama paraajita bhaargavaraama sadguNa  
+stoma paraaMganaavimukha suvrata kaama vineela neerada  
+shyaama kakutdhsavaMsha kalashaaMbhudhisoma suraaridorbhalo  
+ddhaama viraama bhadragiri - daasharathee karuNaapayonidhee.  
+‖ 2 ‖
+
+agaNita satyabhaashha, sharaNaagataposhha, dayaalasajgharee  
+vigata samastadoshha, pRRithiveesuratoshha, triloka pootakRRi  
+dgaga nadhuneemaraMda padakaMja visheshha maNiprabhaa dhaga  
+ddhagita vibhooshha bhadragiri daasharathee karuNaapayonidhee. 
+‖ 3 ‖
+
+raMgadaraatibhaMga, khaga raajaturaMga, vipatparaMparo  
+ttuMga tamaHpataMga, pari toshhitaraMga, dayaaMtaraMga sa  
+tsaMga dharaatmajaa hRRidaya saarasabhRRiMga nishaacharaabjamaa  
+taMga, shubhaaMga, bhadragiri daasharathee karuNaapayonithee. 
+‖ 4 ‖
+
+shreeda sanaMdanaadi munisevita paada digaMtakeertisaM  
+paada samastabhoota paripaala vinoda vishhaada valli kaa  
+chCheda dharaadhinaathakula siMdhusudhaamayapaada nRRittagee  
+taadi vinoda bhadragiri daasharathee karuNaapayonidhee. 
+‖ 5 ‖
+
+aaryula k.ella mr.okkivina taaMguDanai raghunaadha bhaTTaraa  
+raaryula kaMjal.etti kavi sattamulan vinutiMchi kaarya sau  
+karya m.elarpan.okka shatakaMb.ona goorchi rachiMtuneDutaa  
+tparyamunan grahiMpumidi daasharathee karuNaapayonidhee. 
+‖ 6 ‖
+
+masak.oni reMgubaMDlukunu mauktikamul v.elavosinaTludu  
+rvyasanamuj.eMdi kaavyamu duraatmulakichchitimosa mayy.e naa  
+rasanakuM bootavRRittisuka raMbuga jekurunaTlu vaaksudhaa  
+rasamuluchilka badyumukha raMgamunaMdunaTiMpa vayyasaM  
+tasamu j.eMdi bhadragiri daasharathee karuNaapayonidhee. 
+‖ 7 ‖
+
+shreeramaNeeyahaara yatasee kusumaabhashareera, bhakta maM  
+daara, vikaaradoora, paratattvavihaara triloka chetano  
+daara, duraMta paataka vitaana vidoora, kharaadi daityakaaM  
+taara kuThaara bhadragiri daasharathee karuNaapayonidhee.  
+‖ 8 ‖
+
+duritalataalavitra, khara dooshhaNakaananaveetih.otra, bhoo  
+bharaNakaLaavichitra, bhava baMdhavimochanasootra, chaaruvi  
+sphuradaraviMdanetra, ghana puNyacharitra, vineelabhoorikaM  
+dharasamagaatra, bhadragiri daasharathee karuNaapayonidhee.  
+‖ 9 ‖
+
+kanakavishaalachela bhavakaanana shaatakuThaaradhaara sa  
+jjanaparipaalasheela divijastuta sadguNa kaaMDakaaMDa saM  
+janita paraakramakrama vishaarada shaarada kaMdakuMda chaM  
+dana ghanasaara saarayasha daasharathee karuNaapayonidhee.  
+‖ 10 ‖
+
+shree raghuvaMsha toyadhiki sheetamayookhuDavaina nee pavi  
+trorupadaabjamul vikasitotpala chaMpaka vRRittamaadhuree  
+pooritavaakprasoonamula boojal.onarch.eda jittagiMpumee  
+taarakanaama bhadragiri daasharathee karuNaapayonidhee.  
+‖ 11 ‖
+
+gurutaramaina kaavyarasa guMbhanakabbura maMdimushhkarul  
+sarasulamaaDki saMtasila jooluduroTushashaaMka chaMdrikaaM  
+kuramula kiMdu kaaMtamaNi koTisraviMchina bhaMgiviMdhyabhoo  
+dharamuna jaaRune shilalu daasharathee karuNaapayonidhee.  
+‖ 12 ‖
+
+taraNikulesha naanuDula dappulu galgina needunaama sa  
+dvirachitamaina kaavyamu pavitramugaad.e viyannadeejalaM  
+baraguchuvaMkayaina malinaakRRiti baaRina danmahatvamuM  
+daram.e gaNiMpa n.evvariki daasharathee karuNaapayonidhee.  
+‖ 13 ‖
+
+daaruNapaata kaabdhiki sadaa baDabaagni bhavaakulaartivi  
+staaradavaanalaarchiki sudhaarasavRRishhTi duraMta durmataa  
+chaarabhayaMka raaTaviki jaMDakaThorakuThaaradhaara nee  
+taarakanaama m.ennuk.ona daasharathee karuNaapayonidhee.  
+‖ 14 ‖
+
+harunaku navvibheeshhaNunaka drijakuM dirumaMtra raajamai  
+kariki sahalyakuM drupadakanyaku naartihariMchuchuTTamai  
+paraginayaTTi neepatita paavananaamamu jihvapai niraM  
+taramu naTiMpajeyumika daasharathee karuNaapayonidhee.  
+‖ 15 ‖
+
+muppuna gaalakiMkarulu muMgiTavachchina veLa, rogamul  
+g.opparamainacho gaphamu kuttuka niMDinaveLa, baaMdhavul  
+gappinaveLa, meesmaraNa galgun.o galgad.o naaTi kippuDe  
+tappakachetu meebhajana daasharathee karuNaapayonidhee.  
+‖ 16 ‖
+
+paramadayaanidhe patitapaavananaama hare yaTaMchu su  
+sdhiramatulai sadaabhajana seyu mahaatmula paadadhooLi naa  
+shiramunadaaltumeeraTaku jerakuDaMchu yamuMDu kiMkaro  
+tkaramula kaana b.eTTunaTa daasharathee karuNaapayonidhee.  
+‖ 17 ‖
+
+ajunaku taMDrivayyu sanakaadulakuM baratattvamayyusa  
+ddvijamunikoTik.ellabara detavayyu dineshavaMsha bhoo  
+bhujulaku meTivayyubari poorNuDavai v.elig.oMdupakshhiraa  
+Ddhvajamimu brastutiMch.edanu daasharathee karuNaapayonidhee.  
+‖ 18 ‖
+
+paMDita rakshhakuM Dakhila paapavim.ochanu DabjasaMbhavaa  
+khaMDala poojituMDu dashakaMTha viluMThana chaMDakaaMDako  
+daMDakaLaa praveeNuDavu taavaka keerti vadhooTi kittupoo  
+daMDalu gaaga naa kavita daasharathee karuNaapayonidhee.  
+‖ 19 ‖
+
+shreerama seetagaaga nijasevaka bRRiMdamu veeravaishhNavaa  
+chaara javaMbugaaga virajaanadi gautamigaa vikuMTha mu  
+nnaarayabhadra shailashikharaagramugaaga vasiMchu chetano  
+ddhaarakuDaina vishhNuDavu daasharathee karuNaapayonidhee.  
+‖ 20 ‖
+
+kaMTi nadeetaTaMbub.oDagaMTini bhadranagaadhivaasamun  
+gaMTi nilaatanoojanuru kaarmuka maargaNashaMkhachakramul  
+gaMTini mimmu lakshhmaNuni gaMTi kRRitaardhuDa naiti no jaga  
+tkaMTaka daityanirdhaLana daasharathee karuNaapayonidhee.  
+‖ 21 ‖
+
+halikunakun halaagramuna nardhamu sekurubhaMgi dappiche  
+nalamaTa j.eMduvaaniki suraapagalo jala mabbinaTlu du  
+rmalina manovikaariyagu martyuni nann.oDagoorchi neepayin  
+dalavu ghaTiMpajesitiv.e daasharathee karuNaapayonidhee.  
+‖ 22 ‖
+
+k.oMjakatarka vaadamanu guddaliche baratattvabhoosdhalin  
+raMjiladravvi kaMg.onani raamanidhaanamu neDu bhaktisi  
+ddhaaMjanamaMduhastagata mayy.ebaLee yanagaa madeeyahRRi  
+tkaMjamunan vasiMpumika daasharathee karuNaapayonidhee.  
+‖ 23 ‖
+
+raamuMDu ghora paataka viraamuDu sadguNakalpavallikaa  
+raamuDu shhaDvikaarajaya raamuDu saadhujanaavanavrato  
+ddaamuMDu raamuDe parama daivamu maakani mee yaDuMgu g.eM  
+daamarale bhujiMch.edanu daasharathee karuNaapayonidhee.  
+‖ 24 ‖
+
+chakk.eramaanivemudina jaalinakaivaDi maanavaadhamul  
+p.ekkuru .okka daivamula vemaRug.olch.edaraTla kaadayaa  
+mr.okkinaneeku mr.okkaval.e mokshha m.osaMgina neevayeeval.eM  
+dakkinamaaTa lemiTiki daasharathee karuNaapayonidhee.  
+‖ 25 ‖
+
+'raa' kalushhaMbul.ella bayalaMbaDadrochina 'maa'ka vaaTamai  
+Deek.oniprovuchunikka manidheeyutul.ennaMdadeeya varNamul  
+gaik.oni bhakti che nuDuvaMgaanaru gaaka vipatparaMparal  
+daak.onune jagajjanula daasharathee karuNaapayonidhee.  
+‖ 26 ‖
+
+raamahare kakutdhsakula raamahare raghuraamaraamashree  
+raamahareyaTaMchu madi raMjila bhekagaLaMbuleela nee  
+naamamu saMsmariMchina janaMbu bhavaMb.eDabaasi tatparaM  
+dhaama nivaasulauduraTa daasharathee karuNaapayonidhee.  
+‖ 27 ‖
+
+chakk.era lappakun migula javvani k.eMjiguraaku movikiM  
+j.okkapujuMTi teniyaku j.okkuluchuMgana leru gaaka ne  
+DakkaTa raamanaamamadhu raamRRitamaanuTakaMT.e saukhyaamaa  
+takkinamaadhuree mahima daasharathee karuNaapayonidhee.  
+‖ 28 ‖
+
+aMDajavaaha ninnu hRRidayaMbunanammina vaari paapamul  
+k.oMDalavaMTivaina v.esagooli nashiMpaka yunn.e saMta taa  
+khaMDalavaibhavonnatulu galgakamaanun.e mokshha lakshhmikai  
+daMDay.osaMgakunn.e tuda daasharathee karuNaapayonidhee.  
+‖ 29 ‖
+
+chikkanipaalapai misimi j.eMdina meegaDa paMchadaarato  
+m.ekkinabhaMgi meevimala mechakaroopa sudhaarasaMbu naa  
+makkuva paLleraMbuna samaahita daasyamu neTido yiTan  
+dakk.enaTaMchu jurr.edanu daasharathee karuNaapayonidhee.  
+‖ 30 ‖
+
+siruliDaseeta peeDal.ega jimmuTakun hanumaMtuDaartiso  
+daruDu sumitrasooti duritaMbulumaanupa raama naamamuM  
+garuNadalirpa maanavulagaavaga bannina vajrapaMjaro  
+tkaramugadaa bhavanmahima daasharathee karuNaapayonidhee.  
+‖ 31 ‖
+
+halikulishaaMkushadhvaja sharaasana shaMkharathaaMga kalpako  
+jvalajalajaata rekhalanu saaMshamulai kanupaTTuchunna mee  
+kalitapadaaMbuja dvayamu gautamapatni k.osaMginaTlu naa  
+talapuna jerchikaavagad.e daasharathee karuNaapayonidhee.  
+‖ 32 ‖
+
+jalanidhilonadooRi kula shailamumeeTi dharitrig.ommunaM  
+dalavaDamaaTirakkasuni yaMgamugeeTibaleeMdrunin rasaa  
+talamunamaaTi paardhivaka daMbamugooRchina meTiraama naa  
+talapunanaaTi raagadav.e daasharathee karuNaapayonidhee.  
+‖ 33 ‖
+
+bhaMDana bheemuDaa rtajana baaMdhavuDujjvala baaNatooNako  
+daMDakaLaaprachaMDa bhuja taaMDavakeertiki raamamoortikin  
+r.eMDava saaTidaivamika leDanuchun gaDagaTTi bherikaa  
+daaMDada daaMDa daaMDa nina daMbulajaaMDamu niMDamattave  
+daMDamu n.ekki chaaT.edanu daasharathee karuNaapayonidhee.  
+‖ 34 ‖
+
+avanija kannudoyi t.ogalaMdu v.eliMg.eDu soma, jaanakee  
+kuvalayanetra gabbichanuk.oMDala nuMDu ghanaMba maidhilee  
+navanava yauvanaMbanu vanaMbukun madadaMti veev.ekaa  
+davili bhajiMtu n.ellapuDu daasharathee karuNaapayonidhee.  
+‖ 35 ‖
+
+kharakaravaMshajaa vinu mukhaMDita bhootapishaachaDhaakinee  
+jvara paritaapasarpabhaya vaarakamaina bhavatpadaabja ni  
+spura duruvajrapaMjaramuj.ochchiti, neey.eDa deena maanavo  
+dhdhara birudaMka memaRuku daasharathee karuNaapayonidhee.  
+‖ 36 ‖
+
+jurr.edameeka thaamRRitamu jurr.edameepadakaMjato yamun  
+jurr.eda raamanaamamuna j.obbiluchunna sudhaarasaMba ne  
+jurr.eda jurrujurruMga ruchul ganuvaaripadaMbu goorpave  
+turrulatoDi p.ottiDaka daasharathee karuNaapayonidhee.  
+‖ 37 ‖
+
+ghorakRRitaaMta veerabhaTa koTiki guMD.edigul daridrataa  
+kaarapishaacha saMharaNa kaaryavinodi vikuMTha maMdira  
+dvaara kavaaTa bhedi nijadaasa janaavaLik.ella pr.oddu nee  
+taarakanaama m.ennuk.ona daasharathee karuNaapayonidhee.  
+‖ 38 ‖
+
+vinnapamaalakiMchu raghuveera nahipratilokamaMdu naa  
+kannaduraatmuDuM barama kaaruNikottama velpulaMdu nee  
+kanna mahaatmuDuM batita kalmashhadooruDu leDunaakuvi  
+dvannuta neev.enaaku gati daasharathee karuNaapayonidhee.  
+‖ 39 ‖
+
+p.eMpunaMdallivai kalushha bRRiMdasamaagama m.oMdukuMDu ra  
+kshhiMpanudaMDrivai m.eyu vasiMchudu sheMdriya rogamul nivaa  
+riMpanu v.ejjavai kRRipa guRiMchi paraMbu dirabugaaMga sa  
+tsaMpadaleeya neev.egati daasharathee karuNaapayonidhee.  
+‖ 40 ‖
+
+kukshhinajaaMDapaM ktul.ona goorchi charaacharajaMtukoTi saM  
+rakshhaNaseyu taMDrivi paraMpara nee tanayuMDanaina naa  
+pakshhamu neevugaavalad.e paapamu l.enni y.onarchinan jaga  
+drakshhaka kartaveev.ekada daasharathee karuNaapayonidhee.  
+‖ 41 ‖
+
+gaddariyo gihRRitkamala gaMdhara saanubhavaMbuMj.eMdu p.e  
+nniddavu gaMDuM deMTi tharaNeesuta kauMgilipaMjaraMbunan  
+muddulugulku raachiluka muktinidhaanamuraamaraaMgade  
+taddayu neMDu naakaDaku daasharathee karuNaapayonidhee.  
+‖ 42 ‖
+
+kaliyuga martyakoTininu gaMg.ona raanividhaMbo bhaktava  
+tsalatavahiMpavo chaTula saaMdravipaddasha vaardhi gruMkucho  
+bilichina balka viMtamaRapee naruliTlanaraadu gaaka nee  
+talapuna led.e seeta ch.eRa daasharathee karuNaapayonidhee.  
+‖ 43 ‖
+
+janavara meeka thaali vinasaiMpaka karNamulaMdu ghaMTikaa  
+ninada vinodamul sulupuneechunakun varamichchinaavu ni  
+nnanayamunammi k.olchina mahaatmunakemi y.osaMgu dosanaM  
+dananuta maak.osaMgumaya daasharathee karuNaapayonidhee.  
+‖ 44 ‖
+
+paapamu l.oMduveLa raNapannaga bhoota bhayajvaaraadulan  
+daapada n.oMduveLa bharataagraja mimmu bhajiMchuvaarikin  
+braapuga neevudammu Dirupakkiyalan jani tadvitti saM  
+taapamu maaMpi kaaturaTa daasharathee karuNaapayonidhi.  
+‖ 45 ‖
+
+agaNita janmakarmaduri taaMbudhilo bahuduHkhaveechikal  
+d.egipaDaveeDaleka jagateedhara neepadabhakti naavache  
+dagili tariMpagoriti badaMpabaDi nadu bhayaMbhu maaMpave  
+tagadani chittamaM diDaka daasharathee karuNaapayonidhee.  
+‖ 46 ‖
+
+nen.onariMchu paapamula nekamulainanu naadujihvakuM  
+baanakamayy.emeeparama paavananaamamud.oMTi chilkaraa  
+maananugaavumanna tudi maaTaku sadgati j.eMd.egaavunan  
+daani dhariMpagor.edanu daasharathee karuNaapayonidhee.  
+‖ 47 ‖
+
+paradhanamul hariMchi parabhaamalanaMTi paraanna mabbinan  
+muripama kaanimeeMdanagu mosam.eRuMgadu maanasaMbu  
+staramadikaalakiMkara gadaahati paalpaDaneeka mammu nedu  
+taRidarijerchi kaach.edav.o daasharathee karuNaapayonidhee.  
+‖ 48 ‖
+
+chesiti ghorakRRityamulu chesiti bhaagavataapachaaramul  
+chesiti nanyadaivamulaM jeri bhajiMchina vaarip.oMdu neM  
+jesina neramul dalaMchi chikkulaMb.eTTakumayyayayya nee  
+daasuMDanayya bhadragiri daasharathee karuNaapayonidhee.  
+‖ 49 ‖
+
+parula dhanaMbuMjoochipara bhaamalajoochi hariMpagoru ma  
+dgurutaramaanasaM ban.eDu d.oMganubaTTinirooDhadaasya vi  
+sphuritaviveka paashamulaM juTTi bhavachcharaNaMbane maru  
+ttaruvunagaTTiveyaga d.e daasharathee karuNaapayonidhee.  
+‖ 50 ‖
+
+salalita raamanaama japasaara m.eRuMganu gaashikaapuree  
+nilayuDagaanumeecharaNa neerajareNu mahaaprabhaavamuM  
+d.eliyanahalyagaanu jagateevara needagu satyavaakyamuM  
+dalapaga raavaNaasuruni tammuDagaanu bhavadvilaasamul  
+dalachinutiMpa naataram.e daasharathee karuNaapayonidhee.  
+‖ 51 ‖
+
+paatakulaina meekRRipaku baatrulu kaar.etalaMchichooDa ja  
+Traatikigalg.e baavana maraatiki raajyasukhaMbugalg.e du  
+rjaatiki buNyamabb.egapi jaatimahattvamun.oMd.egaavunaM  
+daatava y.eTTivaaralaku daasharathee karuNaapayonidhee.  
+‖ 52 ‖
+
+maamaka paataka vajramu mraaMpanagaNyamu chitraguptule  
+yemani vraaturo? shamanuDemi vidhiMchun.o? kaalakiMkara  
+stoma m.onarchiTem.o? vinaj.oppaDa diMtakamunn.edeenachiM  
+taamaNi y.oTlu gaach.edav.o daasharathee karuNaapayonidhee.  
+‖ 53 ‖
+
+daasina chuTToomaa shabari? daani dayaamati nelinaavu; nee  
+daasuni daasuDaa? guhuDu taavakadaasya m.osaMginaavu ne  
+jesina paapamo! vinuti chesinagaavavu gaavumayya! nee  
+daasulalona nen.okaMDa daasharathee karuNaapayonidhee.  
+‖ 54 ‖
+
+deekshhavahiMchi naak.oladi deenula n.eMdaRi gaachito jaga  
+drakshhaka t.olliyaa drupada raajatanooja talaMchinaMtane  
+yakshhayamaina valvaliDi takkaTa naam.oRajittagiMchi  
+pratyakshhamu gaavavemiTiki daasharathee karuNaapayonidhee.  
+‖ 55 ‖
+
+neelaghanaabhamoortivagu ninnu ganuMg.onikori veDinan  
+jaalamusesi Daag.edavu saMstuti k.ekkina raamanaama me  
+moolanu daachukogalavu muktiki braapadi paapamoolaku  
+ddaalamugaad.e maay.eDala daasharathee karuNaapayonidhee.  
+‖ 56 ‖
+
+valadu paraaku bhaktajanavatsala nee charitaMbu vammugaa  
+valadu paraaku neebirudu vajramuvaMTidi gaana koorake  
+valadu paraaku naadurita vaardhiki d.eppavugaa manaMbulo  
+dalatum.ekaa niraMtaramu daasharathee karunaapayonidhee.  
+‖ 57 ‖
+
+tappul.eRuMga leka duritaMbulu sesitinaMTi neevumaa  
+yappavugaavu maMTi nikananyulakun nuduraMTanaMTinee  
+k.oppidamaina daasajanu l.oppina baMTuku baTavaMTi naa  
+tappula k.ella neev.egati daasharathee karuNaapayonidhee.  
+‖ 58 ‖
+
+itaDu duraatmuDaMchujanu l.ennaMga naaRaDiMg.oMTinen.epo  
+patituMDa naMTino patita paavanamoortivi neevugalla ne  
+nitirula veMDanaMTi niha michchinanimmuparaMb.osaMgumee  
+yatulita raamanaama madhu raakshhara paaLiniraMtaraM bahRRi  
+dgatamani nammik.olch.edanu daasharathee karuNaapayonidhee.  
+‖ 59 ‖
+
+aMchitamainaneedu karuNaamRRitasaaramu naadupaini bro  
+kshhiMchina jaaludaananira siMch.edanaaduritaMbu l.elladoo  
+liMch.eda vairivarga m.eDaliMch.eda gorkulaneedubaMTanai  
+daMch.eda, gaalakiMkarula daasharathee karuNaapayonidhee.  
+‖ 60 ‖
+
+jalanidhu leDun.okka m.ogiM jakkikid.echch.esharaMbu, RaatiniM  
+palaraMga jes.enaatigaMba daabjaparaagamu, nee charitramuM  
+jalajabhavaadi nirjarulu sannuti seyaMga leru gaavunaM  
+dalapanagaNyamayya yidi daasharathee karuNaapayonidhee.  
+‖ 61 ‖
+
+kotikishakyamaa yasurakoTula g.elvanu gaalch.ebo nijaM  
+baatanimena sheetakaruDauTa davaanalu D.eTTiviMta? maa  
+seetapativrataa mahimasevaku bhaagyamumeekaTaakshhamu  
+dhaataku shakyamaa p.ogaDa daasharathee karuNaapayonidhee.  
+‖ 62 ‖
+
+bhoopalalaama raamaraghupuMgavaraama triloka raajya saM  
+sdhaapanaraama mokshhaphala daayaka raama madeeya paapamul  
+paapagadayyaraama ninu brastuti ches.edanayyaraama see  
+taapatiraama bhadragiri daasarathee karuNaapayonidhee.  
+‖ 63 ‖
+
+neesahajaMbu saatvikamu neeviDipaTTu sudhaapayodhi, pa  
+dmaasanuDaatmajuMDu, gamalaalayanee priyuraalu neeku siM  
+haasanamiddharitri; g.oDugaaka samakshhulu chaMdrabaaskarul  
+neesumatalpamaadiphaNi neev.e samastamu g.olchinaTTi nee  
+daasula bhaagyam.eTTidaya daasharathee karuNaapayonidhee.  
+‖ 64 ‖
+
+charaNamu sokinaTTi shilajavvaniroopagu T.okkaviMta, su  
+sdhiramuga neeTipai girulu delina d.okkaTi viMtagaani mee  
+smaraNa danarchumaanavulu sadgati j.eMdina d.eMtaviMta? yee  
+dharanu dharaatmajaaramaNa daasharathee karuNaapayonidhee.  
+‖ 65 ‖
+
+daivamu tallidaMDritagu daata guruMDu sakhuMDu ninn.e kaa  
+bhaavana seyuchunnataRi paapamul.ella manovikaara du  
+rbhaavitujeyuchunnavikRRipaamativainanu kaavumee jaga  
+tpaavanamoorti bhadragiri daasharathee karuNaapayonidhee.  
+‖ 66 ‖
+
+vaasava raajyabhoga sukha vaardhini delu prabhutvamabbinaa  
+yaasakumera ledu kanakaadrisamaana dhanaMbugoorchinaM  
+gaasunu v.eMTaraadu kani kaanaka chesina puNyapaapamul  
+veesarabova neevu padivelaku jaalu bhavaMbun.olla nee  
+daasunigaaga neluk.onu daasharathee karuNaapayonidhee.  
+‖ 67 ‖
+
+soorijanul dayaaparulu soonRRitavaadu lalubdhamaanavul  
+verapatiprataaMganalu viprulu govulu vedamul mahaa  
+bhaaramudaalpagaa janulu paavanamaina paropakaara sa  
+tkaara m.eRuMgule rakaTa daasharathee karuNaapayonidhee.  
+‖ 68 ‖
+
+vaaricharaavataaramu vaaridhilo j.oRabaaRi krodha vi  
+staaraguDaina yaa nigamataskaraveera nishaachareMdruniM  
+jeri vadhiMchi vedamula chikk.eDaliMchi viriMchiki maho  
+daaratanichchiteev.egada daasharathee karuNaapayonidhee.  
+‖ 69 ‖
+
+karamanura ktimaMdaramu gavvamugaa nahiraajudraaDugaa  
+d.orak.ona devadaanavulu dugdhapayodhimathiMchuchunnacho  
+dharaNichaliMpalokamulu tallaDamaMdaga goormamai dharaa  
+dharamu dhariMchiteev.ekada daasharathee karuNaapayonidhee.  
+‖ 70 ‖
+
+dhaaruNi jaapajuTTina vidhaMbunagaik.oni hemanetruDa  
+vvaaridhilonadaaginanu vaanivadhiMchi varaahamoortivai  
+dhaaruNid.oMTikai vaDini dakshhiNashRRiMgamuna dhariMchi vi  
+staara m.onarchiteeve kada daasharathee karuNaapayonidhee.  
+‖ 71 ‖
+
+p.eTap.eTanukku kaMbamuna bheekaradaMta nakhaaMtara prabhaa  
+paTalamu gappa nuppatili bhaMDanaveedhi nRRisiMhabheekara  
+sphuTapaTushakti hemakashipu vidaLiMchi suraaripaTTi naM  
+taTagRRipajoochiteev.ekada daasharathee karuNaapayonidhee.  
+‖ 72 ‖
+
+padayugaLaMbu bhoogagana bhaagamula v.esanooni vikramaa  
+spadamagunabbaleeMdrun.oka paadamunaMdala kriMdan.ottime  
+l.odavajagattrayaMbu buru hootunikiyyavaTuMDavainachi  
+tsadamalamoorti veev.ekada daasharathee karuNaapayonidhee.  
+‖ 73 ‖
+
+iruvadiy.okkamaaRu dharaNeeshula n.ellavadhiMchi tatkaLe  
+bara rudhira pravaahamuna baitRRikatarpaNa m.oppajesi bhoo  
+suravarakoTiki mudamu s.oppaDa bhaargavaraamamoortivai  
+dharaNin.osaMgitee v.ekada daasharathee karuNaapayonidhee.  
+‖ 74 ‖
+
+duramuna daaTakaMdunimi dhoorjaTivil dunumaaDiseetanuM  
+bariNayamaMdi taMDripanupa ghana kaananabhoomi kegi du  
+starapaTuchaMDa kaaMDakulishaahati raavaNakuMbhakarNa bhoo  
+dharamula goolchitee v.ekada daasharathee karuNaapayonidhee.  
+‖ 75 ‖
+
+anupamayaadavaanvayasu dhaabdhisudhaanidhi kRRishhNamoortinee  
+kanujuDugaajaniMchi kujanaavaLin.ella naDaMchi rohiNee  
+tanayuDanaMga baahubala darpamuna balaraama moortivai  
+tanarina velpaveev.ekada daasharathee karuNaapayonidhee.  
+‖ 76 ‖
+
+suralunutiMpagaa dripura suMdarula variyiMpabuddharoo  
+parayaga daalchiteevu tripuraasurakoTi dahiMchunappuDaa  
+harunakudoDugaa varasha raasana baaNamukho grasaadhano  
+tkara m.onariMchiteevukada daasharathee karuNaapayonidhee.  
+‖ 77 ‖
+
+saMkaradurgamai durita saMkulamaina jagaMbujoochi sa  
+rvaMkashhaleela nu ttama turaMgamun.ekki karaasibooni vee  
+raaMkavilaasa m.oppa gali kaakRRita sajjanakoTiki niraa  
+taMka m.onarchiteevukada daasharathee karuNaapayonidhee.  
+‖ 78 ‖
+
+manamunanoohaposhhaNalu marvakamunn.e kaphaadirogamul  
+danuvunanaMTi menibigi dappakamunn.enaruMDu mokshha saa  
+dhana m.onariMpaMgaavalayuM dattvavichaaramu maaniyuMDuTa  
+ltanuvunaku virodhamidi daasharathee karuNaapayonidhee.  
+‖ 79 ‖
+
+mudamuna kaaTapaTTubhava mohamadva diradaaMkushaMbu saM  
+padala k.oTaaru korikala paMTa paraMbuna kaadi vairula  
+nnadana jayiMchutrova vipadabdhikinaavagadaa sadaabhava  
+tsadamalanaamasaMsmaraNa daasharathee karuNaapayonidhee.  
+‖ 80 ‖
+
+durita lataanusaara bhaya duHkha kadaMbamu raamanaamabhee  
+karatala heticheM d.egi vakaavakalai chanakuMDa nerchune  
+darik.oni maMDuchuMDu shikha daark.onina shalabaadikeeTako  
+tkaramu vileenamaichanav.e daasharathee karuNaapayonidhee.  
+‖ 81 ‖
+
+haripadabhaktiniMdriyaja yaanvituDuttamuMDiMdrimaMbulan  
+marugaka nilpanoodinanu madhyamuMDiMdriyapaarashyuDai  
+paraginacho nikRRishhTuDani palkaga durmatinaina nannu naa  
+daramuna n.eTlukaach.edav.o daasharathee karuNaapayonidhee.  
+‖ 82 ‖
+
+vanakarichikku mainasaku paachavikiM j.eDipoy.e meenutaa  
+vinikikiMjikk.eMjilvaganu veMduRuM j.eMd.enu lellu taavilo  
+manikinashiMch.e deTitara maayirumooMTini g.elvanai dusaa  
+dhanamulanee v.e kaavanagu daasharathee karuNaapayonidhee.  
+‖ 83 ‖
+
+karamulumeekumr.okkuliDa kannulu mimmun.e chooDa jihva mee  
+smaraNadanarpaveenulubha vatkathalan vinuchuMDanaasa mee  
+yaRutunu b.eTTupoosarula kaasag.onaM baramaartha saadhano  
+tkaramidi cheyavekRRipanu daasharathee karuNaapayonidhee.  
+‖ 84 ‖
+
+chiratarabhakti n.okkatuLaseedaLa marpaNa cheyuvaaDu khe  
+charagaru Doraga pramukha saMghamulo v.elugan sadhaa bhavat  
+suruchira dheeMda paadamula boojal.onarchina vaarik.ellada  
+tpara marachetidhaatrigada daasharathee karuNaapayonidhee.  
+‖ 85 ‖
+
+bhaanuDu toorpunaMduganu puTTinaM baavaka chaMdra tejamul  
+heenata j.eMdinaTlu jagadeka viraajitamaina nee pada  
+dhyaanamu cheyuchunnaM bara daivamareechulaDaMgakuMDu ne  
+daanava garva nirdaLana daasharathee karuNaapayonidhee.  
+‖ 86 ‖
+
+neemahaneeyatattva rasa nirNa yabodha kathaamRRitaabdhilo  
+daamunugruMkulaaDakavRRi thaatanukashhTamuj.eMdi maanavuM  
+Dee mahilokateerthamula n.ella muniMgina durvikaara hRRi  
+taamasapaMkamul vidun.e daasharathee karuNaapayonidhee.  
+‖ 87 ‖
+
+neemahaneeyatattva rasa nirNa yabodha kathaamRRitaabdhilo  
+daamunugruMkulaaDakavRRi thaatanukashhTamuj.eMdi maanavuM  
+Dee mahilokateerthamula n.ella muniMgina durvikaara hRRi  
+taamasapaMkamul vidun.e daasharathee karuNaapayonidhee.  
+‖ 88 ‖
+
+kaaMchana vastusaMkalita kalmashha magni puTaMbu b.eTT.evaa  
+riMchinareeti naatmanigiDiMchina dushhkara durmalatrayaM  
+baMchita bha ktiyoga daha naarchiMdagulpaka paayune kana  
+tkaaMchanakuMDalaabharaNa daasharathee karuNaapayonidhee.  
+‖ 89 ‖
+
+neesati p.ekku galmuliDanerpiri, loka makalmashhaMbugaa  
+neesuta seyu paavanamu nirmita kaaryadhureeNa dakshhuDai  
+neesutuDichchu naayuvulu ninna bhujiMchinaM galgakuMDune  
+daasulakeepsi taarthamula daasharathee karuNaapayonidhee.  
+‖ 90 ‖
+
+vaarijapatramaMdiDina vaarividhaMbuna vartaneeyamaM  
+daaraya r.oMpilona danu vaMTani kummarapurvureeti saM  
+saaramuna m.elaMguchu vichaaraDaiparam.oMdugaad.esa  
+tkaara m.eRiMgi maanavuDu daasharathee karuNaapayonidhee.  
+‖ 91 ‖
+
+.ekkaDi tallidaMDri sutul.ekkaDi vaaru kaLatra baaMdhavaM  
+b.ekkaDa jeevuMD.eTTi tanu v.ettina buTTunu bovuchunna vaa  
+D.okkaD.epaapa puNaya phala m.oMdina n.okkaD.e kaanaraaDuve  
+R.okkaDu v.eMTanaMTibhava m.ollanayaakRRipa jooDuvayyanee  
+Takkari maayalaMdiDaka daasharathee karuNaa payonidhee.  
+‖ 92 ‖
+
+d.orasinakaayamulmudimi tochinaMjoochiprabhutvamulsiru  
+lm.eRapulugaagajoochimaRi mediniloMdamatoDivaarumuM  
+daruguTajoochichoochi t.egu naayuv.eRuMgaka mohapaashamu  
+ldaruganivaarikemigati daasharathee karuNaapayonidhee.  
+‖ 93 ‖
+
+sirigalanaaMDu maimaRachi chikkinanaaMDudalaMchi puNyamul  
+p.oriMb.ori seyanaitinani p.okkinaM galgu n.egaalichichchupaiM  
+g.eralina veLaMdappik.oni keeDpaDu veLa jalaMbu gori ta  
+ttaramunaM dravvinaM galad.e daasharathee karuNaapayonidhee.  
+‖ 94 ‖
+
+jeevanamiMkaM baMkamuna jikkina meenu chaliMpak.eMtayu  
+daavunanilchi jeevanam.e daddayuM goruvidhaMbu ch.oppaDaM  
+daavalamainaMgaani guRi tappanivaaMDu tariMchuvaaMDayaa  
+taavakabhaktiyo gamuna daasharathee karuNaapayonidhee.  
+‖ 95 ‖
+
+sarasunimaanasaMbu sara sagnyuD.eruMgunu mushhkaraadhamuM  
+D.eRiMgigrahiMchuvaaD.e k.ola nekanisamuM gaagadurduraM  
+barayaMga nerchun.eTlu vika chaabdamaraMda rasaika saurabho  
+tkaramumiLiMda m.oMdukriya daasharathee karuNaapayonidhee.  
+‖ 96 ‖
+
+noMchinatallidaMDrikiM danoobhavuMD.okkaD.echaalu meTiche  
+chaaMchanivaaDu veR.okaMDu chaachina ledana kichchuvaaMDuno  
+raaMchinijaMbakaani palu kaaDanivaaMDu raNaMbulona men  
+daachanivaaMDu bhadragiri daasharathee karuNaapayonidhee.  
+‖ 97 ‖
+
+shreeyutajaanakeeramaNa chinnayaroopa ramesharaama naa  
+raayaNa paahipaahiyani brastutiM jesiti naamanaMbunaM  
+baayaka kilbishhavraja vi paaTanamaMdaMga jesi satkaLaa  
+daayi phalaMbunaakiyav.e daasharathee karuNaapayonidhee.  
+‖ 98 ‖
+
+.eMtaTipuNyamo shabari y.eMgilig.oMTivi viMtagaad.e nee  
+maMtana m.eTTido yuDuta mainika raagra nakhaaMkuraMbulan  
+saMtasamaMdaM jesitivi satkulajanmamu lemi l.ekka ve  
+daaMtamugaad.e nee mahima daasharathee karuNaapayonidhee.  
+‖ 99 ‖
+
+b.oMkanivaaMD.eyogyuDari bRRiMdamu l.ettina choTajivvakuM  
+jaMkanivaaMD.ejodu rabhasaMbuna narthi karaMbusaaMchinaM  
+g.oMkanivaaMD.edaata mimuM g.olchibhajiMchina vaaMD.e poniraa  
+taMka manaskuM D.enna ganu daasharathee karuNaapayonidhee.  
+‖ 100 ‖
+
+bhramaramugeeTakaMbuM g.oni paalpaDi jhaaMkaraNo kaariyai  
+bhramaramugaan.onarchunani palkuTaM jesi bhavaadi duHkhasaM  
+tamasam.eDalchi bhaktisahi taMbuga jeevuni vishvaroopa ta  
+ttvamunadhariMchu Temarudu daasharathee karuNaapayonidhee.  
+‖ 101 ‖
+
+taruvulu poochikaayalagu dakkusumaMbulu poojagaabhava  
+chcharaNamu sokidaasulaku saaramulo dhanadhaanyaraashulai  
+karibhaTa ghoTakaaMbara nakaayamulai virajaa samu  
+ttaraNa m.onarchujitramidi daasharathee karuNaapayonidhee.  
+‖ 102 ‖
+
+paTTitibhaTTaraaryaguru paadamulimm.eyinoordhva puMDramul  
+v.eTTitimaMtraraaja m.oDi b.eTTiti nayyamakiMka raalikiM  
+gaTTitib.ommameecharaNa kaMjalaMduM dalaMpup.eTTi bo  
+daTTitiM baapapuMjamula daasharathee karuNaapayonidhee.  
+‖ 103 ‖
+
+allana liMgamaMtri sutuDatrija gotrajuDaadishaakha kaM  
+ch.erla kulodbavuM daMbrasiddhiDanai bhavadaMkitaMbugaa  
+n.ellakavul nutiMpa rachiyiMchiti gopakaveeMdruDan jaga  
+dvallabha neeku daasuDanu daasharathee karuNaapayonidhee.  
+‖ 104 ‖
+

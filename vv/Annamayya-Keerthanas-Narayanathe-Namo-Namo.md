@@ -328,3 +328,51 @@ naada priyate namo namo ‖
 వేదోద్ధర శ్రీ వేంకట నాయక  
 నాద ప్రియతే నమో నమో ‖  
 
+### English
+
+#### annamayya kīrtana nārāyaṇate namo namo
+
+rāgaṃ: behāg  
+tāḻaṃ: āditāḻaṃ  
+nārāyaṇate namo namo  
+nārada sannuta namo namo ‖
+
+murahara bhavahara mukunda mādhava   
+garuḍa gamana paṅkajanābha ❘  
+parama puruśha bhavabandha vimochana  
+nara mṛga śarīra namo namo ‖
+
+jaladhi śayana ravichandra vilochana  
+jalaruha bhavanuta charaṇayuga ❘  
+balibandhana gopa vadhū vallabha  
+nalino darate namo namo ‖
+
+ādideva sakalāgama pūjita  
+yādavakula mohana rūpa ❘  
+vedoddhara śrī veṅkaṭa nāyaka  
+nāda priyate namo namo ‖
+
+### PlainEnglish
+
+#### annamayya keertana naaraayaNate namo namo
+
+raagaM: behaag  
+taaLaM: aaditaaLaM  
+naaraayaNate namo namo  
+naarada sannuta namo namo ‖
+
+murahara bhavahara mukuMda maadhava   
+garuDa gamana paMkajanaabha ❘  
+parama purushha bhavabaMdha vimochana  
+nara mRRiga shareera namo namo ‖
+
+jaladhi shayana ravichaMdra vilochana  
+jalaruha bhavanuta charaNayuga ❘  
+balibaMdhana gopa vadhoo vallabha  
+nalino darate namo namo ‖
+
+aadideva sakalaagama poojita  
+yaadavakula mohana roopa ❘  
+vedoddhara shree veMkaTa naayaka  
+naada priyate namo namo ‖
+

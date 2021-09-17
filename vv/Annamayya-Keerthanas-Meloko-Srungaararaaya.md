@@ -302,3 +302,47 @@ garima varaalichche kalpataruvaa ‖
 గరిమ వరాలిచ్చే కల్పతరువా ‖  
 
 
+### English
+
+#### annamayya kīrtana meluko śruṅgārarāya
+
+meluko śṛṅgārarāya meṭi madanagopāla ❘  
+melukove nāpāla muñchina nidhānamā ‖
+
+sandaḍiche gopikala javvanavanamulona ❘  
+kanduvandirige madagajamavu ❘  
+yindumukhi satyabhāma hṛdaya padmamuloni ❘  
+gandhamu mariginaṭṭi gaṇḍu tummeda ‖
+
+gatigūḍi rukmiṇikaugiṭa pañjaramulo ❘  
+ratimuddu guriseṭi rāchilukā ❘  
+satula padāruvela jaṇṭa kannula galuvala- ❘  
+kitamai poḍimina nā yindu bimbama ‖
+
+varusaṃ golaniloni vāri channuṅgoṇḍalapai ❘  
+nirati vālina nā nīlameghamā ❘  
+śiranuramuna mochi śrī veṅkaṭādri mīda ❘  
+garima varālichche kalpataruvā ‖
+
+### PlainEnglish
+
+#### annamayya keertana meluko shruMgaararaaya
+
+meluko shRRiMgaararaaya meTi madanagopaala ❘  
+melukov.e naapaala muMchina nidhaanamaa ‖
+
+saMdaDiche gopikala javvanavanamulona ❘  
+kaMduvaMdirige madagajamavu ❘  
+yiMdumukhi satyabhaama hRRidaya padmamuloni ❘  
+gaMdhamu mariginaTTi gaMDu tumm.eda ‖
+
+gatigooDi rukmiNikaugiTa paMjaramulo ❘  
+ratimuddu guriseTi raachilukaa ❘  
+satula padaaruvela jaMTa kannula galuvala- ❘  
+kitamai p.oDimina naa yiMdu biMbama ‖
+
+varusaM g.olaniloni vaari channuMg.oMDalapai ❘  
+nirati vaalina naa neelameghamaa ❘  
+shiranuramuna mochi shree veMkaTaadri meeda ❘  
+garima varaalichche kalpataruvaa ‖
+

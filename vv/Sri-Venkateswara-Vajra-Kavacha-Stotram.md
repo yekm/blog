@@ -315,3 +315,37 @@ iti shree v.eMkaTesvara vajrakavacastotraM saMpoorNaM ‖
 ఇతి శ్రీ వెంకటేస్వర వజ్రకవచస్తోత్రం సంపూర్ణం ‖  
 
 
+### English
+
+#### śrī veṅkaṭeśvara vajra kavacha stotram
+
+mārkaṇḍeya uvāca  
+nārāyaṇaṃ parabrahma sarvakāraṇa kārakaṃ  
+prapadye veṅkaṭeśākhyāṃ tadeva kavacaṃ mama  
+sahasraśīrśhā puruśho veṅkaṭeśaśśiro vatu  
+prāṇeśaḥ prāṇanilayaḥ prāṇāṇ rakśhatu me hariḥ  
+ākāśarāṭ sutānātha ātmānaṃ me sadāvatu  
+devadevottamopāyāddehaṃ me veṅkaṭeśvaraḥ  
+sarvatra sarvakāleśhu maṅgāmbājāniśvaraḥ  
+pālayenmāṃ sadā karmasāphalyaṃ naḥ prayacChatu  
+ya etadvajrakavacamabhedyaṃ veṅkaṭeśituḥ  
+sāyaṃ prātaḥ paṭhennityaṃ mṛtyuṃ tarati nirbhayaḥ  
+iti śrī veṅkaṭesvara vajrakavacastotraṃ sampūrṇaṃ ‖
+
+### PlainEnglish
+
+#### shree veMkaTeshvara vajra kavacha stotram
+
+maarkaMDeya uvaaca  
+naaraayaNaM parabrahma sarvakaaraNa kaarakaM  
+prapadye v.eMkaTeshaakhyaaM tadeva kavacaM mama  
+sahasrasheershhaa purushho veMkaTeshashshiro vatu  
+praaNeshaH praaNanilayaH praaNaaN rakshhatu me hariH  
+aakaasharaaT sutaanaatha aatmaanaM me sadaavatu  
+devadevottamopaayaaddehaM me veMkaTeshvaraH  
+sarvatra sarvakaaleshhu maMgaaMbaajaanishvaraH  
+paalayenmaaM sadaa karmasaaphalyaM naH prayacChatu  
+ya etadvajrakavacamabhedyaM veMkaTeshituH  
+saayaM praataH paThennityaM mRRityuM tarati nirbhayaH  
+iti shree v.eMkaTesvara vajrakavacastotraM saMpoorNaM ‖
+

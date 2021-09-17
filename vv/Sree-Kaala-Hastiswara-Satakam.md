@@ -7595,3 +7595,1403 @@ chiMtiMpanval.e neepadaaMbujamulan shree kaaLahasteeshvaraa! ‖ 116 ‖
 వితల్మేన జరించనప్పుడె కురుల్వెల్లెల్ల గానప్పుడే  
 చింతింపన్వలె నీపదాంబుజములన్ శ్రీ కాళహస్తీశ్వరా! ‖ 116 ‖  
 
+### English
+
+#### śrī kāḻa hastīśvara śatakam
+
+śrīvidyutkalitā'javañjavamahā-jīmūtapāpāmbudhā-  
+rāvegambuna manmanobjasamudī-rṇatvambuṃ golpoyitin ❘  
+devā! mī karuṇāśaratsamayamiṃ-teṃ jāluṃ jidbhāvanā-  
+sevaṃ dāmaratamparai maniyedan- śrī kāḻahastīśvarā! 
+‖ 1 ‖
+
+vāṇīvallabhadurlabhambagu bhavaddvārambuna nnilchi ni  
+rvāṇaśrīṃ jeRapaṭṭaṃ jūchina vichāradrohamo nitya ka  
+ḻyāṇakrīḍalaṃ bāsi durdaśalapā lai rājalokādhama  
+śreṇīdvāramu dūRañjesi tipuḍo śrī kāḻahastīśvarā! 
+‖ 2 ‖
+
+antā midhya talañchi chūchina naruṃ ḍaṭlau ṭeRiṅgin sadā  
+kānta lputrulu nardhamun tanuvu ni kkambañchu mohārṇava  
+chibhrāntiṃ jendi jariñchu gāni paramārdhambaina nīyanduṃ dāṃ  
+jintākantayu jinta nilpaṇḍugadā śrī kāḻahastīśvarā! 
+‖ 3 ‖
+
+nī nā sandoḍambāṭumāṭa vinumā nīcheta jītambu neṃ  
+gāniṃ baṭṭaka santatambu madi veḍkaṃ goltu nantassapa  
+tnānīkambuna koppagimpakumu nannāpāṭīye chāluṃ de  
+jīnollaṃ gari nolla nolla sirulan śrī kāḻahastīśvarā! 
+‖ 4 ‖
+
+bhavakelīmadirāmadambuna mahā pāpātmuṇḍai vīḍu na  
+nnu vivekimpaṃ ḍaṭañchu nenu narakārṇorāśipālainaṃ ba  
+ṭṭavu; bāluṇḍokachoṭa nāṭatamitoḍa nnūtaṃ gūlaṅgaṃ daṃ  
+ḍri vichārimpaka yuṇḍunā kaṭakaṭā śrī kāḻahastīśvarā! 
+‖ 5 ‖
+
+svāmidrohamuṃ jesi yenokani golvambotino kāka ne  
+nīmāṭa nvinanollakuṇḍitino ninne dikkugāṃ jūḍano  
+yemī iṭṭivṛdhāparādhinagu nannī duḥkhavārāśivī  
+chī madhyambuna muñchi yumpadagunā śrī kāḻahastīśvarā! 
+‖ 6 ‖
+
+divijakśhmā ruha dhenu ratna ghanabhūti prasphuradratnasā  
+nuvu nī villu nidhīśvaruṇḍu sakhuṃ ḍarṇorāśikanyāvibhuṃ  
+ḍuviśeśhārchakuṃ ḍiṅka nīkena ghanuṇḍuṃ galgune nīvu chū  
+chi vichārimpavu lemi nevvaṇḍuḍupun śrī kāḻahastīśvarā! 
+‖ 7 ‖
+
+nīto yudhdhamu cheya nompaṃ gavitā nirmāṇaśakti nninuṃ  
+brītuñjeyagalenu nīkoRaku daṇḍriñjampagāñjāla nā  
+chetan rokaṭa ninnumottaveRatuñjīkāku nābhakti ye  
+rītinnākiṅka ninnu jūḍagalugan śrī kāḻahastīśvarā! 
+‖ 8 ‖
+
+ālumbiḍḍalu dallidaṇḍrulu dhanambañchu nmahābandhanaṃ   
+belā nāmeḍa gaṭṭināḍavika ninneveḻaṃ jintintu ni  
+rmūlambaina manambulo negaḍu durmohābdhiloṃ gruṅki yī  
+śīlāmālapu jinta neṭluḍipedo śrī kāḻahastīśvarā! 
+‖ 9 ‖
+
+nippai pātakatūlaśaila maḍachun nīnāmamun mānavul  
+tappan davvula vinna nantaka bhujādarpoddhatakleśamul  
+tappundārunu muktu laudu ravi śāstrambulmahāpaṇḍitul  
+cheppaṅgā damakiṅka śaṅka valenā śrī kāḻahastīśvarā! 
+‖ 10 ‖
+
+vīḍembabbina yappuḍuṃ dama nutul vinnappuḍumboṭṭaloṃ  
+gūḍunnappuḍu śrīvilāsamulu paikonnappuḍuṃ gāyakul  
+pāḍaṅga vinunappuḍun jelaṅgu dambhaprāyaviśrāṇana  
+krīḍāsaktula nemi cheppavaleno śrī kāḻahastīśvarā! 
+‖ 11 ‖
+
+ninu sevimpaga nāpadal voḍamanī nityotsavaṃ babbanī  
+janamātruṇḍananī mahātmu ḍananī saṃsāramohambu pai  
+konanī GYānamu galganī grahaganul gundimpanī meluva  
+chchina rānī yavi nāku bhūśhaṇamulo śrī kāḻahastīśvarā! 
+‖ 12 ‖
+
+e vedambu baṭhiñche lūta bhujaṅgaṃ beśāstramulsūche dā  
+ne vidyābhyasanambonarcheṃ gari cheñchemantra mūhiñche bo  
+dhāvirbhāvanidānamul chaduvulayyā! kāvu! mīpādasaṃ  
+sevāsaktiye kāka jantutatikin śrī kāḻahastīśvarā! 
+‖ 13 ‖
+
+kāyal gāche vadhūnakhāgramulache gāyambu vakśhojamul  
+rāyan rāpaḍe Rommu manmadha vihārakleśavibhrāntiche  
+brāyaṃ bāyenu baṭṭagaṭṭe dalacheppan rota saṃsārameṃ  
+jeyañjāla viraktuṃ jeyaṅgadave śrī kāḻahastīśvarā! 
+‖ 14 ‖
+
+ninnerūpamugā bhajintu madilo nīrūpu mokālo strī  
+channo kuñchamu mekapeṇṭikayo yī sandehamulmānpi nā  
+kannāra nbhavadīyamūrti saguṇā kārambugā jūpave  
+chinnīrejavihāramattamadhupā  śrī kāḻahastīśvarā! 
+‖ 15 ‖
+
+ninu nāvāṅkili gāvumaṇṭino marunnīlākābhrāntiṃ guṃ  
+ṭena pommaṇṭino yeṅgilichchi tinu tiṇṭeṅgāni kādaṇṭino  
+ninu nemmindaga viśvasiñchusujanānīkambu rakśhimpañje  
+sina nāvinnapamela gaikonavayā śrī kāḻahastīśvarā! 
+‖ 16 ‖
+
+Rālan Ruvvagaṃ jetulāḍavu kumārā! rammu rammñchuneṃ  
+jālan jampaṅga netramu ndiviyaṅgāśaktuṇḍaneṃ gānu nā  
+śīlaṃ bemani cheppanunnadiṅka nī chittambu nā bhāgyamo  
+śrīlakśhmīpatisevitāṅghriyugaḻā! śrī kāḻahastīśvarā! 
+‖ 17 ‖
+
+rājul mattulu vāriseva narakaprāyambu vārichchunaṃ  
+bhojākśhīchaturantayānaturagī bhūśhādu lātmavyadhā  
+bījambul tadapekśha chālu maritṛptiṃ bonditin GYānala  
+kśhmījāgratpariṇāma mimmu dayato śrī kāḻahastīśvarā! 
+‖ 18 ‖
+
+nīrūpambu dalampaṅgāṃ dudamodal negāna nīvainacho  
+rārā rammani yañchuṃ jeppavu pṛdhārambhambu liṅkeṭikin!  
+nīra nmumpumu pāla mumpu miṅka ninne nammināṇḍaṃ jumī  
+śrīrāmārchita pādapadmayugaḻā śrī kāḻahastīśvarā! 
+‖ 19 ‖
+
+nīku nmāṃsamu vāñChayeni kaRavā nīcheta leḍuṇḍaṅgāṃ  
+jokainaṭṭi kuṭhāramuṇḍa nanala jyotuṇḍa nīruṇḍaṅgā  
+bākaṃ boppa ghaṭiñchi chetipunukan bhakśhimpakāboyacheṃ  
+jekoṃ ṭeṅgilimāṃsamiṭlu dagunā śrī kāḻahastīśvarā! 
+‖ 20 ‖
+
+rājai duśhkṛtiṃ jendeṃ janduruṇḍu rārājai kuberuṇḍu dṛ  
+grājīvambunaṃ gāñche duḥkhamu kurukśhmāpāluṃ ḍāmāṭane  
+yājiṃ gūle samastabandhuvulato nā rājaśabdhambu chī  
+Chī janmāntaramandu nollanujumī śrī kāḻahastīśvarā! 
+‖ 21 ‖
+
+rājardhātuṇḍainacho nechaṭa dharmambuṇḍu nerīti nā  
+nājātikriya lerpaḍun sukhamu mānyaśreṇi keṭlabbu rū  
+pājīvāḻiki nedi dikku dhṛtinī bhaktul bhavatpādanī  
+rejambul bhajiyintu reteRaṅgunan śrī kāḻahastīśvarā! 
+‖ 22 ‖
+
+taraṅgal pippalapatramul meRaṅgu ṭaddambul maruddīpamul  
+karikarṇāntamu leṇḍamāvula tatul khadyotkīṭaprabhal  
+suravīdhīlikhitākśharambu lasuvul jyotsnāpaḥpiṇḍamul  
+sirulandela madāndhulauduru janul śrī kāḻahastīśvarā! 
+‖ 23 ‖
+
+ninnunnammina rīti namma norulan nīkanna nākennale  
+rannaldammulu tallidaṇḍrulu gurundāpatsahāyundu nā  
+yannā! yennaḍu nannu saṃskṛtiviśhādāmbhodhi dāṭiñchi ya  
+Chchinnānandasukhābdhiṃ delchedo kade śrī kāḻahastīśvarā! 
+‖ 24 ‖
+
+nī pañchaṃ baḍiyuṇḍagāṃ galiginan bhikśhānname chālu n  
+kśhepaṃ babbina rājakīṭamula nesevimpṅgānopa nā  
+śāpāśambulaṃ juṭṭi trippakumu saṃsārārdhamai baṇṭugāṃ  
+jepaṭṭaṃ daya galgeneni madilo śrī kāḻahastīśvarā! 
+‖ 25 ‖
+
+nī perun bhavadaṅghritīrdhamu bhavanniśhṭhyūta tāmbūlamun  
+nī paḻlembu prasādamuṃ gonikadā ne biḍḍanaināṇḍa na  
+nnīpāṭiṃ garuṇimpu mompa niṅka nīnevvārikiṃ biḍḍagāṃ  
+jepaṭṭaṃ daguṃ baṭṭi mānaṃ dagado śrī kāḻahastīśvarā! 
+‖ 26 ‖
+
+ammā yayya yaṭañchu nevvarini nenannanśivā! ninnune  
+summī! nī madiṃ dallidaṇḍrulanaṭañchu njūḍaṅgāmboku nā  
+kimmaiṃ dalliyuṃ daṇḍriyun guruṇḍu nīve kāka saṃsārapuṃ  
+jimmañjīkaṇṭi gappina ngaḍavu nan śrī kāḻahastīśvarā! 
+‖ 27 ‖
+
+koḍukul puṭṭa raṭañchu neḍtu ravivekul jīvanabhrāntulai  
+koḍukul puṭṭare kauravendruna kanekul vāriche negatul  
+vaḍaseṃ butrulu leni yā śukunakun bāṭillene durgatul!  
+cheḍune mokśhapadaṃ maputrakunakun śrī kāḻahastīśvarā! 
+‖ 28 ‖
+
+grahadośhambulu durnimittamulu nīkaḻyāṇanāmambu pra  
+tyahamuṃ berkonuttamottamula bādhambeṭṭagānopune?  
+dahanuṃ gappaṅgañjālune śalabhasantānambu nī sevaṃ je  
+si hataklesulu gārugāka manujul śrī kāḻahastīśvarā! 
+‖ 29 ‖
+
+aḍugaṃmonika nanyamārgaratulambrāṇāvanotsāhinai  
+yaḍugamboyina modu nīdu padapadmārādhakaśreṇiyu  
+nneḍaku nninnu bhajimpaṅgāṅganiyu nākelā parāpekśha ko  
+reḍi diṅkemi bhavatprasādame tagun śrī kāḻahastīśvarā! 
+‖ 30 ‖
+
+madamātaṅgamu landalambula harul māṇikyamu lpallakul  
+mudital chitradukūlamu lparimaḻambu lmokśhamīñjālune?  
+madilo vīni napekśhasesi nṛpadhāmadvāradeśambuṃ gā  
+chi dinambul vṛdhaputturaGYulakaṭā śrī kāḻahastīśvarā! 
+‖ 31 ‖
+
+rosī royadu kāminījanula tāruṇyorusaukhyambulan  
+pāsī pāyaru putramitrajana sampadbhrānti vāñChālatal  
+kosī koyadu nāmanaṃ bakaṭa nīkuṃ brītigā sat kriyal  
+chesī cheyadu dīni trullaṇapave  śrī kāḻahastīśvarā! 
+‖ 32 ‖
+
+ennellundu nemi gandu niṅkanenevvāri rakśhiñchedan  
+ninne niśhṭha bhajiñcheda nnirupamonnidrapramodambu nā  
+kennaṇḍabbeḍu nntakālamiṅka neniṭlunna nemayyeḍiṃ?  
+jinnambuchchaka nannu nelukolave   śrī kāḻahastīśvarā! 
+‖ 33 ‖
+
+chāvaṃ gālamu cheruvau ṭeRiṅgiyuṃ jālimpaṅgā leka na  
+nnevaidyuṇḍu chikitsaṃ brovaṅgalaṇḍo yemandu rakśhiñchuno  
+e velpul kṛpañjūturo yanuchu ninnintainaṃ jintimpaṇḍā  
+jīvachChrādhdhamuṃ jesikonna yatiyun śrī kāḻahastīśvarā! 
+‖ 34 ‖
+
+dinamuṃ jittamulo suvarṇamukharī tīrapradeśāmrakā  
+nanamadhyopala vedikāgramuna nānandambunaṃ baṅkajā  
+nananiśhtha nnunuṃ jūḍaṃ gannanadivo saukhyambu lakśhmīvilā  
+sinimāyānaṭanal sukhambu lagune śrī kāḻahastīśvarā! 
+‖ 35 ‖
+
+ālañchu nmeḍaṃ gaṭṭi dāniki navatyaśreṇiṃ galpiñchi ta  
+dbhālavrātamu nichchipuchchuṭanu sambandhambu gāviñchi yā               
+mālarmambuna bāndhavaṃ baneḍi premaṃ gondaRaṃ drippaṅgāṃ  
+sīlansīla yamarchina ṭlosaṅgito śrī kāḻahastīśvarā! 
+‖ 36 ‖
+
+tanuve nityamugā nonarchu madiledā chachchi janmimpakuṃ  
+ḍa nupāyambu ghaṭimpu māgatula reṇṭa nnerpu lekunna le  
+dani nākippuḍa cheppu cheyaṅgala kāryambunna saṃsevaṃ je  
+si ninuṃ gāñchedaṅgāka kālamunano śrī kāḻahastīśvarā! 
+‖ 37 ‖
+
+padunālgele mahāyugambu loka bhūpāluṇḍu; chelliñche na  
+yyudayāstāchalasandhi nāGYa nokaṃ ḍāyuśhmantuṇḍai vīriya  
+bhyudayaṃ bevvaru cheppaṅgā vinaro yalpulmattulai yela cha  
+chchedaro rājula mañchu nakkaṭakaṭā! śrī kāḻahastīśvarā! 
+‖ 38 ‖
+
+rājannantane povunā kṛpayu dharmambābhijātyambu vi  
+dyājātakśhama satyabhāśhaṇamu vidvanmitrasaṃrakśhayun  
+sauganyambu kṛtambeRuṅgaṭayu viśvāsambu gākunna du  
+rbījaśreśhthulu gāṃ gatambu galade śrī kāḻahastīśvarā! 
+‖ 39 ‖
+
+munu nīche napavargarājyapadavī mūrdhābhiśhekambu gāṃ  
+china puṇyātmulu nenu nokkasarivo chintiñchi chūḍaṅga ne  
+ṭlaninaṃ gīṭaphaṇīndrapotamadave daṇḍograhiṃsāvichā  
+rini gāṅgāṃ ninu gānaṅgāka madilo śrī kāḻahastīśvarā! 
+‖ 40 ‖
+
+pavamānāśanabhūśhaṇaprakaramun bhadrebhacharmambu nā-  
+ṭavikatvambuṃ priyambulai bhugahaśuṇḍālātavīchārulan  
+bhavaduḥkhambulaṃ bāpu ṭoppuṃ jelandimbāṭiñchi kaivalyami-  
+chchi vinodiñchuṭa kemi kāraṇamayā śrī kāḻahastīśvarā! 
+‖ 41 ‖
+
+amarastrīla ramiñchinaṃ jeḍadu mohaṃ bintayun brahmapa-  
+ṭṭamu sidhdhiñchina nāsa dīRadu nirūḍhakrodhamun sarvalo-  
+kamula nmriṅgina māna dinduṃ gala sau-khyaṃ bolla nīsevaṃ je-  
+si mahāpātakavārirāśiṃ gaḍatun śrī kāḻahastīśvarā! 
+‖ 42 ‖
+
+chanuvāriṃ gani yedchuvāru jamuṇḍā satyambugā vattu me  
+manumānambiṅka ledu nammamani tārāveḻa nārevunan  
+munuṅgambovuchu bāsa seyuṭa sumī mummāṭikiṃ jūḍagāṃ  
+jenaṭu lgānaru dīnibhāvamidivo śrī kāḻahastīśvarā! 
+‖ 43 ‖
+
+bhavaduḥkhambulu rājakīṭamula nebrārdhiñchinaṃ bāyune  
+bhavadaṅghristutichetaṅgāka vilasadbālakśhudhākleśadu  
+śhṭavidhulmānune chūḍa meṅkameḍachaṇṭandalli kāruṇyadba  
+śhthiviśeśhambuna nichchi chaṇṭambale no śrī kāḻahastīśvarā! 
+‖ 44 ‖
+
+pavi puśhpambagu nagni mañchagu nakūpārambu bhūmīsthalaṃ  
+bavu śatruṃ ḍatimitruṇḍau viśhamu divyāhāramau nennaṅgā  
+navanīmaṇḍalilopalan śiva śive tyābhāśhaṇollāsikin  
+śiva nī nāmamu sarvavaśyakaramau śrī kāḻahastīśvarā! 
+‖ 45 ‖
+
+levo kānalaṃ gandhamūlaphalamul levo guhal toyamul  
+levo yeRulaṃ ballavāstaraṇamul levo sadā yātmalo  
+levo nīvu viraktula nmanupa jāliṃ bondi bhūpāluran  
+seval seyaṅgaṃ bodu reloko janul śrī kāḻahastīśvarā! 
+‖ 46 ‖
+
+munu neṃ buṭṭina puṭṭu lenni galavo mohambuche nanduñje  
+sina karmambula provu lenni galavo chintiñchinan gāna nī  
+jananambe yani yunna vāḍa nidiye chālimpave ninnuṃ go  
+lchina puṇyambunakuṃ gṛpāratuṇḍavai śrī kāḻahastīśvarā! 
+‖ 47 ‖
+
+tanu vendāka dharitri nuṇḍu nanu nandākan mahārogadī  
+panaduḥkhādulaṃ bondakuṇḍa nanukampādṛśhṭi vīkśhiñchi yā  
+venukan nīpadapadmamul dalañchuchun viśvaprapañchambuṃ bā  
+sina chittambuna nuṇḍañjeyaṅgadave śrī kāḻahastīśvarā! 
+‖ 48 ‖
+
+malabhūyiśhṭa manojadhāmamu suśhumnādvāramo yāru kuṃ  
+ḍaliyo pādakarākśhiyugmambulu śhaṭkañjambulo momu dā  
+jalajambo niṭalambu chandrakaḻayo saṅgambu yogambo gā  
+sili sevinturu kāntalan bhuvi janul śrī kāḻahastīśvarā! 
+‖ 49 ‖
+
+jalakambul rasamul prasūnamulu vāchābandhamul vādyamu  
+lkalaśabdhadhvanu lañchitāmbara malaṅkārambu dīptu lmeRuṃ  
+gulu naivedyamu mādhurī mahimagāṃ goltunninun bhaktiraṃ  
+jila divyārchana gūrchi nerchina kriyan śrī kāḻahastīśvarā! 
+‖ 50 ‖
+
+elīla nnutiyimpavachchu nupamotprekśhādhvanivyaṅgyaśa  
+bdhālaṅkāraviśeśhabhāśhala kalabhyambaina nīrūpamuṃ  
+jāluñjāluṃ gavitvamulniluchune satyambu varṇiñchucho  
+chī! lajjimparugāka mādṛśakavul śrī kāḻahastīśvarā! 
+‖ 51 ‖
+
+pāluṃ buvvayuṃ beṭṭedaṃ guḍuvarā pāpanna rā yanna le  
+lelemmanna naraṇṭipaṇḍluṃ goni telekunna nenollanaṃ  
+ṭe lālimpare tallidaṇḍrulapu ḍaṭle techchi vātsalya la  
+kśhmīlīlāvachanambulaṃ guḍuparā śrī kāḻahastīśvarā! 
+‖ 52 ‖
+
+kalalañchun śakunambulañchu grahayogaṃ bañchu sāmudrikaṃ  
+bu laṭañchuṃ devulañchu diśhṭmanuchun bhūtambulañchu nviśhā  
+dulaṭañchu nnimiśhārdha jīvanamulañchuṃ brītiṃ buṭṭiñchi yī  
+silugul prāṇulakenni chesitivayā śrī kāḻahastīśvarā! 
+‖ 53 ‖
+
+talamīndaṃ gusumaprasāda malikasthānambupai bhūtiyun  
+gaḻasīmambuna daṇḍa nāsikatudan gandhaprasārambu lo  
+pala naivedyamuṃ jerchu ne manujṃ ḍābhaktuṇḍu nīkeppuḍuṃ  
+jelikāḍai vihariñchu raupyagiripai śrī kāḻahastīśvarā! 
+‖ 54 ‖
+
+āluṃ biḍḍalu mitrulun hitulu niśhṭardhambu līnerture  
+veḻa nvāri bhajimpaṃ jālipaḍa kāvirbhūta modambunaṃ  
+gālambella sukhambu nīku niṅka bhaktaśreṇi rakśhimpake  
+śrīlevvārikiṃ gūḍambeṭṭedavayā śrī kāḻahastīśvarā! 
+‖ 55 ‖
+
+sulabhulmūrkhu lanuttamottamula rājulgalgiyeveḻa na  
+nnalantalabeṭṭina nī padābdhamulaṃ bāyañjāla nemichchinaṃ  
+galadhautāchala melu ṭambunidhiloṃ gāpuṇḍu ṭabjambu paiṃ  
+jeluvoppun sukhiyimpaṃ gāñchuṭa sumī śrī kāḻahastīśvarā! 
+‖ 56 ‖
+
+kaladhautādriyu nasthimālikayu gogandharvamun bunkayuṃ  
+bulitolu nbhasitambuṃ bāmpatodavul pokuṇḍaṃ dombuṭlakai  
+toli nevāralatoḍaṃ buṭṭaka kaḻādulgalge melayyenā  
+siluvuldūramuchesikoṃ ṭeRiṅgiye śrī kāḻahastīśvarā! 
+‖ 57 ‖
+
+śrutulabhyāsamuchesi śāstragarimal śodhiñchi tattvambulan  
+mati nūhiñchi śarīra masthiramu brahmambenna satyambu gāṃ  
+chiti mañchun sabhalan vṛdhāvachanamu lcheppaṅgane kāni ni  
+rjitachittasthira saukhyamul deliyaro śrī kāḻahastīśvarā! 
+‖ 58 ‖
+
+gati nīvañchu bhajiñchuvāra lapavargaṃ bondagānela saṃ  
+tatamuṃ gūṭikinai charimpa vinaledā 'yāyu rannaṃ praya  
+chChati' yañchunmoRaveṭṭagā śrutulu saṃsārāndhakārābhi dū  
+śhitadurmārgul gānaṃ gānambaḍavo śrī kāḻahastīśvarā! 
+‖ 59 ‖
+
+ratirā juddhati mīRa nokkapari gorājāśvuni nnottaṃ bo  
+nataṃ ḍādarpaku vega notta gavayaṃ bāmbotunuṃ dāṅki yu  
+grataṃ borāḍaṅganunna yunnaḍimi leṅgalvole śokānala  
+sthitipālai moRapeṭṭunan manupave śrī kāḻahastīśvarā! 
+‖ 60 ‖
+
+antā saṃśayame śarīraghaṭanambantā vichārambe lo  
+nantā duḥkhaparamparānivitame menantā bhayabhrāntame  
+yantānantaśarīraśośhaṇame durvyāpārame dehikin  
+jintan ninnuṃ dalañchi pondaru narul śrī kāḻahastīśvarā! 
+‖ 61 ‖
+
+santośhiñchitiniṃ jāluñjālu ratirājadvārasaukhyambulan  
+śāntin bonditiṃ jāluñjālu bahurājadvārasaukhyambulan  
+śāntiṃ bondedaṃ jūpu brahmapadarājadvārasaukhyambu ni  
+śchintan śāntuṇḍa naudu nī karuṇache śrī kāḻahastīśvarā! 
+‖ 62 ‖
+
+stotraṃ banyulaṃ jeyanollani vratasthulvole vesambutoṃ  
+butrī putra kalatra rakśhaṇa kaḻābudhdhin nṛpālā(a)dhaman  
+bātraṃ bañchu bhajimpambodu ritiyun bhāśhyambe yivvārichā  
+ritraṃ bennaṇḍu mechcha neñcha madilo śrī kāḻahastīśvarā! 
+‖ 63 ‖
+
+akalaṅkasthiti nilpi nāḍa manu ghaṇṭā(ā)rāvamun bindudī  
+pakaḻāśreṇi vivekasādhanamuloppan būni yānandatā  
+rakadurgāṭavilo manomṛgamugarvasphūrti vāriñchuvā  
+rikiṅgā vīḍu bhavograbandhalatikal śrī kāḻahastīśvarā! 
+‖ 64 ‖
+
+okayardhambu ninnu ne naḍugaṅgā nūhiñchi neṭlainaṃ bo  
+mmu kavitvambulu nākuṃ jendanivi yemo yaṇṭivā nāduji  
+hvaku naisargika kṛtya mintiya sumī prārdhiñchuṭe kādu ko  
+rikala nninnunugāna nāku vaśamā śrī kāḻahastīśvarā! 
+‖ 65 ‖
+
+śukamul kiṃśukapuśhpamul gani phalastomaṃ baṭañchunsamu  
+tsukataṃ deraṅgaṃ bovu nachchaṭa mahā duḥkhambu siddhiñchuṃ; ga  
+rmakaḻābhāśhalakellaṃ brāpulagu śāstrambu lvilokiñchuvā  
+riki nityatvamanīśha dūramaguñjū śrī kāḻahastīśvarā! 
+‖ 66 ‖
+
+okariṃ jampi padasthulai bratukaṃ dāmokkokka rūhinture  
+loko tāmennaṇḍuṃ jāvaro tamakuṃ bovo sampadal putrami  
+trakaḻatrādulatoḍa nitya sukhamandaṃ ganduro yunnavā  
+riki ledo mṛti yennaṇḍuṃ gaṭakaṭa śrī kāḻahastīśvarā! 
+‖ 67 ‖
+
+nī kāruṇyamuṃ galginaṭṭi naruṃ ḍenīchālayambula joraṃ  
+ḍekārpaṇyapu māṭalāḍa narugaṃ ḍevvārito veśhamul  
+gaikoḍe matamul bhajimpaṃ ḍilanekaśhṭaprakārambulan  
+jīkākai cheḍipondu jīvanadaśan śrī kāḻahastīśvarā! 
+‖ 68 ‖
+
+GYātul drohambu vāṇḍru seyukapaṭeryādi kriyādośhamul  
+mātaṇḍrāna sahimparādu pratikarmambiñchuke jeyagāṃ  
+bote dosamu gāna māni yatinai poṅgorinan sarvadā               
+chetaḥkrodhamu māna deṭlu naḍutun śrī kāḻahastīśvarā! 
+‖ 69 ‖
+
+chaduvul nerchina paṇḍitādhamulu svechChābhāśhaṇakrīḍalan  
+vadaran saṃśayabhīkarāṭavulaṃ drovaldappi vartimpaṅgā  
+madanakrodhakirātulanduṃ gani bhīmaprauḍhicheṃ dāṅkinaṃ  
+jedaruṃ jittamu chittagimpaṅgadave śrī kāḻahastīśvarā! 
+‖ 70 ‖
+
+rosiṃ deṇṭidi ronta deṇṭidi mano rogasthuṇḍai dehi tāṃ  
+būsindeṇṭidi pūnta leṇṭivi madā(a)pūtambu lī dehamul  
+mūsindeṇṭidi mūntaleṇṭivi sadāmūḍhatvame kāni tāṃ  
+jesindeṇṭidi chentaleṇṭivi vṛdhā śrī kāḻahastīśvarā! 
+‖ 71 ‖
+
+śrī śaileśu bhajintuno yabhavuṅgāñchī nādhu sevintuno  
+kāśīvallabhuṃ golvamboduno mahā kāḻeśuṃ būjintuno  
+nāśīlaṃ baṇuvaina meru vanuchun rakśhimpave nī kṛpā  
+śrī śṛṅgāravilāsahāsamulache śrī kāḻahastīśvarā! 
+‖ 72 ‖
+
+ayavārai chariyimpavachchuṃ dana pādāṃ(a)bhojatīrdhambulan  
+dayatoṃ gommanavachchu sevakuni yardhaprāṇadehādula  
+nniyu nā sommanavachchuṅgāni sirulannindiñchi ninnātmani  
+śhkriyataṃ gānaṅgarādu paṇḍitulakun śrī kāḻahastīśvarā! 
+‖ 73 ‖
+
+māyā(a) jāṇḍakaraṇḍakoṭiṃ boḍigāmardhiñchiro vikramā(a)  
+jeyuṃ gāyajuṃ jampiro kapaṭalakśhmī mohamuṃ bāsiro  
+yāyurdayabhujaṅgamṛtyuvu nanāyāsambunan gelchiro  
+śreyodāyak laudu reṭṭu litarul śrī kāḻahastīśvarā! 
+‖ 74 ‖
+
+chavigāṃ jūḍa vinaṅga mūrkonaṃ danūsaṅgharśhaṇāsvādamoṃ  
+da vinirmiñcheda vela jantuvula netatkrīḍale pātaka  
+vyavahārambalu seyunemiṭiki māyāvidyache broddupu  
+chchi vinodimpaṅga dīna nemi phalamo śrī kāḻahastīśvarā! 
+‖ 75 ‖
+
+venukṃ jesina ghoradurdaśalu bhāvimpaṅga rontayyeḍun  
+venukan mundaṭa vachchu durmaraṇamul vīkśhimpa bhītayyeḍun  
+nanu neñjūḍaga nāvidhuldalañchiyun nāke bhayaṃ bayyeḍuṃ  
+jenakuñjīṅkaṭiyāyeṃ gālamunakun śrī kāḻahastīśvarā! 
+‖ 76 ‖
+
+pariśīliñchiti mantratantramulu cheppa nviṇṭi sāṅkhyādiyo  
+ga rahasyambulu veda śāstramulu vakkāṇiñchitin śaṅkavo  
+darayaṃ gummaḍikāyaloni yavagiñjantaina nammichñchi su  
+sthiraviGYānamu trovaṃ jeppaṅgadave śrī kāḻahastīśvarā! 
+‖ 77 ‖
+
+modalaṃ jesinavāri dharmamulu nirmūlambugāṃ jesi du  
+rmadulai yippuḍu vāre dharmamu lonarpaṃ dammu daivambu na  
+vvaḍe rānunna durātmulella damatrovaṃ bovare ela che  
+sedaro mīndu dalañchichūḍa kadhamul śrī kāḻahastīśvarā! 
+‖ 78 ‖
+
+kāsantaina sukhaṃ bonarchuno manaḥkāmambu līḍerchuno  
+vīsambainanu veṇṭavachchuno jagadvikhyātiṃ gāviñchuno  
+dosambu lbeḍaṃ bopuno valasinandoḍto mimuṃ jūpuno  
+Chī! saṃsāradurāśa yeludupavo śrī kāḻahastīśvarā! 
+‖ 79 ‖
+
+okapūṇṭiñchuka kūḍa takkuvagune norvaṅgaleṃ ḍeṇḍako  
+paka nīḍanvedakuṃ jaliṃ jaḍichi kumpaṭlettukoñjūchu vā  
+naku niṇḍiṇḍlunu dūRu nītanuvu dīnanvachchu saukhyambu ro  
+si kaḍāsimparugāka martvulakaṭa śrī kāḻahastīśvarā! 
+‖ 80 ‖
+
+kedārādisamastatīrdhamulu kormiñjūḍaṃ boneṇṭikin  
+gāḍā muṅgili vāraṇāsi! kaḍupe kailāsaśailambu mī  
+pādadhyānamu sambhaviñchunapuḍe bhāvimpa naGYānala  
+kśhmīdāridryulu gāre loku lakaṭā! śrī kāḻahastīśvarā! 
+‖ 81 ‖
+
+tamakoṃ boppaṃ barāṅganājanapara dravyambulan mruchchilaṃ  
+ga mahodyogamu seyanemmanamudoṅgaṃ baṭṭi vairāgyapā  
+śamulaṃ juṭṭi bigimañchi nīducharaṇa stambhañjunaṃ gaṭṭivai  
+chi mudaṃ beppuḍuṃ galgañjeya gaḍave śrī kāḻahastīśvarā! 
+‖ 82 ‖
+
+vedhaṃ diṭṭagarādugāni bhuvilo vidvāṃsulañjeya ne  
+lā dhīchāturiṃ jeseṃ jesina gulāmāpāṭane poka kśhu  
+dbādhādul galigimpanela yadi kṛtyambaina durmārgulaṃ  
+jī! dhātrīśulaṃ jeyaneṇṭi kakaṭā! śrī kāḻahastīśvarā! 
+‖ 83 ‖
+
+puḍami nninnoka bilvapatramunaneṃ būjiñchi puṇyambunuṃ  
+baḍayanneraka pekkudaivamulakuṃ bappul prasādambulaṃ  
+guḍumul doselu sāresattulaḍukul guggillunuṃ beṭṭuchuṃ  
+jeḍi yenduṃ goRagākapodu rakaṭā! śrī kāḻahastīśvarā! 
+‖ 84 ‖
+
+vittaGYānamu pādu chittamu bhavāveśambu rakśhāmbuvul  
+mattatvambu tadaṅkuraṃ ainṛtamul māRāku latyantadu  
+dvṛttul puvvuluṃ baṇḍlu manmadhamukhā virbhūtadośhambuluṃ  
+jittādhyunnatanimbabhūjamunakun śrī kāḻahastīśvarā! 
+‖ 85 ‖
+
+nīpaiṃ gāpyamu cheppuchunna yataṇḍunnīpadyamul vrāsiyi  
+mmā pāṭhaṃmonarintunanna yataṇḍun mañjuprabandhambu ni  
+śhṭāpūrtiṃ baṭhiyiñchuchunna yataṇḍun sadbāndhavul gāka chī  
+chī! pṛśhṭhāgatabāndhavambu nijamā! śrī kāḻahastīśvarā! 
+‖ 86 ‖
+
+sampadgarvamuṃ bāRandroli ripulan jaṅkiñchi yākāṅkśhalan  
+dampulveṭṭi kaḻaṅkamu lnaRaki bandhakleśadośhambulaṃ  
+jimpulsesi vayovilāsamulu saṅkśhepiñchi bhūtambulaṃ  
+jempalveyaka ninnuṃ gānanagunā śrī kāḻahastīśvarā! 
+‖ 87 ‖
+
+rājaśreṇiki dāsulai sirulaṃ goraṃ jeraṅgā saukhyamo  
+yī janmambu tarimpañjeyagala mimme proddu seviñchu ni  
+rvyājāchāramu saukhyamo teliyalerau mānavu lpāparā  
+jījātātimadāndhabuddhu laguchun śrī kāḻahastīśvarā! 
+‖ 88 ‖
+
+ninnaṃ jūḍaro monnaṃ jūḍaro janul nityambu jāvaṅga nā  
+pannu lgannanidhāna mayyeḍi dhanabhrāntin visarjimpale  
+kunnā rennaṇḍu ninnu gaṇḍu rika martvul golvaremo ninun  
+vinnaṃ bovaka yanyadaivaratulan śrī kāḻahastīśvarā! 
+‖ 89 ‖
+
+nanne yenuṅgutoluduppaṭamu buvvākālakūtambu che  
+ginne brahmakapāla mugramagu bhoge kaṇṭhahārambu mel  
+ninnīlāguna nuṇṭayuṃ delisiyun nīpādapadmambu che  
+rchen nārayaṇuṃ ḍeṭlu mānasamuṃ dā śrī kāḻahastīśvarā! 
+‖ 90 ‖
+
+dvāradvāramulanduṃ jañchukijanavrātambu daṇḍaṃmulan  
+dorantsthali bagganaṃ boḍuchuchun durbhāśhalāḍa nmaRin  
+vāriṃ brārdhanachesi rājulaku sevalseyaṅgāmborula  
+kśhmīrājyambunu gori nīmarijanul śrī kāḻahastīśvarā! 
+‖ 91 ‖
+
+ūrūraṃ janulella bikśha midaroyundaṃ guhalgalgavo  
+chīrānīkamu vīdhulaṃ dorukaro śītāmṛtasvachChavāḥ  
+pūraṃ berulaṃ bāRado tapasulambrovaṅga nīvopavo  
+cheraṃ bovudurela rāgula janul śrī kāḻahastīśvarā! 
+‖ 92 ‖
+
+daya jūḍuṇḍani gondaRāḍuduru nityambun ninuṃ golchuchun  
+niyamaṃ bento phalambu nantiyekadā nīvīya piṇḍento aṃ  
+tiyakā nippaṭiyuṃ dalampananu buddhiṃ jūḍa; nelabbuni  
+śhkriyatan ninnu bhajimpa kiśhṭasukhamul śrī kāḻahastīśvarā! 
+‖ 93 ‖
+
+ārāvaṃ budayiñcheṃ dārakamuga nātmābhravīdhinmahā(a)  
+kārokāramakārayuktamagu noṅkārābhidhānambu che  
+nnārun viśva manaṅgaṃ danmahimache nānādabindul sukha  
+śrī rañjillaṃ gaḍaṅgu nīvade sumī śrī kāḻahastīśvarā! 
+‖ 94 ‖
+
+nībhaktu lmadivela bhaṅgula ninunsevimbuchun veḍaṅgā  
+lobhambeṭiki vāri korkulu kṛpaḻutvambunaṃ dīrmarā  
+dā bhavyambuṃ dalañchi chūḍu paramārdhaṃ bichchi pommanna nī  
+śrī bhāṇḍaramuloṃ goRantapaḍunā śrī kāḻahastīśvarā! 
+‖ 95 ‖
+
+modalanbhaktulakichchināṇḍavugadā mokśhambu neṃ ḍemayā  
+'mudiyaṅgā mudiyaṅgaṃ buṭṭu ghanamau mohambu lobhambu' na  
+nnadi satyambu kṛpaṃ dalampa nokavuṇyātmuṇḍu ninnātma go  
+lchi dinambun moRaveṭṭaṅgāṃ gaṭagaṭā! śrī kāḻahastīśvarā! 
+‖ 96 ‖
+
+kāladvārakavāṭabandhanamu duśhkālpramāṇakriyā  
+lolājālakachitraguptamukhava lmīkograjihvādbhuta  
+vyaḻavyāḻavirodhi mṛtyumukhadaṃśhṭrā(a)hārya vajrambu di  
+kchelālaṅkṛta! nīdunāma marayan śrī kāḻahastīśvarā! 
+‖ 97 ‖
+
+padivelalainanu lokakaṇṭakulacheṃ brāpriñchu saukhyambu nā  
+madikiṃ bathyamu gādu sarvamunakun madhyasthuṇḍai satyadā  
+nadayādul gala rāju nākosaṅgu menavvāni nī yaṭlachū  
+chi dinambun mudamondudun gaḍapaṭan śrī kāḻahastīśvarā! 
+‖ 98 ‖
+
+tātal talliyuṃ daṇḍriyun maRiyuṃ beddal chāvagāṃ jūḍaro  
+bhītiṃ bondaṅganela chāvunakuṅgāṃ beṇḍlāmubiḍḍal hita  
+vrātambun balavimpa jantuvulakun vālāyamaiyuṇḍaṅgāṃ  
+jetovīdhi naruṇḍu ningoluvaṇḍo śrī kāḻahastīśvarā! 
+‖ 99 ‖
+
+jātul seppuṭa sevaseyuṭa mṛśhal sandhiñchu ṭanyāyavi  
+khyātiṃ bonduṭa koṇḍekāṇḍavuṭa hiṃsārambhakuṇḍauṭa mi  
+dhyātātparyamulāḍuṭanniyuṃ baradravyambunāśiñchi yī  
+śrī tā nenniyugambu luṇḍaṅgalado śrī kāḻahastīśvarā! 
+‖ 100 ‖
+
+cheḍugul kondaRu kūḍi cheyaṅgambanul chīkaṭlu dūRaṅgaṃ mā  
+lpaḍitiṃ gāna grahimparāni ninu nollañjālaṃ bommañchu nil  
+velandrochinaṃ jūrupaṭṭukoni ne vrelāḍuduṃ gorkiṃ go  
+reḍi yardhambulu nāku nela yiḍavo śrī kāḻahastīśvarā! 
+‖ 101 ‖
+
+bhasitoddhūḻanadhūsarāṅgulu jaṭābhārottamāṅgul tapo  
+vyasanamul sādhitapañchavarṇarasamul vairāgyavantul nitāṃ  
+tasukhasvāntulu satyabhāśhaṇalu nudyadratnarudrākśharā  
+jisametul tudanevvaraina golutun śrī kāḻahastīśvarā! 
+‖ 102 ‖
+
+jalajaśrī gala mañchinīllu galavāchatrātilo bāpure!  
+velivāḍa nmaRi bāmpanillugaladāvesālugā nakkaṭā!  
+nali nā reṇḍu guṇambu leñchi madilo nannemi royaṅga nī  
+cheluvambaina guṇambu leñchukonave śrī kāḻahastīśvarā! 
+‖ 103 ‖
+
+gaḍiyal reṇṭiko mūṇṭiko gaḍiyako kādeni neṇḍelliyo  
+kaḍa neṇḍādiko yennaṇḍo yeRuṃ ga mīkāyambu lībhūmipaiṃ  
+baḍagā nunnavi dharmamārgamokaṭiṃ bāṭimpa rī mānavul  
+cheḍugul nīpadabhaktiyuṃ deliyaro śrī kāḻahastīśvarā! 
+‖ 104 ‖
+
+kśhitilo doḍḍaturaṅgasāmajamu lechitrammu lāndoḻikā  
+tatu le lekka vilāsinījanasuvasravrāta bhūśhākalā  
+patanūjādika memidurlabhamu nī pādammu larchiñchucho  
+jitapaṅkeruhapādapadmayugaḻā śrī kāḻahastīśvarā! 
+‖ 105 ‖
+
+salilammul jukhukapramāṇa moka puśhmammun bhavanmauḻi ni  
+śchalabaktiprapattiche naruṇḍu pūjal seyaṅgā dhanyuṇḍau  
+nila gaṅgājalachandrakhaṇḍamula dāninduṃ dudiṃ gāñchu nī  
+cheluvaṃ bantayu nī mahattva midigā śrī kāḻahastīśvarā! 
+‖ 106 ‖
+
+tamanetradyutiṃ dāme chūḍa sukhamaitādātmyamun gūrpaṅgā  
+vimalammul kamalābhamul jitalasadvidyullatālāsyamul  
+sumanobāṇajayapradammulanuchun jūchun janambūnihā  
+rimṛgākśhīnivahammukannugavalan śrī kāḻahastīśvarā! 
+‖ 107 ‖
+
+paṭavadrajjubhujaṅgavadrajatavi bhrāntisphurachChuktiva  
+dghaṭavachchandraśilājapākusumaru ksāṅgatyavattañchuvā  
+kpaṭimal nerturu chitsukhaṃ banubhavimpan leka durmedhanul  
+chiṭukannaṃ dalapoyañjūtu radhamul śrī kāḻahastīśvarā! 
+‖ 108 ‖
+
+ninu nindiñchina dakśhupaiṃ degavo vāṇīnādhu śāsimpavo  
+chanunā nī pādapadmasevakulaṃ duchChaṃ bāḍu durmārgulaṃ  
+benupan nīkunu nīdubhaktatatikin bhedambu gānaṅga va  
+chcheno lekuṇḍina nūRakuṇḍagalavā śrī kāḻahastīśvarā! 
+‖ 109 ‖
+
+karidaityun borigonna śūlamu ka(rā)ragra(stha)stambu gādo ratī  
+śvarunin gālchina phālalochanaśikhā vargambu challāReno  
+paranindāparulan vadhimpa vidiyun bhāśhyambe vāremi che  
+siri nīkun baramopakāra marayan śrī kāḻahastīśvarā! 
+‖ 110 ‖
+
+duramun durgamu rāyabāramu maRin doṅgarmamun vaidyamun  
+naranādhāśraya moḍaberamunu benmantrambu siddhiñchinan  
+arayan doḍḍaphalambu galgunadigā kākāryame tappinan  
+siriyuṃ bovunu brāṇahāniyu nagun śrī kāḻahastīśvarā! 
+‖ 111 ‖
+
+tanayuṃ gāñchi dhanambu niñchi divijasthānambu gaṭṭiñchi vi  
+pruna kudvāhamu jesi satkṛtikiṃ bātruṇḍai taṭākambu ne  
+rpunaṃ dravviñchi vanambu veṭṭi mananī poleḍu nīsevaṃ je  
+sina puṇyātmuṇḍu povu lokamunakun śrī kāḻahastīśvarā! 
+‖ 112 ‖
+
+kśhitinādhottama! satkavīśvaruṇḍ vachchen mimmulaṃ jūḍaṅgā  
+nataṇḍe meṭi kavitvavaikharini sadyaḥkāvyanirmāta tat  
+pratibha lmañchini tiṭṭupadyamulu cheppuṃ dātaṇḍainan mamuṃ  
+gritame chūchenu bommaṭañchu radhamul śrī kāḻahastīśvarā! 
+‖ 113 ‖
+
+nīkuṃ gāni kavitva mevvariki nenīnañchu mīdettitin  
+jekoṇṭin birudambu kaṅkaṇamu muñjeṃ gaṭṭitiṃ baṭṭitin  
+lokul mechcha vratambu nātanuvu kīlul nerpuluṃ gāvu Chī  
+Chī kālambularīti dappeḍu jumī śrī kāḻahastīśvarā! 
+‖ 114 ‖
+
+nichchal ninnu bhajiñchi chinmayamahā nirvāṇapīṭhambu pai  
+rachchalseyaka yārjavambu kujana vrātambucheṃ grāṅgi bhū  
+bhṛchchaṇḍāluraṃ golchi vāru danuṃ gopiṃman budhuṃ ḍārtuṇḍai  
+chichchāraṃ jamu rellaṃ jallukonuno śrī kāḻahastīśvarā! 
+‖ 115 ‖
+
+dantambu lpaḍanappuḍe tanuvunandārūḍhi yunnappuḍe  
+kāntāsaṅghamu royanappuḍe jarakrāntambu gānappuḍe  
+vitalmena jariñchanappuḍe kurulvellella gānappuḍe  
+chintimpanvale nīpadāmbujamulan śrī kāḻahastīśvarā! 
+‖ 116 ‖
+
+### PlainEnglish
+
+#### shree kaaLa hasteeshvara shatakam
+
+shreevidyutkalitaa.ajavaMjavamahaa-jeemootapaapaaMbudhaa-  
+raavegaMbuna manmanobjasamudee-rNatvaMbuM golpoyitin ❘  
+devaa! mee karuNaasharatsamayamiM-teM jaaluM jidbhaavanaa-  
+sevaM daamarataMparai maniy.edan- shree kaaLahasteeshvaraa! 
+‖ 1 ‖
+
+vaaNeevallabhadurlabhaMbagu bhavaddvaaraMbuna nnilchi ni  
+rvaaNashreeM j.eRapaTTaM joochina vichaaradrohamo nitya ka  
+LyaaNakreeDalaM baasi durdashalapaa lai raajalokaadhama  
+shreNeedvaaramu dooRaMjesi tipuDo shree kaaLahasteeshvaraa! 
+‖ 2 ‖
+
+aMtaa midhya talaMchi choochina naruM DaTlau T.eRiMgin sadaa  
+kaaMta lputrulu nardhamun tanuvu ni kkaMbaMchu mohaarNava  
+chibhraaMtiM j.eMdi jariMchu gaani paramaardhaMbaina neeyaMduM daaM  
+jiMtaakaMtayu jiMta nilpaMDugadaa shree kaaLahasteeshvaraa! 
+‖ 3 ‖
+
+nee naa saMd.oDaMbaaTumaaTa vinumaa neecheta jeetaMbu neM  
+gaaniM baTTaka saMtataMbu madi veDkaM g.oltu naMtassapa  
+tnaaneekaMbuna k.oppagiMpakumu nannaapaaTeeye chaaluM de  
+jeen.ollaM gari n.olla n.olla sirulan shree kaaLahasteeshvaraa! 
+‖ 4 ‖
+
+bhavakeleemadiraamadaMbuna mahaa paapaatmuMDai veeDu na  
+nnu vivekiMpaM DaTaMchu nenu narakaarNoraashipaalainaM ba  
+TTavu; baaluMD.okachoTa naaTatamitoDa nnootaM goolaMgaM daM  
+Dri vichaariMpaka yuMDunaa kaTakaTaa shree kaaLahasteeshvaraa! 
+‖ 5 ‖
+
+svaamidrohamuM jesi yen.okani g.olvaMbotino kaaka ne  
+neemaaTa nvinan.ollakuMDitin.o ninne dikkugaaM jooDano  
+yemee iTTivRRidhaaparaadhinagu nannee duHkhavaaraashivee  
+chee madhyaMbuna muMchi yuMpadagunaa shree kaaLahasteeshvaraa! 
+‖ 6 ‖
+
+divijakshhmaa ruha dhenu ratna ghanabhooti prasphuradratnasaa  
+nuvu nee villu nidheeshvaruMDu sakhuM DarNoraashikanyaavibhuM  
+DuvisheshhaarchakuM DiMka neek.ena ghanuMDuM galgune neevu choo  
+chi vichaariMpavu lemi n.evvaMDuDupun shree kaaLahasteeshvaraa! 
+‖ 7 ‖
+
+neeto yudhdhamu cheya noMpaM gavitaa nirmaaNashakti nninuM  
+breetuMjeyagalenu neek.oRaku daMDriMjaMpagaaMjaala naa  
+chetan rokaTa ninnum.ottav.eRatuMjeekaaku naabhakti ye  
+reetinnaakiMka ninnu jooDagalugan shree kaaLahasteeshvaraa! 
+‖ 8 ‖
+
+aaluMbiDDalu dallidaMDrulu dhanaMbaMchu nmahaabaMdhanaM   
+belaa naam.eDa gaTTinaaDavika ninneveLaM jiMtiMtu ni  
+rmoolaMbaina manaMbulo n.egaDu durmohaabdhiloM gruMki yee  
+sheelaamaalapu jiMta n.eTluDip.edo shree kaaLahasteeshvaraa! 
+‖ 9 ‖
+
+nippai paatakatoolashaila maDachun neenaamamun maanavul  
+tappan davvula vinna naMtaka bhujaadarpoddhatakleshamul  
+tappuMdaarunu muktu laudu ravi shaastraMbulmahaapaMDitul  
+ch.eppaMgaa damakiMka shaMka val.enaa shree kaaLahasteeshvaraa! 
+‖ 10 ‖
+
+veeD.eMbabbina yappuDuM dama nutul vinnappuDuMb.oTTaloM  
+gooDunnappuDu shreevilaasamulu paik.onnappuDuM gaayakul  
+paaDaMga vinunappuDun j.elaMgu daMbhapraayavishraaNana  
+kreeDaasaktula nemi ch.eppaval.eno shree kaaLahasteeshvaraa! 
+‖ 11 ‖
+
+ninu seviMpaga naapadal v.oDamanee nityotsavaM babbanee  
+janamaatruMDananee mahaatmu Dananee saMsaaramohaMbu pai  
+k.onanee gnyaanamu galganee grahaganul guMdiMpanee meluva  
+chchina raanee yavi naaku bhooshhaNamulo shree kaaLahasteeshvaraa! 
+‖ 12 ‖
+
+e vedaMbu baThiMch.e loota bhujaMgaM beshaastramulsooch.e daa  
+ne vidyaabhyasanaMb.onarch.eM gari ch.eMchemaMtra moohiMch.e bo  
+dhaavirbhaavanidaanamul chaduvulayyaa! kaavu! meepaadasaM  
+sevaasaktiy.e kaaka jaMtutatikin shree kaaLahasteeshvaraa! 
+‖ 13 ‖
+
+kaayal gaach.e vadhoonakhaagramulache gaayaMbu vakshhojamul  
+raayan raapaD.e R.ommu manmadha vihaarakleshavibhraaMtiche  
+braayaM baay.enu baTTagaTT.e dalach.eppan rota saMsaarameM  
+jeyaMjaala viraktuM jeyaMgadave shree kaaLahasteeshvaraa! 
+‖ 14 ‖
+
+ninneroopamugaa bhajiMtu madilo neeroopu mokaal.o stree  
+channo kuMchamu mekap.eMTikay.o yee saMdehamulmaanpi naa  
+kannaara nbhavadeeyamoorti saguNaa kaaraMbugaa joopave  
+chinneerejavihaaramattamadhupaa  shree kaaLahasteeshvaraa! 
+‖ 15 ‖
+
+ninu naavaaMkili gaavumaMTin.o marunneelaakaabhraaMtiM guM  
+T.ena p.ommaMTin.o y.eMgilichchi tinu tiMTeMgaani kaadaMTino  
+ninu n.emmiMdaga vishvasiMchusujanaaneekaMbu rakshhiMpaMje  
+sina naavinnapamela gaik.onavayaa shree kaaLahasteeshvaraa! 
+‖ 16 ‖
+
+Raalan RuvvagaM jetulaaDavu kumaaraa! rammu rammMchuneM  
+jaalan jaMpaMga netramu ndiviyaMgaashaktuMDaneM gaanu naa  
+sheelaM bemani ch.eppanunnadiMka nee chittaMbu naa bhaagyamo  
+shreelakshhmeepatisevitaaMghriyugaLaa! shree kaaLahasteeshvaraa! 
+‖ 17 ‖
+
+raajul mattulu vaariseva narakapraayaMbu vaarichchunaM  
+bhojaakshheechaturaMtayaanaturagee bhooshhaadu laatmavyadhaa  
+beejaMbul tadapekshha chaalu maritRRiptiM b.oMditin gnyaanala  
+kshhmeejaagratpariNaama mimmu dayato shree kaaLahasteeshvaraa! 
+‖ 18 ‖
+
+neeroopaMbu dalaMpaMgaaM dudam.odal negaana neevainacho  
+raaraa rammani yaMchuM j.eppavu pRRidhaaraMbhaMbu liMkeTikin!  
+neera nmuMpumu paala muMpu miMka ninne namminaaMDaM jumee  
+shreeraamaarchita paadapadmayugaLaa shree kaaLahasteeshvaraa! 
+‖ 19 ‖
+
+neeku nmaaMsamu vaaMChayeni kaRavaa neecheta leDuMDaMgaaM  
+jokainaTTi kuThaaramuMDa nanala jyotuMDa neeruMDaMgaa  
+baakaM b.oppa ghaTiMchi chetipunukan bhakshhiMpakaaboyacheM  
+jek.oM T.eMgilimaaMsamiTlu dagunaa shree kaaLahasteeshvaraa! 
+‖ 20 ‖
+
+raajai dushhkRRitiM j.eMd.eM jaMduruMDu raaraajai kuberuMDu dRRi  
+graajeevaMbunaM gaaMch.e duHkhamu kurukshhmaapaaluM DaamaaTane  
+yaajiM gool.e samastabaMdhuvulato naa raajashabdhaMbu chee  
+Chee janmaaMtaramaMdu n.ollanujumee shree kaaLahasteeshvaraa! 
+‖ 21 ‖
+
+raajardhaatuMDainacho n.echaTa dharmaMbuMDu nereeti naa  
+naajaatikriya lerpaDun sukhamu maanyashreNi k.eTlabbu roo  
+paajeevaaLiki nedi dikku dhRRitinee bhaktul bhavatpaadanee  
+rejaMbul bhajiyiMtu ret.eRaMgunan shree kaaLahasteeshvaraa! 
+‖ 22 ‖
+
+taraMgal pippalapatramul m.eRaMgu TaddaMbul maruddeepamul  
+karikarNaaMtamu l.eMDamaavula tatul khadyotkeeTaprabhal  
+suraveedheelikhitaakshharaMbu lasuvul jyotsnaapaHpiMDamul  
+sirulaMdela madaaMdhulauduru janul shree kaaLahasteeshvaraa! 
+‖ 23 ‖
+
+ninnunnammina reeti namma n.orulan neekanna naak.ennale  
+rannaldammulu tallidaMDrulu guruMdaapatsahaayuMdu naa  
+yannaa! y.ennaDu nannu saMskRRitivishhaadaaMbhodhi daaTiMchi ya  
+ChchinnaanaMdasukhaabdhiM delch.ed.o kade shree kaaLahasteeshvaraa! 
+‖ 24 ‖
+
+nee paMchaM baDiyuMDagaaM galiginan bhikshhaanname chaalu n  
+kshhepaM babbina raajakeeTamula neseviMpMgaanopa naa  
+shaapaashaMbulaM juTTi trippakumu saMsaaraardhamai baMTugaaM  
+jepaTTaM daya galgeneni madilo shree kaaLahasteeshvaraa! 
+‖ 25 ‖
+
+nee perun bhavadaMghriteerdhamu bhavannishhThyoota taaMboolamun  
+nee paLl.eMbu prasaadamuM g.onikadaa ne biDDanainaaMDa na  
+nneepaaTiM garuNiMpu moMpa niMka neen.evvaarikiM biDDagaaM  
+jepaTTaM daguM baTTi maanaM dagado shree kaaLahasteeshvaraa! 
+‖ 26 ‖
+
+ammaa yayya yaTaMchu n.evvarini nenannanshivaa! ninnune  
+summee! nee madiM dallidaMDrulanaTaMchu njooDaMgaaMboku naa  
+kimmaiM dalliyuM daMDriyun guruMDu neeve kaaka saMsaarapuM  
+jimmaMjeekaMTi gappina ngaDavu nan shree kaaLahasteeshvaraa! 
+‖ 27 ‖
+
+k.oDukul puTTa raTaMchu neDtu ravivekul jeevanabhraaMtulai  
+k.oDukul puTTar.e kauraveMdruna kanekul vaariche negatul  
+vaDas.eM butrulu leni yaa shukunakun baaTill.ene durgatul!  
+ch.eDune mokshhapadaM maputrakunakun shree kaaLahasteeshvaraa! 
+‖ 28 ‖
+
+grahadoshhaMbulu durnimittamulu neekaLyaaNanaamaMbu pra  
+tyahamuM berk.onuttamottamula baadhaMb.eTTagaanopune?  
+dahanuM gappaMgaMjaalune shalabhasaMtaanaMbu nee sevaM je  
+si hataklesulu gaarugaaka manujul shree kaaLahasteeshvaraa! 
+‖ 29 ‖
+
+aDugaMmonika nanyamaargaratulaMbraaNaavanotsaahinai  
+yaDugaMboyina modu needu padapadmaaraadhakashreNiyu  
+nn.eDaku nninnu bhajiMpaMgaaMganiyu naakelaa paraapekshha ko  
+r.eDi diMkemi bhavatprasaadam.e tagun shree kaaLahasteeshvaraa! 
+‖ 30 ‖
+
+madamaataMgamu laMdalaMbula harul maaNikyamu lpallakul  
+mudital chitradukoolamu lparimaLaMbu lmokshhameeMjaalune?  
+madilo veeni napekshhasesi nRRipadhaamadvaaradeshaMbuM gaa  
+chi dinaMbul vRRidhaputturagnyulakaTaa shree kaaLahasteeshvaraa! 
+‖ 31 ‖
+
+rosee royadu kaamineejanula taaruNyorusaukhyaMbulan  
+paasee paayaru putramitrajana saMpadbhraaMti vaaMChaalatal  
+kosee koyadu naamanaM bakaTa neekuM breetigaa sat kriyal  
+chesee cheyadu deeni trullaNapave  shree kaaLahasteeshvaraa! 
+‖ 32 ‖
+
+.ennelluMdu nemi gaMdu niMkanen.evvaari rakshhiMch.edan  
+ninne nishhTha bhajiMch.eda nnirupamonnidrapramodaMbu naa  
+k.ennaMDabb.eDu nMtakaalamiMka neniTlunna nemayy.eDiM?  
+jinnaMbuchchaka nannu neluk.olave   shree kaaLahasteeshvaraa! 
+‖ 33 ‖
+
+chaavaM gaalamu cheruvau T.eRiMgiyuM jaaliMpaMgaa leka na  
+nn.evaidyuMDu chikitsaM brovaMgalaMDo yemaMdu rakshhiMchuno  
+e velpul kRRipaMjooturo yanuchu ninniMtainaM jiMtiMpaMDaa  
+jeevachChraadhdhamuM jesik.onna yatiyun shree kaaLahasteeshvaraa! 
+‖ 34 ‖
+
+dinamuM jittamulo suvarNamukharee teerapradeshaamrakaa  
+nanamadhyopala vedikaagramuna naanaMdaMbunaM baMkajaa  
+nananishhtha nnunuM jooDaM gannanadivo saukhyaMbu lakshhmeevilaa  
+sinimaayaanaTanal sukhaMbu lagune shree kaaLahasteeshvaraa! 
+‖ 35 ‖
+
+aalaMchu nm.eDaM gaTTi daaniki navatyashreNiM galpiMchi ta  
+dbhaalavraatamu nichchipuchchuTanu saMbaMdhaMbu gaaviMchi yaa               
+maalarmaMbuna baaMdhavaM ban.eDi premaM g.oMdaRaM drippaMgaaM  
+seelanseela yamarchina Tl.osaMgito shree kaaLahasteeshvaraa! 
+‖ 36 ‖
+
+tanuve nityamugaa n.onarchu madiledaa chachchi janmiMpakuM  
+Da nupaayaMbu ghaTiMpu maagatula r.eMTa nnerpu lekunna le  
+dani naakippuDa ch.eppu cheyaMgala kaaryaMbunna saMsevaM je  
+si ninuM gaaMch.edaMgaaka kaalamunano shree kaaLahasteeshvaraa! 
+‖ 37 ‖
+
+padunaalgel.e mahaayugaMbu l.oka bhoopaaluMDu; ch.elliMch.e na  
+yyudayaastaachalasaMdhi naagnya n.okaM DaayushhmaMtuMDai veeriya  
+bhyudayaM b.evvaru ch.eppaMgaa vinar.o yalpulmattulai yela cha  
+chch.edaro raajula maMchu nakkaTakaTaa! shree kaaLahasteeshvaraa! 
+‖ 38 ‖
+
+raajannaMtan.e povunaa kRRipayu dharmaMbaabhijaatyaMbu vi  
+dyaajaatakshhama satyabhaashhaNamu vidvanmitrasaMrakshhayun  
+sauganyaMbu kRRitaMb.eRuMgaTayu vishvaasaMbu gaakunna du  
+rbeejashreshhthulu gaaM gataMbu galade shree kaaLahasteeshvaraa! 
+‖ 39 ‖
+
+munu neeche napavargaraajyapadavee moordhaabhishhekaMbu gaaM  
+china puNyaatmulu nenu n.okkasarivo chiMtiMchi chooDaMga n.e  
+TlaninaM geeTaphaNeeMdrapotamadave daMDograhiMsaavichaa  
+rini gaaMgaaM ninu gaanaMgaaka madilo shree kaaLahasteeshvaraa! 
+‖ 40 ‖
+
+pavamaanaashanabhooshhaNaprakaramun bhadrebhacharmaMbu naa-  
+TavikatvaMbuM priyaMbulai bhugahashuMDaalaataveechaarulan  
+bhavaduHkhaMbulaM baapu T.oppuM j.elaMdiMbaaTiMchi kaivalyami-  
+chchi vinodiMchuTa kemi kaaraNamayaa shree kaaLahasteeshvaraa! 
+‖ 41 ‖
+
+amarastreela ramiMchinaM j.eDadu mohaM biMtayun brahmapa-  
+TTamu sidhdhiMchina naasa deeRadu nirooDhakrodhamun sarvalo-  
+kamula nmriMgina maana diMduM gala sau-khyaM b.olla neesevaM je-  
+si mahaapaatakavaariraashiM gaDatun shree kaaLahasteeshvaraa! 
+‖ 42 ‖
+
+chanuvaariM gani yedchuvaaru jamuMDaa satyaMbugaa vattu me  
+manumaanaMbiMka ledu nammamani taaraaveLa naarevunan  
+munuMgaMbovuchu baasa seyuTa sumee mummaaTikiM jooDagaaM  
+j.enaTu lgaanaru deenibhaavamidivo shree kaaLahasteeshvaraa! 
+‖ 43 ‖
+
+bhavaduHkhaMbulu raajakeeTamula nebraardhiMchinaM baayune  
+bhavadaMghristutichetaMgaaka vilasadbaalakshhudhaakleshadu  
+shhTavidhulmaanun.e chooDa meMkam.eDachaMTaMdalli kaaruNyadba  
+shhthivisheshhaMbuna nichchi chaMTaMbal.e no shree kaaLahasteeshvaraa! 
+‖ 44 ‖
+
+pavi pushhpaMbagu nagni maMchagu nakoopaaraMbu bhoomeesthalaM  
+bavu shatruM DatimitruMDau vishhamu divyaahaaramau n.ennaMgaa  
+navaneemaMDalilopalan shiva shive tyaabhaashhaNollaasikin  
+shiva nee naamamu sarvavashyakaramau shree kaaLahasteeshvaraa! 
+‖ 45 ‖
+
+levo kaanalaM gaMdhamoolaphalamul levo guhal toyamul  
+levo yeRulaM ballavaastaraNamul levo sadaa yaatmalo  
+levo neevu viraktula nmanupa jaaliM b.oMdi bhoopaaluran  
+seval seyaMgaM bodu rel.ok.o janul shree kaaLahasteeshvaraa! 
+‖ 46 ‖
+
+munu neM buTTina puTTu l.enni galavo mohaMbuche naMduMje  
+sina karmaMbula provu l.enni galavo chiMtiMchinan gaana nee  
+jananaMbe yani yunna vaaDa nidiye chaaliMpave ninnuM g.o  
+lchina puNyaMbunakuM gRRipaaratuMDavai shree kaaLahasteeshvaraa! 
+‖ 47 ‖
+
+tanu v.eMdaaka dharitri nuMDu nanu naMdaakan mahaarogadee  
+panaduHkhaadulaM b.oMdakuMDa nanukaMpaadRRishhTi veekshhiMchi yaa  
+v.enukan neepadapadmamul dalaMchuchun vishvaprapaMchaMbuM baa  
+sina chittaMbuna nuMDaMjeyaMgadave shree kaaLahasteeshvaraa! 
+‖ 48 ‖
+
+malabhooyishhTa manojadhaamamu sushhumnaadvaaramo yaaru kuM  
+Daliyo paadakaraakshhiyugmaMbulu shhaTkaMjaMbulo momu daa  
+jalajaMbo niTalaMbu chaMdrakaLayo saMgaMbu yogaMb.o gaa  
+sili seviMturu kaaMtalan bhuvi janul shree kaaLahasteeshvaraa! 
+‖ 49 ‖
+
+jalakaMbul rasamul prasoonamulu vaachaabaMdhamul vaadyamu  
+lkalashabdhadhvanu laMchitaaMbara malaMkaaraMbu deeptu lm.eRuM  
+gulu naivedyamu maadhuree mahimagaaM g.oltunninun bhaktiraM  
+jila divyaarchana goorchi nerchina kriyan shree kaaLahasteeshvaraa! 
+‖ 50 ‖
+
+eleela nnutiyiMpavachchu nupamotprekshhaadhvanivyaMgyasha  
+bdhaalaMkaaravisheshhabhaashhala kalabhyaMbaina neeroopamuM  
+jaaluMjaaluM gavitvamulniluchune satyaMbu varNiMchucho  
+chee! lajjiMparugaaka maadRRishakavul shree kaaLahasteeshvaraa! 
+‖ 51 ‖
+
+paaluM buvvayuM b.eTT.edaM guDuvaraa paapanna raa yanna le  
+lel.emmanna naraMTipaMDluM g.oni telekunna nen.ollanaM  
+Te laaliMpare tallidaMDrulapu DaTle t.echchi vaatsalya la  
+kshhmeeleelaavachanaMbulaM guDuparaa shree kaaLahasteeshvaraa! 
+‖ 52 ‖
+
+kalalaMchun shakunaMbulaMchu grahayogaM baMchu saamudrikaM  
+bu laTaMchuM d.evulaMchu dishhTmanuchun bhootaMbulaMchu nvishhaa  
+dulaTaMchu nnimishhaardha jeevanamulaMchuM breetiM buTTiMchi yee  
+silugul praaNulak.enni chesitivayaa shree kaaLahasteeshvaraa! 
+‖ 53 ‖
+
+talameeMdaM gusumaprasaada malikasthaanaMbupai bhootiyun  
+gaLaseemaMbuna daMDa naasikatudan gaMdhaprasaaraMbu lo  
+pala naivedyamuM jerchu ne manujM DaabhaktuMDu neek.eppuDuM  
+j.elikaaDai vihariMchu raupyagiripai shree kaaLahasteeshvaraa! 
+‖ 54 ‖
+
+aaluM biDDalu mitrulun hitulu nishhTardhaMbu leenerture  
+veLa nvaari bhajiMpaM jaalipaDa kaavirbhoota modaMbunaM  
+gaalaMb.ella sukhaMbu neeku niMka bhaktashreNi rakshhiMpake  
+shreel.evvaarikiM gooDaMb.eTT.edavayaa shree kaaLahasteeshvaraa! 
+‖ 55 ‖
+
+sulabhulmoorkhu lanuttamottamula raajulgalgiyeveLa na  
+nnalaMtalab.eTTina nee padaabdhamulaM baayaMjaala nemichchinaM  
+galadhautaachala melu TaMbunidhiloM gaapuMDu TabjaMbu paiM  
+j.eluv.oppun sukhiyiMpaM gaaMchuTa sumee shree kaaLahasteeshvaraa! 
+‖ 56 ‖
+
+kaladhautaadriyu nasthimaalikayu gogaMdharvamun bunkayuM  
+bulitolu nbhasitaMbuM baaMpat.odavul pokuMDaM doMbuTlakai  
+t.oli nevaaralatoDaM buTTaka kaLaadulgalg.e melayy.enaa  
+siluvuldooramuchesik.oM T.eRiMgiye shree kaaLahasteeshvaraa! 
+‖ 57 ‖
+
+shrutulabhyaasamuchesi shaastragarimal shodhiMchi tattvaMbulan  
+mati noohiMchi shareera masthiramu brahmaMb.enna satyaMbu gaaM  
+chiti maMchun sabhalan vRRidhaavachanamu lch.eppaMgane kaani ni  
+rjitachittasthira saukhyamul d.eliyaro shree kaaLahasteeshvaraa! 
+‖ 58 ‖
+
+gati neevaMchu bhajiMchuvaara lapavargaM b.oMdagaanela saM  
+tatamuM gooTikinai chariMpa vinaledaa 'yaayu rannaM praya  
+chChati' yaMchunm.oRav.eTTagaa shrutulu saMsaaraaMdhakaaraabhi doo  
+shhitadurmaargul gaanaM gaanaMbaDavo shree kaaLahasteeshvaraa! 
+‖ 59 ‖
+
+ratiraa juddhati meeRa n.okkapari goraajaashvuni nn.ottaM bo  
+nataM Daadarpaku vega n.otta gavayaM baaMbotunuM daaMki yu  
+grataM boraaDaMganunna yunnaDimi leMgalvol.e shokaanala  
+sthitipaalai m.oRap.eTTunan manupave shree kaaLahasteeshvaraa! 
+‖ 60 ‖
+
+aMtaa saMshayame shareeraghaTanaMbaMtaa vichaaraMb.e lo  
+naMtaa duHkhaparaMparaanivitam.e menaMtaa bhayabhraaMtame  
+yaMtaanaMtashareerashoshhaNam.e durvyaapaarame dehikin  
+jiMtan ninnuM dalaMchi p.oMdaru narul shree kaaLahasteeshvaraa! 
+‖ 61 ‖
+
+saMtoshhiMchitiniM jaaluMjaalu ratiraajadvaarasaukhyaMbulan  
+shaaMtin b.oMditiM jaaluMjaalu bahuraajadvaarasaukhyaMbulan  
+shaaMtiM b.oMd.edaM joopu brahmapadaraajadvaarasaukhyaMbu ni  
+shchiMtan shaaMtuMDa naudu nee karuNache shree kaaLahasteeshvaraa! 
+‖ 62 ‖
+
+stotraM banyulaM jeyan.ollani vratasthulvol.e vesaMbutoM  
+butree putra kalatra rakshhaNa kaLaabudhdhin nRRipaalaa(a)dhaman  
+baatraM baMchu bhajiMpaMbodu ritiyun bhaashhyaMb.e yivvaarichaa  
+ritraM b.ennaMDu m.echcha n.eMcha madilo shree kaaLahasteeshvaraa! 
+‖ 63 ‖
+
+akalaMkasthiti nilpi naaDa manu ghaMTaa(aa)raavamun biMdudee  
+pakaLaashreNi vivekasaadhanamul.oppan booni yaanaMdataa  
+rakadurgaaTavilo manomRRigamugarvasphoorti vaariMchuvaa  
+rikiMgaa veeDu bhavograbaMdhalatikal shree kaaLahasteeshvaraa! 
+‖ 64 ‖
+
+.okayardhaMbu ninnu ne naDugaMgaa noohiMchi n.eTlainaM b.o  
+mmu kavitvaMbulu naakuM j.eMdanivi yemo yaMTivaa naaduji  
+hvaku naisargika kRRitya miMtiya sumee praardhiMchuTe kaadu ko  
+rikala nninnunugaana naaku vashamaa shree kaaLahasteeshvaraa! 
+‖ 65 ‖
+
+shukamul kiMshukapushhpamul gani phalastomaM baTaMchunsamu  
+tsukataM deraMgaM bovu nachchaTa mahaa duHkhaMbu siddhiMchuM; ga  
+rmakaLaabhaashhalak.ellaM braapulagu shaastraMbu lvilokiMchuvaa  
+riki nityatvamaneeshha dooramaguMjoo shree kaaLahasteeshvaraa! 
+‖ 66 ‖
+
+.okariM jaMpi padasthulai bratukaM daam.okk.okka roohiMture  
+l.ok.o taam.ennaMDuM jaavaro tamakuM bovo saMpadal putrami  
+trakaLatraadulatoDa nitya sukhamaMdaM gaMduro yunnavaa  
+riki ledo mRRiti y.ennaMDuM gaTakaTa shree kaaLahasteeshvaraa! 
+‖ 67 ‖
+
+nee kaaruNyamuM galginaTTi naruM DeneechaalayaMbula j.oraM  
+DekaarpaNyapu maaTalaaDa narugaM D.evvaarito veshhamul  
+gaikoDe matamul bhajiMpaM DilanekashhTaprakaaraMbulan  
+jeekaakai ch.eDipoMdu jeevanadashan shree kaaLahasteeshvaraa! 
+‖ 68 ‖
+
+gnyaatul drohaMbu vaaMDru seyukapaTeryaadi kriyaadoshhamul  
+maataMDraana sahiMparaadu pratikarmaMbiMchuke jeyagaaM  
+bote dosamu gaana maani yatinai poMgorinan sarvadaa               
+chetaHkrodhamu maana d.eTlu naDutun shree kaaLahasteeshvaraa! 
+‖ 69 ‖
+
+chaduvul nerchina paMDitaadhamulu svechChaabhaashhaNakreeDalan  
+vadaran saMshayabheekaraaTavulaM drovaldappi vartiMpaMgaa  
+madanakrodhakiraatulaMduM gani bheemaprauDhicheM daaMkinaM  
+j.edaruM jittamu chittagiMpaMgadave shree kaaLahasteeshvaraa! 
+‖ 70 ‖
+
+rosiM deMTidi roMta deMTidi man.o rogasthuMDai dehi taaM  
+boosiMdeMTidi pooMta leMTivi madaa(a)pootaMbu lee dehamul  
+moosiMdeMTidi mooMtaleMTivi sadaamooDhatvame kaani taaM  
+jesiMdeMTidi cheMtaleMTivi vRRidhaa shree kaaLahasteeshvaraa! 
+‖ 71 ‖
+
+shree shaileshu bhajiMtuno yabhavuMgaaMchee naadhu seviMtuno  
+kaasheevallabhuM g.olvaMbodun.o mahaa kaaLeshuM boojiMtuno  
+naasheelaM baNuvaina meru vanuchun rakshhiMpave nee kRRipaa  
+shree shRRiMgaaravilaasahaasamulache shree kaaLahasteeshvaraa! 
+‖ 72 ‖
+
+ayavaarai chariyiMpavachchuM dana paadaaM(a)bhojateerdhaMbulan  
+dayatoM g.ommanavachchu sevakuni yardhapraaNadehaadula  
+nniyu naa s.ommanavachchuMgaani sirulanniMdiMchi ninnaatmani  
+shhkriyataM gaanaMgaraadu paMDitulakun shree kaaLahasteeshvaraa! 
+‖ 73 ‖
+
+maayaa(a) jaaMDakaraMDakoTiM b.oDigaamardhiMchiro vikramaa(a)  
+jeyuM gaayajuM jaMpiro kapaTalakshhmee mohamuM baasiro  
+yaayurdayabhujaMgamRRityuvu nanaayaasaMbunan g.elchiro  
+shreyodaayak laudu r.eTTu litarul shree kaaLahasteeshvaraa! 
+‖ 74 ‖
+
+chavigaaM jooDa vinaMga moork.onaM danoosaMgharshhaNaasvaadam.oM  
+da vinirmiMch.eda vela jaMtuvula netatkreeDale paataka  
+vyavahaaraMbalu seyunemiTiki maayaavidyache br.oddupu  
+chchi vinodiMpaMga deena nemi phalamo shree kaaLahasteeshvaraa! 
+‖ 75 ‖
+
+v.enukM jesina ghoradurdashalu bhaaviMpaMga roMtayy.eDun  
+v.enukan muMdaTa vachchu durmaraNamul veekshhiMpa bheetayy.eDun  
+nanu neMjooDaga naavidhuldalaMchiyun naake bhayaM bayy.eDuM  
+j.enakuMjeeMkaTiyaay.eM gaalamunakun shree kaaLahasteeshvaraa! 
+‖ 76 ‖
+
+parisheeliMchiti maMtrataMtramulu ch.eppa nviMTi saaMkhyaadiyo  
+ga rahasyaMbulu veda shaastramulu vakkaaNiMchitin shaMkavo  
+darayaM gummaDikaayaloni yavagiMjaMtaina nammichMchi su  
+sthiravignyaanamu trovaM j.eppaMgadave shree kaaLahasteeshvaraa! 
+‖ 77 ‖
+
+m.odalaM jesinavaari dharmamulu nirmoolaMbugaaM jesi du  
+rmadulai yippuDu vaar.e dharmamu l.onarpaM dammu daivaMbu na  
+vvaD.e raanunna duraatmul.ella damatrovaM bovare ela che  
+s.edaro meeMdu dalaMchichooDa kadhamul shree kaaLahasteeshvaraa! 
+‖ 78 ‖
+
+kaasaMtaina sukhaM b.onarchun.o manaHkaamaMbu leeDerchuno  
+veesaMbainanu v.eMTavachchun.o jagadvikhyaatiM gaaviMchuno  
+dosaMbu lb.eDaM b.opuno valasinaMdoDto mimuM joopuno  
+Chee! saMsaaraduraasha yeludupavo shree kaaLahasteeshvaraa! 
+‖ 79 ‖
+
+.okapooMTiMchuka kooDa takkuvagune norvaMgaleM D.eMDako  
+paka neeDanv.edakuM jaliM jaDichi kuMpaTl.ettukoMjoochu vaa  
+naku niMDiMDlunu dooRu neetanuvu deenanvachchu saukhyaMbu ro  
+si kaDaasiMparugaaka martvulakaTa shree kaaLahasteeshvaraa! 
+‖ 80 ‖
+
+kedaaraadisamastateerdhamulu kormiMjooDaM boneMTikin  
+gaaDaa muMgili vaaraNaasi! kaDupe kailaasashailaMbu mee  
+paadadhyaanamu saMbhaviMchunapuDe bhaaviMpa nagnyaanala  
+kshhmeedaaridryulu gaar.e loku lakaTaa! shree kaaLahasteeshvaraa! 
+‖ 81 ‖
+
+tamak.oM b.oppaM baraaMganaajanapara dravyaMbulan mruchchilaM  
+ga mahodyogamu seyan.emmanamud.oMgaM baTTi vairaagyapaa  
+shamulaM juTTi bigimaMchi needucharaNa staMbhaMjunaM gaTTivai  
+chi mudaM b.eppuDuM galgaMjeya gaDave shree kaaLahasteeshvaraa! 
+‖ 82 ‖
+
+vedhaM diTTagaraadugaani bhuvilo vidvaaMsulaMjeya ne  
+laa dheechaaturiM jes.eM jesina gulaamaapaaTane poka kshhu  
+dbaadhaadul galigiMpanela yadi kRRityaMbaina durmaargulaM  
+jee! dhaatreeshulaM jeyaneMTi kakaTaa! shree kaaLahasteeshvaraa! 
+‖ 83 ‖
+
+puDami nninn.oka bilvapatramunaneM boojiMchi puNyaMbunuM  
+baDayanneraka p.ekkudaivamulakuM bappul prasaadaMbulaM  
+guDumul dos.elu saar.esattulaDukul guggillunuM beTTuchuM  
+j.eDi y.eMduM g.oRagaakapodu rakaTaa! shree kaaLahasteeshvaraa! 
+‖ 84 ‖
+
+vittagnyaanamu paadu chittamu bhavaaveshaMbu rakshhaaMbuvul  
+mattatvaMbu tadaMkuraM ainRRitamul maaRaaku latyaMtadu  
+dvRRittul puvvuluM baMDlu manmadhamukhaa virbhootadoshhaMbuluM  
+jittaadhyunnataniMbabhoojamunakun shree kaaLahasteeshvaraa! 
+‖ 85 ‖
+
+neepaiM gaapyamu ch.eppuchunna yataMDunneepadyamul vraasiyi  
+mmaa paaThaMm.onariMtunanna yataMDun maMjuprabaMdhaMbu ni  
+shhTaapoortiM baThiyiMchuchunna yataMDun sadbaaMdhavul gaaka chee  
+chee! pRRishhThaagatabaaMdhavaMbu nijamaa! shree kaaLahasteeshvaraa! 
+‖ 86 ‖
+
+saMpadgarvamuM baaRaMdroli ripulan jaMkiMchi yaakaaMkshhalan  
+daMpulv.eTTi kaLaMkamu lnaRaki baMdhakleshadoshhaMbulaM  
+jiMpulsesi vayovilaasamulu saMkshhepiMchi bhootaMbulaM  
+j.eMpalveyaka ninnuM gaananagunaa shree kaaLahasteeshvaraa! 
+‖ 87 ‖
+
+raajashreNiki daasulai sirulaM goraM jeraMgaa saukhyamo  
+yee janmaMbu tariMpaMjeyagala mimme pr.oddu seviMchu ni  
+rvyaajaachaaramu saukhyamo t.eliyalerau maanavu lpaaparaa  
+jeejaataatimadaaMdhabuddhu laguchun shree kaaLahasteeshvaraa! 
+‖ 88 ‖
+
+ninnaM jooDar.o m.onnaM jooDaro janul nityaMbu jaavaMga naa  
+pannu lgannanidhaana mayy.eDi dhanabhraaMtin visarjiMpale  
+kunnaa r.ennaMDu ninnu gaMDu rika martvul g.olvaremo ninun  
+vinnaM bovaka yanyadaivaratulan shree kaaLahasteeshvaraa! 
+‖ 89 ‖
+
+nanne y.enuMgutoluduppaTamu buvvaakaalakootaMbu che  
+ginne brahmakapaala mugramagu bhoge kaMThahaaraMbu mel  
+ninneelaaguna nuMTayuM d.elisiyun neepaadapadmaMbu che  
+rch.en naarayaNuM D.eTlu maanasamuM daa shree kaaLahasteeshvaraa! 
+‖ 90 ‖
+
+dvaaradvaaramulaMduM jaMchukijanavraataMbu daMDaMmulan  
+doraMtsthali bagganaM b.oDuchuchun durbhaashhalaaDa nmaRin  
+vaariM braardhanachesi raajulaku sevalseyaMgaaMborula  
+kshhmeeraajyaMbunu gori neemarijanul shree kaaLahasteeshvaraa! 
+‖ 91 ‖
+
+oorooraM janul.ella bikshha midaroyuMdaM guhalgalgavo  
+cheeraaneekamu veedhulaM d.orukaro sheetaamRRitasvachChavaaH  
+pooraM berulaM baaRado tapasulaMbrovaMga neevopavo  
+cheraM bovudurela raagula janul shree kaaLahasteeshvaraa! 
+‖ 92 ‖
+
+daya jooDuMDani g.oMdaRaaDuduru nityaMbun ninuM g.olchuchun  
+niyamaM b.eMto phalaMbu naMtiy.ekadaa neeveeya piMD.eMto aM  
+tiyakaa nippaTiyuM dalaMpananu buddhiM jooDa; nelabbuni  
+shhkriyatan ninnu bhajiMpa kishhTasukhamul shree kaaLahasteeshvaraa! 
+‖ 93 ‖
+
+aaraavaM budayiMch.eM daarakamuga naatmaabhraveedhinmahaa(a)  
+kaarokaaramakaarayuktamagu noMkaaraabhidhaanaMbu ch.e  
+nnaarun vishva manaMgaM danmahimache naanaadabiMdul sukha  
+shree raMjillaM gaDaMgu neevad.e sumee shree kaaLahasteeshvaraa! 
+‖ 94 ‖
+
+neebhaktu lmadivela bhaMgula ninunseviMbuchun veDaMgaa  
+lobhaMbeTiki vaari korkulu kRRipaLutvaMbunaM deermaraa  
+daa bhavyaMbuM dalaMchi chooDu paramaardhaM bichchi p.ommanna nee  
+shree bhaaMDaramuloM g.oRaMtapaDunaa shree kaaLahasteeshvaraa! 
+‖ 95 ‖
+
+m.odalanbhaktulakichchinaaMDavugadaa mokshhaMbu neM Demayaa  
+'mudiyaMgaa mudiyaMgaM buTTu ghanamau mohaMbu lobhaMbu' na  
+nnadi satyaMbu kRRipaM dalaMpa n.okavuNyaatmuMDu ninnaatma g.o  
+lchi dinaMbun m.oRav.eTTaMgaaM gaTagaTaa! shree kaaLahasteeshvaraa! 
+‖ 96 ‖
+
+kaaladvaarakavaaTabaMdhanamu dushhkaalpramaaNakriyaa  
+lolaajaalakachitraguptamukhava lmeekograjihvaadbhuta  
+vyaLavyaaLavirodhi mRRityumukhadaMshhTraa(a)haarya vajraMbu di  
+kchelaalaMkRRita! needunaama marayan shree kaaLahasteeshvaraa! 
+‖ 97 ‖
+
+padivelalainanu lokakaMTakulacheM braapriMchu saukhyaMbu naa  
+madikiM bathyamu gaadu sarvamunakun madhyasthuMDai satyadaa  
+nadayaadul gala raaju naak.osaMgu menavvaani nee yaTlachoo  
+chi dinaMbun mudam.oMdudun gaDapaTan shree kaaLahasteeshvaraa! 
+‖ 98 ‖
+
+taatal talliyuM daMDriyun maRiyuM b.eddal chaavagaaM jooDaro  
+bheetiM b.oMdaMganela chaavunakuMgaaM b.eMDlaamubiDDal hita  
+vraataMbun balaviMpa jaMtuvulakun vaalaayamaiyuMDaMgaaM  
+jetoveedhi naruMDu ning.oluvaMDo shree kaaLahasteeshvaraa! 
+‖ 99 ‖
+
+jaatul s.eppuTa sevaseyuTa mRRishhal saMdhiMchu Tanyaayavi  
+khyaatiM b.oMduTa k.oMD.ekaaMDavuTa hiMsaaraMbhakuMDauTa mi  
+dhyaataatparyamulaaDuTanniyuM baradravyaMbunaashiMchi yee  
+shree taa n.enniyugaMbu luMDaMgalado shree kaaLahasteeshvaraa! 
+‖ 100 ‖
+
+ch.eDugul k.oMdaRu kooDi cheyaMgaMbanul cheekaTlu dooRaMgaM maa  
+lpaDitiM gaana grahiMparaani ninu n.ollaMjaalaM b.ommaMchu nil  
+v.elaMdrochinaM joorupaTTuk.oni ne vrelaaDuduM gorkiM go  
+r.eDi yardhaMbulu naaku nela yiDavo shree kaaLahasteeshvaraa! 
+‖ 101 ‖
+
+bhasitoddhooLanadhoosaraaMgulu jaTaabhaarottamaaMgul tapo  
+vyasanamul saadhitapaMchavarNarasamul vairaagyavaMtul nitaaM  
+tasukhasvaaMtulu satyabhaashhaNalu nudyadratnarudraakshharaa  
+jisametul tudan.evvaraina g.olutun shree kaaLahasteeshvaraa! 
+‖ 102 ‖
+
+jalajashree gala maMchineellu galavaachatraatilo baapure!  
+v.elivaaDa nmaRi baaMpanillugaladaavesaalugaa nakkaTaa!  
+nali naa r.eMDu guNaMbu l.eMchi madilo nannemi royaMga nee  
+ch.eluvaMbaina guNaMbu l.eMchuk.onave shree kaaLahasteeshvaraa! 
+‖ 103 ‖
+
+gaDiyal r.eMTik.o mooMTiko gaDiyako kaadeni neMD.elliyo  
+kaDa neMDaadik.o y.ennaMDo y.eRuM ga meekaayaMbu leebhoomipaiM  
+baDagaa nunnavi dharmamaargam.okaTiM baaTiMpa ree maanavul  
+ch.eDugul neepadabhaktiyuM d.eliyaro shree kaaLahasteeshvaraa! 
+‖ 104 ‖
+
+kshhitilo d.oDDaturaMgasaamajamu lechitrammu laaMdoLikaa  
+tatu le l.ekka vilaasineejanasuvasravraata bhooshhaakalaa  
+patanoojaadika memidurlabhamu nee paadammu larchiMchucho  
+jitapaMkeruhapaadapadmayugaLaa shree kaaLahasteeshvaraa! 
+‖ 105 ‖
+
+salilammul jukhukapramaaNa m.oka pushhmammun bhavanmauLi ni  
+shchalabaktiprapattiche naruMDu poojal seyaMgaa dhanyuMDau  
+nila gaMgaajalachaMdrakhaMDamula daaniMduM dudiM gaaMchu nee  
+ch.eluvaM baMtayu nee mahattva midigaa shree kaaLahasteeshvaraa! 
+‖ 106 ‖
+
+tamanetradyutiM daam.e chooDa sukhamaitaadaatmyamun goorpaMgaa  
+vimalammul kamalaabhamul jitalasadvidyullataalaasyamul  
+sumanobaaNajayapradammulanuchun joochun janaMboonihaa  
+rimRRigaakshheenivahammukannugavalan shree kaaLahasteeshvaraa! 
+‖ 107 ‖
+
+paTavadrajjubhujaMgavadrajatavi bhraaMtisphurachChuktiva  
+dghaTavachchaMdrashilaajapaakusumaru ksaaMgatyavattaMchuvaa  
+kpaTimal nerturu chitsukhaM banubhaviMpan leka durmedhanul  
+chiTukannaM dalapoyaMjootu radhamul shree kaaLahasteeshvaraa! 
+‖ 108 ‖
+
+ninu niMdiMchina dakshhupaiM d.egav.o vaaNeenaadhu shaasiMpavo  
+chanunaa nee paadapadmasevakulaM duchChaM baaDu durmaargulaM  
+b.enupan neekunu needubhaktatatikin bhedaMbu gaanaMga va  
+chch.en.o lekuMDina nooRakuMDagalavaa shree kaaLahasteeshvaraa! 
+‖ 109 ‖
+
+karidaityun b.orig.onna shoolamu ka(raa)ragra(stha)staMbu gaado ratee  
+shvarunin gaalchina phaalalochanashikhaa vargaMbu challaaR.eno  
+paraniMdaaparulan vadhiMpa vidiyun bhaashhyaMb.e vaaremi che  
+siri neekun baramopakaara marayan shree kaaLahasteeshvaraa! 
+‖ 110 ‖
+
+duramun durgamu raayabaaramu maRin d.oMgarmamun vaidyamun  
+naranaadhaashraya moDaberamunu b.enmaMtraMbu siddhiMchinan  
+arayan d.oDDaphalaMbu galgunadigaa kaakaaryame tappinan  
+siriyuM bovunu braaNahaaniyu nagun shree kaaLahasteeshvaraa! 
+‖ 111 ‖
+
+tanayuM gaaMchi dhanaMbu niMchi divijasthaanaMbu gaTTiMchi vi  
+pruna kudvaahamu jesi satkRRitikiM baatruMDai taTaakaMbu ne  
+rpunaM dravviMchi vanaMbu v.eTTi mananee poleDu neesevaM je  
+sina puNyaatmuMDu povu lokamunakun shree kaaLahasteeshvaraa! 
+‖ 112 ‖
+
+kshhitinaadhottama! satkaveeshvaruMD vachch.en mimmulaM jooDaMgaa  
+nataMDe meTi kavitvavaikharini sadyaHkaavyanirmaata tat  
+pratibha lmaMchini tiTTupadyamulu ch.eppuM daataMDainan mamuM  
+gritame chooch.enu b.ommaTaMchu radhamul shree kaaLahasteeshvaraa! 
+‖ 113 ‖
+
+neekuM gaani kavitva m.evvariki neneenaMchu meed.ettitin  
+jek.oMTin birudaMbu kaMkaNamu muMjeM gaTTitiM baTTitin  
+lokul m.echcha vrataMbu naatanuvu keelul nerpuluM gaavu Chee  
+Chee kaalaMbulareeti dapp.eDu jumee shree kaaLahasteeshvaraa! 
+‖ 114 ‖
+
+nichchal ninnu bhajiMchi chinmayamahaa nirvaaNapeeThaMbu pai  
+rachchalseyaka yaarjavaMbu kujana vraataMbucheM graaMgi bhoo  
+bhRRichchaMDaaluraM g.olchi vaaru danuM gopiMman budhuM DaartuMDai  
+chichchaaraM jamu r.ellaM jalluk.onuno shree kaaLahasteeshvaraa! 
+‖ 115 ‖
+
+daMtaMbu lpaDanappuDe tanuvunaMdaarooDhi yunnappuDe  
+kaaMtaasaMghamu royanappuDe jarakraaMtaMbu gaanappuDe  
+vitalmena jariMchanappuD.e kurulv.ell.ella gaanappuDe  
+chiMtiMpanval.e neepadaaMbujamulan shree kaaLahasteeshvaraa! 
+‖ 116 ‖
+

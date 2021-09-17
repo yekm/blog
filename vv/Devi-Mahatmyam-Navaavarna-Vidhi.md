@@ -1459,3 +1459,299 @@ bibhraaNaamanalaatmikaaM shashidharaaM durgaaM trinetraaM bhaje ‖
 బిభ్రాణామనలాత్మికాం శశిధరాం దుర్గాం త్రినేత్రాం భజే ‖  
 
 
+### English
+
+#### devī mahātmyam navāvarṇa vidhi
+
+śrīgaṇapatirjayati ❘  
+oṃ asya śrīnavāvarṇamantrasya brahmaviśhṇurudrā ṛśhayaḥ,  
+gāyatryuśhṇiganuśhṭubhaśChandāṃsi śrīmahākālīmāhālakśhmīmahāsarasvatyo devatāḥ,  
+aiṃ bījaṃ, hrīṃ śakti:, klīṃ kīlakaṃ, śrīmahākālīmāhālakśhmīmahāsarasvatīprītyarthe jape  
+viniyogaḥ‖
+
+ṛśhyādinyāsaḥ  
+brahmaviśhṇurudrā ṛśhibhyo namaḥ, mukhe ❘  
+mahākālīmāhālakśhmīmahāsarasvatīdevatābhyo namaḥ,hṛdi ❘  
+aiṃ bījāya namaḥ, guhye ❘  
+hrīṃ śaktaye namaḥ, pādayoḥ ❘  
+klīṃ kīlakāya namaḥ, nābhau ❘  
+oṃ aiṃ hrīṃ klīṃ cāmuṇḍāyai  
+vicce -- iti mūlena karau saṃśodhya  
+karanyāsaḥ  
+oṃ aiṃ aṅguśhṭhābhyāṃ namaḥ ❘  
+oṃ hrīṃ tarjanībhyāṃ namaḥ ❘  
+oṃ klīṃ madhyamābhyāṃ  
+namaḥ ❘  
+oṃ cāmuṇḍāyai anāmikābhyāṃ namaḥ ❘  
+oṃ vicce kaniśhṭhikābhyāṃ namaḥ ❘  
+oṃ aiṃ  
+hrīṃ klīṃ cāmuṇḍāyai vicce karatalakarapṛśhṭhābhyāṃ namaḥ ❘  
+hṛdayādinyāsaḥ  
+oṃ aiṃ hṛdayāya namaḥ ❘  
+oṃ hrīṃ śirase svāha ❘  
+oṃ klīṃ śikhāyai vaśhaṭ ❘  
+oṃ cāmuṇḍāyai  
+kavacāya hum ❘  
+oṃ vicce netratrayāya vauśhaṭ ❘  
+oṃ aiṃ hrīṃ klīṃ cāmuṇḍāyai vicce  
+astrāya phaṭ ❘  
+akśharanyāsaḥ  
+oṃ aiṃ namaḥ, śikhāyām ❘  
+oṃ hrīṃ namaḥ, dakśhiṇanetre ❘  
+oṃ klīṃ namaḥ, vāmanetre ❘  
+oṃ  
+cāṃ namaḥ, dakśhiṇakarṇe ❘  
+oṃ muṃ namaḥ, vāmakarṇe ❘  
+oṃ ḍāṃ namaḥ,  
+dakśhiṇanāsāpuṭe ❘  
+oṃ yaiṃ namaḥ, vāmanāsāpuṭe ❘  
+oṃ viṃ namaḥ, mukhe ❘  
+oṃ cceṃ  
+namaḥ, guhye ❘  
+evaṃ vinyasyāśhṭavāraṃ mūlena vyāpakaṃ kuryāt ❘  
+diṅnyāsaḥ  
+oṃ aiṃ prācyai namaḥ ❘  
+oṃ aiṃ āgneyyai namaḥ ❘  
+oṃ hrīṃ dakśhiṇāyai namaḥ ❘  
+oṃ hrīṃ  
+nai^^ṛtyai namaḥ ❘  
+oṃ klīṃ patīcyai namaḥ ❘  
+oṃ klīṃ vāyuvyai namaḥ ❘  
+oṃ cāmuṇḍāyai  
+udīcyai namaḥ ❘  
+oṃ cāmuṇḍāyai aiśānyai namaḥ ❘  
+oṃ aiṃ hrīṃ klīṃ cāmuṇḍāyai vicce  
+ūrdhvāyai namaḥ ❘  
+oṃ aiṃ hrīṃ klīṃ cāmuṇḍāyai vicce bhūmyai namaḥ ❘  
+dhyānam  
+oṃ khaḍgaṃ cakragadeśhucāpaparighāñChūlaṃ bhuśuṇḍīṃ śiraḥ  
+śaṅkhaṃ sandadhatīṃ karaistrinayanāṃ sarvāṅgabhūśhāvṛtām ❘  
+nīlāśmadyutimāsyapādadaśakāṃ seve mahākālikāṃ  
+yāmastautsvapite harau kamalajo hantuṃ madhuṃ kauṭabham ‖
+
+oṃ akśhasrakparaśū gadeśhukuliśaṃ padmaṃ dhanuḥ kuṇḍikāṃ  
+daṇḍaṃ śaktimasiṃ ca carma jalajaṃ ghaṇṭāṃ surābhājanam ❘  
+śūlaṃ pāśasudarśane ca dadhatīṃ hastaiḥ pravālaprabhāṃ  
+seve sairibhamardinīmiha mahālakśhmīṃ sarojasthitām ‖
+
+oṃ ghaṇṭāśūlahalāni śaṅkhamusale cakraṃ dhanuḥ sāyakaṃ ❘  
+hastābjairdhadhatīṃ ghanāntavilasacChītāṃśutulyaprabhāṃ ❘  
+gaurīdehasamudbhavāṃ trijagatādhārabhūtāṃ mahā ❘  
+pūrvāmatra sarasvatīmanubhaje śumbhādidaityārdhinīm ‖
+
+oṃ māṃ māleṃ mahāmāye sarvaśaktisvarūpiṇi ❘  
+caturvargastvayi nyastastasmānme siddhidā bhava ‖
+
+oṃ avighnaṃ kuru māle tvaṃ gṛhṇāmi dakśhiṇe kare ❘  
+japakāle ca siddhyarthaṃ prasīda mamasiddhaye ‖
+
+aiṃ hrīṃ akśhamālikāyai namaḥ 
+‖ 108 ‖
+
+oṃ māṃ māleṃ mahāmāye sarvaśaktisvarūpiṇi ❘  
+caturvargastvayi nyastastasmānme siddhidā bhava ‖
+
+oṃ avighnaṃ kuru māle tvaṃ gṛhṇāmi dakśhiṇe kare ❘  
+japakāle ca siddhyarthaṃ prasīda mamasiddhaye ‖
+
+oṃ akśhamālādhipataye susiddhiṃ dehi dehi sarvamantrārthasādhini  
+sādhaya sādhaya sarvasiddhiṃ parikalpaya parikalpaya me svāhā ❘  
+oṃ aiṃ hrīṃ klīṃ cāmuṇḍāyai vicce 
+‖ 108 ‖
+
+guhyātiguhyagoptrī tvaṃ gṛhāṇāsmatkṛtaṃ japam ❘  
+siddhirbhavatu me devi tvatprasādānmaheśvari ‖
+
+oṃ akśhamālādhipataye susiddhiṃ dehi dehi sarvamantrārthasādhini  
+sādhaya sādhaya sarvasiddhiṃ parikalpaya parikalpaya me svāhā ❘  
+guhyātiguhyagoptrī tvaṃ gṛhāṇāsmatkṛtaṃ japam ❘  
+siddhirbhavatu me devi tvatprasādānmaheśvari ‖
+
+karanyāsaḥ  
+oṃ hrīṃ aṅguśhṭhābhyāṃ namaḥ ❘  
+oṃ caṃ tarjanībhyāṃ namaḥ ❘  
+oṃ ḍiṃ madhyamābhyāṃ  
+namaḥ ❘  
+oṃ kāṃ anāmikābhyāṃ namaḥ ❘  
+oṃ yaiṃ kaniśhṭhikābhyāṃ namaḥ ❘  
+oṃ hrīṃ  
+caṇḍikāyai karatalakarapṛśhṭhābhyāṃ namaḥ ❘  
+hṛdayādinyāsaḥ  
+khaḍginī śūlinī ghorā gadinī cakriṇī tathā ❘  
+śaṅkhinī cāpinī bāṇabhuśuṇḍī paighāyudhā ❘  
+hṛdayāya namaḥ ‖
+
+oṃ śūlena pāhi no devi pāhi khaḍgena cāmbike ❘  
+ghaṇṭāsvanena naḥ pāhi cāpajyāniḥsvanena ca ❘  
+śirase svāhā ‖
+
+oṃ prācyāṃ rakśha pratīñcyāṃ ca rakśha caṇḍike rakśha dakśhiṇe ❘  
+bhrāmaṇenātmaśūlasya uttarasyāṃ tatheśvari ❘  
+śikhāyai vaśhaṭ ‖
+
+oṃ saumyāni yāni rūpāṇi trailokye vicaranti te ❘  
+yāni cātyarthaghorāṇi tai rakśhāsmāṃstathā bhuvam ❘  
+kavacāya hum ‖
+
+oṃ khaḍgaśūlagadādīni yānicāstrāṇi teambike ❘  
+karapallava saṅgīni tairasmān rakśha sarvataḥ ❘  
+netratrayāya vauśhaṭ ‖
+
+oṃ sarvasvarūpe sarveśe sarvaśaktisamanvite ❘  
+bhayebhyastrāhi no devi durge namoastute ❘  
+astrāya phaṭ ‖
+
+dhyānam  
+oṃ vidyuddāmaprabhāṃ mṛgapatiskandhasthitāṃ bhīśhaṇāṃ ❘  
+kanyābhiḥ karavālakheṭavilasaddhastābhirāsevitāṃ ❘  
+hastaiścakragadāsikheṭaviśikhāṃścāpaṃ guṇaṃ tarjanīṃ ❘  
+bibhrāṇāmanalātmikāṃ śaśidharāṃ durgāṃ trinetrāṃ bhaje ‖
+
+### PlainEnglish
+
+#### devee mahaatmyam navaavarNa vidhi
+
+shreegaNapatirjayati ❘  
+oM asya shreenavaavarNamantrasya brahmavishhNurudraa RRishhayaH,  
+gaayatryushhNiganushhTubhashChaMdaaMsi shreemahaakaaleemaahaalakshhmeemahaasarasvatyo devataaH,  
+aiM beejaM, hreeM shakti:, kleeM keelakaM, shreemahaakaaleemaahaalakshhmeemahaasarasvateepreetyarthe jape  
+viniyogaH‖
+
+RRishhyaadinyaasaH  
+brahmavishhNurudraa RRishhibhyo namaH, mukhe ❘  
+mahaakaaleemaahaalakshhmeemahaasarasvateedevataabhyo namaH,hRRidi ❘  
+aiM beejaaya namaH, guhye ❘  
+hreeM shaktaye namaH, paadayoH ❘  
+kleeM keelakaaya namaH, naabhau ❘  
+oM aiM hreeM kleeM caamuMDaayai  
+vicce -- iti moolena karau saMshodhya  
+karanyaasaH  
+oM aiM aMgushhThaabhyaaM namaH ❘  
+oM hreeM tarjaneebhyaaM namaH ❘  
+oM kleeM madhyamaabhyaaM  
+namaH ❘  
+oM caamuMDaayai anaamikaabhyaaM namaH ❘  
+oM vicce kanishhThikaabhyaaM namaH ❘  
+oM aiM  
+hreeM kleeM caamuMDaayai vicce karatalakarapRRishhThaabhyaaM namaH ❘  
+hRRidayaadinyaasaH  
+oM aiM hRRidayaaya namaH ❘  
+oM hreeM shirase svaaha ❘  
+oM kleeM shikhaayai vashhaT ❘  
+oM caamuMDaayai  
+kavacaaya hum ❘  
+oM vicce netratrayaaya vaushhaT ❘  
+oM aiM hreeM kleeM caamuMDaayai vicce  
+astraaya phaT ❘  
+akshharanyaasaH  
+oM aiM namaH, shikhaayaam ❘  
+oM hreeM namaH, dakshhiNanetre ❘  
+oM kleeM namaH, vaamanetre ❘  
+oM  
+caaM namaH, dakshhiNakarNe ❘  
+oM muM namaH, vaamakarNe ❘  
+oM DaaM namaH,  
+dakshhiNanaasaapuTe ❘  
+oM yaiM namaH, vaamanaasaapuTe ❘  
+oM viM namaH, mukhe ❘  
+oM cceM  
+namaH, guhye ❘  
+evaM vinyasyaashhTavaaraM moolena vyaapakaM kuryaat ❘  
+dinnyaasaH  
+oM aiM praacyai namaH ❘  
+oM aiM aagneyyai namaH ❘  
+oM hreeM dakshhiNaayai namaH ❘  
+oM hreeM  
+nai^^RRityai namaH ❘  
+oM kleeM pateecyai namaH ❘  
+oM kleeM vaayuvyai namaH ❘  
+oM caamuMDaayai  
+udeecyai namaH ❘  
+oM caamuMDaayai aishaanyai namaH ❘  
+oM aiM hreeM kleeM caamuMDaayai vicce  
+oordhvaayai namaH ❘  
+oM aiM hreeM kleeM caamuMDaayai vicce bhoomyai namaH ❘  
+dhyaanam  
+oM khaDgaM cakragadeshhucaapaparighaanChoolaM bhushuNDeeM shiraH  
+shankhaM sandadhateeM karaistrinayanaaM sarvaangabhooshhaavRRitaam ❘  
+neelaashmadyutimaasyapaadadashakaaM seve mahaakaalikaaM  
+yaamastautsvapite harau kamalajo hantuM madhuM kauTabham ‖
+
+oM akshhasrakparashoo gadeshhukulishaM padmaM dhanuH kuNDikaaM  
+daNDaM shaktimasiM ca carma jalajaM ghaNTaaM suraabhaajanam ❘  
+shoolaM paashasudarshane ca dadhateeM hastaiH pravaalaprabhaaM  
+seve sairibhamardineemiha mahaalakshhmeeM sarojasthitaam ‖
+
+oM ghaMTaashoolahalaani shaMkhamusale cakraM dhanuH saayakaM ❘  
+hastaabjairdhadhateeM ghanaaMtavilasacCheetaaMshutulyaprabhaaM ❘  
+gaureedehasamudbhavaaM trijagataadhaarabhootaaM mahaa ❘  
+poorvaamatra sarasvateemanubhaje shuMbhaadidaityaardhineem ‖
+
+oM maaM maaleM mahaamaaye sarvashaktisvaroopiNi ❘  
+caturvargastvayi nyastastasmaanme siddhidaa bhava ‖
+
+oM avighnaM kuru maale tvaM gRRihNaami dakshhiNe kare ❘  
+japakaale ca siddhyarthaM praseeda mamasiddhaye ‖
+
+aiM hreeM akshhamaalikaayai namaH 
+‖ 108 ‖
+
+oM maaM maaleM mahaamaaye sarvashaktisvaroopiNi ❘  
+caturvargastvayi nyastastasmaanme siddhidaa bhava ‖
+
+oM avighnaM kuru maale tvaM gRRihNaami dakshhiNe kare ❘  
+japakaale ca siddhyarthaM praseeda mamasiddhaye ‖
+
+oM akshhamaalaadhipataye susiddhiM dehi dehi sarvamantraarthasaadhini  
+saadhaya saadhaya sarvasiddhiM parikalpaya parikalpaya me svaahaa ❘  
+oM aiM hreeM kleeM caamuMDaayai vicce 
+‖ 108 ‖
+
+guhyaatiguhyagoptree tvaM gRRihaaNaasmatkRRitaM japam ❘  
+siddhirbhavatu me devi tvatprasaadaanmaheshvari ‖
+
+oM akshhamaalaadhipataye susiddhiM dehi dehi sarvamantraarthasaadhini  
+saadhaya saadhaya sarvasiddhiM parikalpaya parikalpaya me svaahaa ❘  
+guhyaatiguhyagoptree tvaM gRRihaaNaasmatkRRitaM japam ❘  
+siddhirbhavatu me devi tvatprasaadaanmaheshvari ‖
+
+karanyaasaH  
+oM hreeM aMgushhThaabhyaaM namaH ❘  
+oM caM tarjaneebhyaaM namaH ❘  
+oM DiM madhyamaabhyaaM  
+namaH ❘  
+oM kaaM anaamikaabhyaaM namaH ❘  
+oM yaiM kanishhThikaabhyaaM namaH ❘  
+oM hreeM  
+caMDikaayai karatalakarapRRishhThaabhyaaM namaH ❘  
+hRRidayaadinyaasaH  
+khaDginee shoolinee ghoraa gadinee cakriNee tathaa ❘  
+shankhinee caapinee baaNabhushuNDee paighaayudhaa ❘  
+hRRidayaaya namaH ‖
+
+oM shoolena paahi no devi paahi khaDgena caaMbike ❘  
+ghaMTaasvanena naH paahi caapajyaaniHsvanena ca ❘  
+shirase svaahaa ‖
+
+oM praacyaaM rakshha prateeMcyaaM ca rakshha caMDike rakshha dakshhiNe ❘  
+bhraamaNenaatmashoolasya uttarasyaaM tatheshvari ❘  
+shikhaayai vashhaT ‖
+
+oM saumyaani yaani roopaaNi trailokye vicaranti te ❘  
+yaani caatyarthaghoraaNi tai rakshhaasmaaMstathaa bhuvam ❘  
+kavacaaya hum ‖
+
+oM khaDgashoolagadaadeeni yaanicaastraaNi te.ambike ❘  
+karapallava sangeeni tairasmaan rakshha sarvataH ❘  
+netratrayaaya vaushhaT ‖
+
+oM sarvasvaroope sarveshe sarvashaktisamanvite ❘  
+bhayebhyastraahi no devi durge namo.astute ❘  
+astraaya phaT ‖
+
+dhyaanam  
+oM vidyuddaamaprabhaaM mRRigapatiskaMdhasthitaaM bheeshhaNaaM ❘  
+kanyaabhiH karavaalakheTavilasaddhastaabhiraasevitaaM ❘  
+hastaishcakragadaasikheTavishikhaaMshcaapaM guNaM tarjaneeM ❘  
+bibhraaNaamanalaatmikaaM shashidharaaM durgaaM trinetraaM bhaje ‖
+

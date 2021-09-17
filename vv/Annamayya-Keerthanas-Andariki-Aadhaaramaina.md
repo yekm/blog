@@ -289,3 +289,47 @@ veMkaTagiri meeda prabhala v.elasina ghanuDeetaDu ‖
 తెంకిగ నేకాలము పరదేవుడైన యీతడు  
 వేంకటగిరి మీద ప్రభల వెలసిన ఘనుడీతడు ‖  
 
+### English
+
+#### annamayya kīrtana andariki ādhāramaina
+
+andarikādhāramaina ādi puruśhuḍītaḍu   
+vindai munnāragiñce vidurunikaḍa nītuḍu ‖
+
+sanakādulu koniyāḍeḍi sarvātmakuḍītaḍu   
+vanaja bhavādulakunu daivambai nataḍītaḍu ❘  
+inamaṇḍalamuna jelageṭihitavai bhavuḍitaḍu   
+munupuṭṭina devatalaku mūlabhūti yītaḍu ‖
+
+sirulosagi yaśodayiṇṭa śiśuvainata ḍītaḍu   
+dharanāvula mandalalo taga jariñce nītaḍu ❘  
+sarasatalanu golletalaku janavulosage nītaḍu   
+ārasi kuceluni yaḍukulu āragiñcenītaḍu ‖
+
+paṅkajabhavunakunu brahma pada mosagenu yītuḍu   
+saṅkīrtana lādyulace jaṭṭi goniyenītaḍu ❘  
+teṅkiga nekālamu paradevuḍaina yītaḍu   
+veṅkaṭagiri mīda prabhala velasina ghanuḍītaḍu ‖
+
+### PlainEnglish
+
+#### annamayya keertana aMdariki aadhaaramaina
+
+aMdarikaadhaaramaina aadi purushhuDeetaDu   
+viMdai munnaaragiMc.e vidurunikaDa neetuDu ‖
+
+sanakaadulu k.oniyaaD.eDi sarvaatmakuDeetaDu   
+vanaja bhavaadulakunu daivaMbai nataDeetaDu ❘  
+inamaMDalamuna j.elageTihitavai bhavuDitaDu   
+munupuTTina devatalaku moolabhooti yeetaDu ‖
+
+sirul.osagi yashodayiMTa shishuvainata DeetaDu   
+dharanaavula maMdalalo taga jariMc.e neetaDu ❘  
+sarasatalanu g.oll.etalaku janavul.osag.e neetaDu   
+aarasi kuceluni yaDukulu aaragiMc.eneetaDu ‖
+
+paMkajabhavunakunu brahma pada m.osag.enu yeetuDu   
+saMkeertana laadyulace jaTTi g.oniy.eneetaDu ❘  
+t.eMkiga nekaalamu paradevuDaina yeetaDu   
+veMkaTagiri meeda prabhala v.elasina ghanuDeetaDu ‖
+

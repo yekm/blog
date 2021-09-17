@@ -289,3 +289,47 @@ veMkaTeshuDu sooDave sinn.ekaa ‖
 కొంకక కలికియై కొసరి కూడె నన్ను  
 వేంకటేశుడు సూడవే సిన్నెకా ‖  
 
+### English
+
+#### annamayya kīrtana siruta navvulavāḍu
+
+siruta navvulavāḍu sinnekā vīḍu   
+veraperugaḍu sūḍave sinnekā ‖
+
+polasu menivāḍu boravīpu vāḍu   
+selasu moravāḍu sinnekā ❘  
+golusula vaṅkala koralatobūmi    
+velisināḍu sūḍave sinnekā ‖
+
+meṭi kuruchavāḍu meḍamīdi goḍḍali   
+sīṭakālavāḍu sinnekā ❘  
+āṭadānibāsi aḍavilo rākāśi   
+veṭalāḍī jūḍave sinnekā ‖
+
+biṅkapu motala pillagovivāḍu   
+siṅka sūpulavāḍu sinnekā ❘  
+koṅkaka kalikiyai kosari kūḍe nannu   
+veṅkaṭeśuḍu sūḍave sinnekā ‖
+
+### PlainEnglish
+
+#### annamayya keertana siruta navvulavaaDu
+
+siruta navvulavaaDu sinn.ekaa veeDu   
+v.erap.erugaDu sooDave sinn.ekaa ‖
+
+p.olasu menivaaDu boraveepu vaaDu   
+s.elasu moravaaDu sinn.ekaa ❘  
+g.olusula vaMkala koralatoboomi    
+v.elisinaaDu sooDave sinn.ekaa ‖
+
+meTi kuruchavaaDu m.eDameedi g.oDDali   
+seeTakaalavaaDu sinn.ekaa ❘  
+aaTadaanibaasi aDavilo raakaashi   
+veTalaaDee jooDave sinn.ekaa ‖
+
+biMkapu motala pillagovivaaDu   
+siMka soopulavaaDu sinn.ekaa ❘  
+k.oMkaka kalikiyai k.osari kooD.e nannu   
+veMkaTeshuDu sooDave sinn.ekaa ‖
+

@@ -289,3 +289,47 @@ t.eraci raajannaTTi devuDu ‖
 తిరముగ ధృవునికి దివ్యపదంబిచ్చి ❘  
 తెరచి రాజన్నట్టి దేవుడు ‖  
 
+### English
+
+#### annamayya kīrtana nallani meni
+
+nallani meni nagavu cūpula vāḍu ❘  
+tellani kannula devuḍu ‖
+
+birusaina danujula piñChamaṇacinaṭṭi ❘  
+tirupu kaiduva toḍi devuḍu ❘  
+saripaḍḍa jagamella cakka Chāyaku decci ❘  
+teravu cūpinaṭṭi devuḍu ‖
+
+nīṭagalasinaṭṭi niṇḍina caduvulu ❘  
+teṭa paracinaṭṭi devuḍu ❘  
+pāṭimālinaṭṭi prāṇula duritapu ❘  
+tīṭa rāsinaṭṭi devuḍu ‖
+
+gurutuveṭṭagarāni guṇamula nelakonna ❘  
+tiruveṅkaṭādripai devuḍu ❘  
+tiramuga dhṛvuniki divyapadambicci ❘  
+teraci rājannaṭṭi devuḍu ‖
+
+### PlainEnglish
+
+#### annamayya keertana nallani meni
+
+nallani meni nagavu coopula vaaDu ❘  
+t.ellani kannula devuDu ‖
+
+birusaina danujula piMChamaNacinaTTi ❘  
+tirupu kaiduva toDi devuDu ❘  
+saripaDDa jagam.ella cakka Chaayaku d.ecci ❘  
+t.eravu coopinaTTi devuDu ‖
+
+neeTagalasinaTTi niMDina caduvulu ❘  
+teTa paracinaTTi devuDu ❘  
+paaTimaalinaTTi praaNula duritapu ❘  
+teeTa raasinaTTi devuDu ‖
+
+gurutuv.eTTagaraani guNamula n.elak.onna ❘  
+tiruveMkaTaadripai devuDu ❘  
+tiramuga dhRRivuniki divyapadaMbicci ❘  
+t.eraci raajannaTTi devuDu ‖
+

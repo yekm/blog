@@ -614,3 +614,113 @@ chandrashekhara eva tasya dadaati mukti mayatnataH ‖ 8 ‖
 సోమవారిన భోహుతాశన సోమ పాద్యఖిలాకృతిం  
 చంద్రశేఖర ఏవ తస్య దదాతి ముక్తి మయత్నతః ‖ 8 ‖  
 
+### English
+
+#### chandra śekharāśhṭakam
+
+chandraśekhara chandraśekhara chandraśekhara pāhimām ❘  
+chandraśekhara chandraśekhara chandraśekhara rakśhamām ‖
+
+ratnasānu śarāsanaṃ rajatādri śṛṅga niketanaṃ  
+śiñjinīkṛta pannageśvara machyutānala sāyakam ❘  
+kśhipradagda puratrayaṃ tridaśālayai rabhivanditaṃ  
+chandraśekharamāśraye mama kiṃ kariśhyati vai yamaḥ 
+‖ 1 ‖
+
+mattavāraṇa mukhyacharma kṛtottarīya manoharaṃ  
+paṅkajāsana padmalochana pūjitāṅghri saroruhaṃ ❘  
+deva sindhu taraṅga śrīkara sikta śubhra jaṭādharaṃ  
+chandraśekharamāśraye mama kiṃ kariśhyati vai yamaḥ 
+‖ 2 ‖
+
+kuṇḍalīkṛta kuṇḍalīśvara kuṇḍalaṃ vṛśhavāhanaṃ  
+nāradādi munīśvara stutavaibhavaṃ bhuvaneśvaraṃ ❘  
+andhakāntaka māśritāmara pādapaṃ śamanāntakaṃ  
+chandraśekharamāśraye mama kiṃ kariśhyati vai yamaḥ 
+‖ 3 ‖
+
+pañchapādapa puśhpagandha padāmbuja dvayaśobhitaṃ  
+phālalochana jātapāvaka dagdha manmadha vigrahaṃ ❘  
+bhasmadigda kaḻebaraṃ bhavanāśanaṃ bhava mavyayaṃ  
+chandraśekharamāśraye mama kiṃ kariśhyati vai yamaḥ 
+‖ 4 ‖
+
+yakśha rājasakhaṃ bhagākśha haraṃ bhujaṅga vibhūśhaṇam  
+śailarāja sutā pariśhkṛta chāruvāma kaḻebaram ❘  
+kśheḻa nīlagaḻaṃ paraśvadha dhāriṇaṃ mṛgadhāriṇam  
+chandraśekharamāśraye mama kiṃ kariśhyati vai yamaḥ 
+‖ 5 ‖
+
+bheśhajaṃ bhavarogiṇā makhilāpadā mapahāriṇaṃ  
+dakśhayaGYa vināśanaṃ triguṇātmakaṃ trivilochanaṃ ❘  
+bhukti mukti phalapradaṃ sakalāgha saṅgha nibarhaṇaṃ  
+chandraśekharamāśraye mama kiṃ kariśhyati vai yamaḥ 
+‖ 6 ‖
+
+viśvasṛśhṭi vidhāyakaṃ punarevapālana tatparaṃ  
+saṃharaṃ tamapi prapañcha maśeśhaloka nivāsinaṃ ❘  
+krīḍayanta maharniśaṃ gaṇanātha yūtha samanvitaṃ  
+chandraśekharamāśraye mama kiṃ kariśhyati vai yamaḥ 
+‖ 7 ‖
+
+bhaktavatsala marchitaṃ nidhimakśhayaṃ haridambaraṃ  
+sarvabhūta patiṃ parātpara maprameya manuttamaṃ ❘  
+somavārina bhohutāśana soma pādyakhilākṛtiṃ  
+chandraśekhara eva tasya dadāti mukti mayatnataḥ 
+‖ 8 ‖
+
+### PlainEnglish
+
+#### chaMdra shekharaashhTakam
+
+chandrashekhara chandrashekhara chandrashekhara paahimaam ❘  
+chandrashekhara chandrashekhara chandrashekhara rakshhamaam ‖
+
+ratnasaanu sharaasanaM rajataadri shRRiMga niketanaM  
+shiMjineekRRita pannageshvara machyutaanala saayakam ❘  
+kshhipradagda puratrayaM tridashaalayai rabhivaMditaM  
+chandrashekharamaashraye mama kiM karishhyati vai yamaH 
+‖ 1 ‖
+
+mattavaaraNa mukhyacharma kRRitottareeya manoharaM  
+paMkajaasana padmalochana poojitaaMghri saroruhaM ❘  
+deva siMdhu taraMga shreekara sikta shubhra jaTaadharaM  
+chandrashekharamaashraye mama kiM karishhyati vai yamaH 
+‖ 2 ‖
+
+kuMDaleekRRita kuMDaleeshvara kuMDalaM vRRishhavaahanaM  
+naaradaadi muneeshvara stutavaibhavaM bhuvaneshvaraM ❘  
+aMdhakaaMtaka maashritaamara paadapaM shamanaaMtakaM  
+chandrashekharamaashraye mama kiM karishhyati vai yamaH 
+‖ 3 ‖
+
+paMchapaadapa pushhpagaMdha padaaMbuja dvayashobhitaM  
+phaalalochana jaatapaavaka dagdha manmadha vigrahaM ❘  
+bhasmadigda kaLebaraM bhavanaashanaM bhava mavyayaM  
+chandrashekharamaashraye mama kiM karishhyati vai yamaH 
+‖ 4 ‖
+
+yakshha raajasakhaM bhagaakshha haraM bhujaMga vibhooshhaNam  
+shailaraaja sutaa parishhkRRita chaaruvaama kaLebaram ❘  
+kshheLa neelagaLaM parashvadha dhaariNaM mRRigadhaariNam  
+chandrashekharamaashraye mama kiM karishhyati vai yamaH 
+‖ 5 ‖
+
+bheshhajaM bhavarogiNaa makhilaapadaa mapahaariNaM  
+dakshhayagnya vinaashanaM triguNaatmakaM trivilochanaM ❘  
+bhukti mukti phalapradaM sakalaagha saMgha nibarhaNaM  
+chandrashekharamaashraye mama kiM karishhyati vai yamaH 
+‖ 6 ‖
+
+vishvasRRishhTi vidhaayakaM punarevapaalana tatparaM  
+saMharaM tamapi prapaMcha masheshhaloka nivaasinaM ❘  
+kreeDayaMta maharnishaM gaNanaatha yootha samanvitaM  
+chandrashekharamaashraye mama kiM karishhyati vai yamaH 
+‖ 7 ‖
+
+bhaktavatsala marchitaM nidhimakshhayaM haridaMbaraM  
+sarvabhoota patiM paraatpara maprameya manuttamaM ❘  
+somavaarina bhohutaashana soma paadyakhilaakRRitiM  
+chandrashekhara eva tasya dadaati mukti mayatnataH 
+‖ 8 ‖
+

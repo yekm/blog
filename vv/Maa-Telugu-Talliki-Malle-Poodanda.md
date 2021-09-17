@@ -315,3 +315,45 @@ jai t.elugu tallee! jai t.elugu tallee!
 జై తెలుగు తల్లీ! జై తెలుగు తల్లీ!  
 
 
+### English
+
+#### mā telugu talliki malle pūdaṇḍa
+
+mā telugu talliki mallepūdaṇḍa  
+mā kanna talliki maṅgaḻāratulu  
+kaḍupulo baṅgāru kanucūpulo karuṇa  
+cirunavvulo sirulu doraliñcu mātalli  
+gala galā godāri kadali potuṇṭenu  
+bira birā kṛśhṇamma paruguliḍutuṇṭenu  
+baṅgāru paṇṭale paṇḍutāyi  
+muripāla mutyālu doralutāyi  
+amarāvatī nagara apurūpa śilpālu  
+tyāgayya gontulo tārāḍu nādālu  
+tikkayya kalamulo tiyyandanālu  
+nityamai, nikhilamai nilaciyuṇḍedāka  
+rudramma bhuja śakti, mallamma pati bhakti  
+timmarusu dhīyukti, kṛśhṇarāyala kīrti  
+mā cevulu riṅgumani mārumrogedāka  
+nī āṭale āḍutāṃ, nī pāṭale pāḍutāṃ  
+jai telugu tallī! jai telugu tallī!  
+### PlainEnglish
+
+#### maa t.elugu talliki mall.e poodaMDa
+
+maa t.elugu talliki mall.epoodaMDa  
+maa kanna talliki maMgaLaaratulu  
+kaDupulo baMgaaru kanucoopulo karuNa  
+cirunavvulo sirulu d.oraliMcu maatalli  
+gala galaa godaari kadali potuMTenu  
+bira biraa kRRishhNamma paruguliDutuMTenu  
+baMgaaru paMTale paMDutaayi  
+muripaala mutyaalu d.oralutaayi  
+amaraavatee nagara apuroopa shilpaalu  
+tyaagayya g.oMtulo taaraaDu naadaalu  
+tikkayya kalamulo tiyyaMdanaalu  
+nityamai, nikhilamai nilaciyuMDedaaka  
+rudramma bhuja shakti, mallamma pati bhakti  
+timmarusu dheeyukti, kRRishhNaraayala keerti  
+maa c.evulu riMgumani maarumrogedaaka  
+nee aaTale aaDutaaM, nee paaTale paaDutaaM  
+jai t.elugu tallee! jai t.elugu tallee!  

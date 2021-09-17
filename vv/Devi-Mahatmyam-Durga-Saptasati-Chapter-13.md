@@ -1446,3 +1446,271 @@ oM bhoorbhuva ssuvaH iti digvimikaH ❘
 భయేభ్యస్త్రాహినో దేవి దుర్గే దేవి నమోస్తుతే ❘ కరతల కరపృష్టాభ్యాం నమః |  
 ఓం భూర్భువ స్సువః ఇతి దిగ్విమికః ❘  
 
+### English
+
+#### devī mahātmyam durgā saptaśati trayodaśoadhyāyaḥ
+
+surathavaiśyayorvarapradānaṃ nāma trayodaśoadhyāyaḥ ‖
+
+dhyānaṃ  
+oṃ bālārka maṇḍalābhāsāṃ caturbāhuṃ trilocanāṃ ❘  
+pāśāṅkuśa varābhītīrdhārayantīṃ śivāṃ bhaje ‖
+
+ṛśhiruvāca 
+‖ 1 ‖
+
+etatte kathitaṃ bhūpa devīmāhātmyamuttamam ❘  
+evamprabhāvā sā devī yayedaṃ dhāryate jagat 
+‖2‖
+
+vidyā tathaiva kriyate bhagavadviśhṇumāyayā ❘  
+tayā tvameśha vaiśyaśca tathaivānye vivekinaḥ 
+‖3‖
+
+tayā tvameśha vaiśyaśca tathaivānye vivekinaḥ❘  
+mohyante mohitāścaiva mohameśhyanti cāpare   
+‖4‖
+
+tāmupaihi mahārāja śaraṇaṃ parameśvarīṃ❘  
+ārādhitā saiva nṛṇāṃ bhogasvargāpavargadā   
+‖5‖
+
+mārkaṇḍeya uvāca   
+‖6‖
+
+iti tasya vacaḥ śṛtvā surathaḥ sa narādhipaḥ❘  
+praṇipatya mahābhāgaṃ tamṛśhiṃ saṃśitavratam  
+‖7‖
+
+nirviṇṇotimamatvena rājyāpahareṇana ca❘  
+jagāma sadyastapase saca vaiśyo mahāmune  
+‖8‖
+
+sandarśanārthamambhāyā na'006Ch;pulina māsthitaḥ❘  
+sa ca vaiśyastapastepe devī sūktaṃ paraṃ japan   
+‖9‖
+
+tau tasmin puline devyāḥ kṛtvā mūrtiṃ mahīmayīm❘  
+arhaṇāṃ cakratustasyāḥ puśhpadhūpāgnitarpaṇaiḥ   
+‖10‖
+
+nirāhārau yatāhārau tanmanaskau samāhitau❘  
+dadatustau baliñcaiva nijagātrāsṛgukśhitam   
+‖11‖
+
+evaṃ samārādhayatostribhirvarśhairyatātmanoḥ❘  
+parituśhṭā jagaddhātrī pratyakśhaṃ prāha caṇḍikā   
+‖12‖
+
+devyuvācā
+‖13‖
+
+yatprārthyate tvayā bhūpa tvayā ca kulanandana❘  
+mattastatprāpyatāṃ sarvaṃ parituśhṭā dadāmite
+‖14‖
+
+mārkaṇḍeya uvāca
+‖15‖
+
+tato vavre nṛpo rājyamavibhraṃśyanyajanmani❘  
+atraivaca ca nijam rājyaṃ hataśatrubalaṃ balāt
+‖16‖
+
+soapi vaiśyastato GYānaṃ vavre nirviṇṇamānasaḥ❘  
+mametyahamiti prāGYaḥ sajgavicyuti kārakam
+‖17‖
+
+devyuvāca
+‖18‖
+
+svalpairahobhir nṛpate svaṃ rājyaṃ prāpsyate bhavān❘  
+hatvā ripūnaskhalitaṃ tava tatra bhaviśhyati
+‖19‖
+
+mṛtaśca bhūyaḥ samprāpya janma devādvivasvataḥ❘  
+sāvarṇiko manurnāma bhavānbhuvi bhaviśhyati
+‖20‖
+
+vaiśya varya tvayā yaśca varoasmattoabhivāñcitaḥ❘  
+taṃ prayacChāmi saṃsiddhyai tava GYānaṃ bhaviśhyati
+‖21‖
+
+mārkaṇḍeya uvāca  
+iti datvā tayordevī yathākhilaśhitaṃ varaṃ❘  
+bhabhūvāntarhitā sadyo bhaktyā tābhyāmabhiśhṭutā
+‖22‖
+
+evaṃ devyā varaṃ labdhvā surathaḥ kśhatriyarśhabhaḥ❘  
+sūryājjanma samāsādya sāvarṇirbhavitā manuḥ
+‖23‖
+
+iti datvā tayordevī yathabhilaśhitaṃ varam❘  
+babhūvāntarhitā sadhyo bhaktyā tābhyāmabhiśhṭutā
+‖24‖
+
+evaṃ devyā varaṃ labdhvā surathaḥ kśhatriyarśhabhaḥ❘  
+sūryājjanma samāsādya sāvarṇirbhavitā manuḥ
+‖25‖
+
+|klīṃ oṃ❘  
+
+‖ jaya jaya śrī mārkaṇḍeyapurāṇe sāvarṇike manvantare devīmahatyme surathavaiśya yorvara pradānaṃ nāma trayodaśodhyāyasamāptaṃ ‖
+
+
+‖śrī sapta śatī devīmahatmyam samāptaṃ ‖
+
+❘  
+oṃ tat sat ❘  
+āhuti  
+oṃ klīṃ jayantī sāṅgāyai saśaktikāyai saparivārāyai savāhanāyai śrī mahātripurasundaryai mahāhutiṃ samarpayāmi namaḥ svāhā ‖
+
+oṃ khaḍginī śūlinī ghorā gadinī chakriṇī tathā  
+śaṅkhiṇī chāpinī bāṇā bhuśuṇḍīparighāyudhā ❘  
+hṛdayāya namaḥ ❘  
+oṃ śūlena pāhino devi pāhi khaḍgena chāmbike❘  
+ghaṇṭāsvanena naḥ pāhi chāpajyānisvanena cha śiraśesvāhā ❘  
+oṃ prāchyāṃ rakśha pratīchyāṃ cha chaṇḍike dakśharakśhiṇe  
+bhrāmare nātma śulasya uttarasyāṃ tatheśvari ❘  
+śikhāyai vaśhaṭ ❘  
+oṃ soumyāni yānirūpāṇi trailokye vicharantite  
+yāni chātyanta ghorāṇi tai rakśhāsmāṃ stathā bhuvaṃ kavachāya huṃ ❘  
+oṃ khaḍga śūla gadā dīni yāni chāstāṇi tembike  
+karapallavasaṅgīni tairasmā nrakśha sarvataḥ netratrayāya vaśhaṭ ❘  
+oṃ sarvasvarūpe sarveśe sarva śakti samanvite  
+bhayebhyastrāhino devi durge devi namostute ❘  
+karatala karapṛśhṭābhyāṃ namaḥ ❘  
+oṃ bhūrbhuva ssuvaḥ iti digvimikaḥ ❘  
+### PlainEnglish
+
+#### devee mahaatmyam durgaa saptashati trayodasho.adhyaayaH
+
+surathavaishyayorvarapradaanaM naama trayodasho.adhyaayaH ‖
+
+dhyaanaM  
+oM baalaarka maMDalaabhaasaaM caturbaahuM trilocanaaM ❘  
+paashaaMkusha varaabheeteerdhaarayaMteeM shivaaM bhaje ‖
+
+RRishhiruvaaca 
+‖ 1 ‖
+
+etatte kathitaM bhoopa deveemaahaatmyamuttamam ❘  
+evaMprabhaavaa saa devee yayedaM dhaaryate jagat 
+‖2‖
+
+vidyaa tathaiva kriyate bhagavadvishhNumaayayaa ❘  
+tayaa tvameshha vaishyashca tathaivaanye vivekinaH 
+‖3‖
+
+tayaa tvameshha vaishyashca tathaivaanye vivekinaH❘  
+mohyante mohitaashcaiva mohameshhyanti caapare   
+‖4‖
+
+taamupaihi mahaaraaja sharaNaM parameshvareeM❘  
+aaraadhitaa saiva nRRiNaaM bhogasvargaapavargadaa   
+‖5‖
+
+maarkaNDeya uvaaca   
+‖6‖
+
+iti tasya vacaH shRRitvaa surathaH sa naraadhipaH❘  
+praNipatya mahaabhaagaM tamRRishhiM saMshitavratam  
+‖7‖
+
+nirviNNotimamatvena raajyaapahareNana ca❘  
+jagaama sadyastapase saca vaishyo mahaamune  
+‖8‖
+
+sandarshanaarthamambhaayaa na'006Ch;pulina maasthitaH❘  
+sa ca vaishyastapastepe devee sooktaM paraM japan   
+‖9‖
+
+tau tasmin puline devyaaH kRRitvaa moortiM maheemayeem❘  
+arhaNaaM cakratustasyaaH pushhpadhoopaagnitarpaNaiH   
+‖10‖
+
+niraahaarau yataahaarau tanmanaskau samaahitau❘  
+dadatustau baliMcaiva nijagaatraasRRigukshhitam   
+‖11‖
+
+evaM samaaraadhayatostribhirvarshhairyataatmanoH❘  
+paritushhTaa jagaddhaatree pratyakshhaM praaha caNDikaa   
+‖12‖
+
+devyuvaacaa
+‖13‖
+
+yatpraarthyate tvayaa bhoopa tvayaa ca kulanandana❘  
+mattastatpraapyataaM sarvaM paritushhTaa dadaamite
+‖14‖
+
+maarkaNDeya uvaaca
+‖15‖
+
+tato vavre nRRipo raajyamavibhraMshyanyajanmani❘  
+atraivaca ca nijam raajyaM hatashatrubalaM balaat
+‖16‖
+
+so.api vaishyastato gnyaanaM vavre nirviNNamaanasaH❘  
+mametyahamiti praagnyaH sajgavicyuti kaarakam
+‖17‖
+
+devyuvaaca
+‖18‖
+
+svalpairahobhir nRRipate svaM raajyaM praapsyate bhavaan❘  
+hatvaa ripoonaskhalitaM tava tatra bhavishhyati
+‖19‖
+
+mRRitashca bhooyaH sampraapya janma devaadvivasvataH❘  
+saavarNiko manurnaama bhavaanbhuvi bhavishhyati
+‖20‖
+
+vaishya varya tvayaa yashca varo.asmatto.abhivaancitaH❘  
+taM prayacChaami saMsiddhyai tava gnyaanaM bhavishhyati
+‖21‖
+
+maarkaNDeya uvaaca  
+iti datvaa tayordevee yathaakhilashhitaM varaM❘  
+bhabhoovaantarhitaa sadyo bhaktyaa taabhyaamabhishhTutaa
+‖22‖
+
+evaM devyaa varaM labdhvaa surathaH kshhatriyarshhabhaH❘  
+sooryaajjanma samaasaadya saavarNirbhavitaa manuH
+‖23‖
+
+iti datvaa tayordevee yathabhilashhitaM varam❘  
+babhoovaantarhitaa sadhyo bhaktyaa taabhyaamabhishhTutaa
+‖24‖
+
+evaM devyaa varaM labdhvaa surathaH kshhatriyarshhabhaH❘  
+sooryaajjanma samaasaadya saavarNirbhavitaa manuH
+‖25‖
+
+|kleeM oM❘  
+
+‖ jaya jaya shree maarkaNDeyapuraaNe saavarNike manvantare deveemahatyme surathavaishya yorvara pradaanaM naama trayodashodhyaayasamaaptaM ‖
+
+
+‖shree sapta shatee deveemahatmyam samaaptaM ‖
+
+❘  
+oM tat sat ❘  
+aahuti  
+oM kleeM jayaMtee saaMgaayai sashaktikaayai saparivaaraayai savaahanaayai shree mahaatripurasuMdaryai mahaahutiM samarpayaami namaH svaahaa ‖
+
+oM khaDginee shoolinee gh.oraa gadinee chakriNee tathaa  
+shaMkhiNee chaapinee baaNaa bhushuMDeeparighaayudhaa ❘  
+hRRidayaaya namaH ❘  
+oM shoolena paahino devi paahi khaDgena chaaMbike❘  
+ghaMTaasvanena naH paahi chaapajyaanisvanena cha shirashesvaahaa ❘  
+oM praachyaaM rakshha prateechyaaM cha chaMDike dakshharakshhiNe  
+bhraamare naatma shulasya uttarasyaaM tatheshvari ❘  
+shikhaayai vashhaT ❘  
+oM s.oumyaani yaaniroopaaNi trailokye vicharaMtite  
+yaani chaatyaMta ghoraaNi tai rakshhaasmaaM stathaa bhuvaM kavachaaya huM ❘  
+oM khaDga shoola gadaa deeni yaani chaastaaNi teMbike  
+karapallavasaMgeeni tairasmaa nrakshha sarvataH netratrayaaya vashhaT ❘  
+oM sarvasvaroope sarveshe sarva shakti samanvite  
+bhayebhyastraahino devi durge devi namostute ❘  
+karatala karapRRishhTaabhyaaM namaH ❘  
+oM bhoorbhuva ssuvaH iti digvimikaH ❘  

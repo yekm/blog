@@ -952,3 +952,145 @@ shree vaibhavasusthiro bhavati ‖
 శ్రీ వైభవసుస్థిరో భవతి ‖  
 
 
+### English
+
+#### annamayya kīrtana rādhā mādhava rati charitamiti
+
+rādhāmādhavaraticaritamiti   
+bodhāvahaṃ śrutibhūśhaṇaṃ ‖
+
+gahane dvāvapi gatvā gatvā   
+rahasi ratiṃ prerayati sati ❘  
+viharatastadā vilasantau   
+vihatagṛhāśau vivaśau tau ‖
+
+lajjāśabhaḻa vilāsalīlayā   
+kajjalanayana vikāreṇa ❘  
+hṛjjāvyavanahita hṛdayā rati   
+ssajjā sambhramacapalā jātā ‖
+
+purato yāntaṃ puruśhaṃ vakuḻaiḥ   
+kuraṇṭakairvā kuṭajairvā ❘  
+paramaṃ praharati paścāllagnā-  
+giraṃ vināsi vikirati mudaṃ ‖
+
+hari surabhūruha mārohatīva  
+caraṇena kaṭiṃ saṃveśhṭya ❘  
+parirañcaṇa sampāditapulakai   
+ssurucirjātā sumalatikeva ‖
+
+vidhumukhadarśana vikaḻitalajjā-   
+tvadharabimbaphalamāsvādya ❘  
+madhuropāyanamārgeṇa kucau   
+nidhivada tvā nityasukhamitā ‖
+
+suruciraketaka sumadaḻa nakharai-   
+rvaracibukaṃ sā parivṛtya ❘  
+taruṇimasindhau tadīyadṛgjala-  
+carayugaḻaṃ saṃsaktaṃ cakāra ‖
+
+vacana vilāsairvaśīkṛta taṃ   
+niculakuñja mānitadeśe ❘  
+pracurasaikate pallavaśayane-   
+racitaratikaḻā rāgeṇāsa ‖
+
+abhinavakalyāṇāñcitarūpā-   
+vabhiniveśa saṃyatacittau ❘  
+babhūvatu statparau veṅkaṭa   
+vibhunā sā tadvidhinā satayā ‖
+
+saca lajjāvīkśhaṇo bhavati taṃ   
+kacabharāṃ gandhaṃ ghrāpayati ❘  
+nacalaticenmānavatī tathāpi   
+kucasaṅgādanukūlayati ‖
+
+avanataśirasāpyati subhagaṃ   
+vividhālāpairvivaśayati ❘  
+pravimala kararuharacana vilāsai   
+rbhuvanapati taṃ bhūśhayati ‖
+
+latāgṛhameḻanaṃ navasai   
+katavaibhava saukhyaṃ dṛśhṭvā ❘  
+tatastataścarasau kelī-   
+vratacaryāṃ tāṃ vāñChantau ❘  
+vanakusuma viśadavaravāsanayā-   
+ghanasārarajogandhaiśca ❘  
+janayati pavane sapadi vikāraṃ-   
+vanitā puruśhau janitāśau ‖
+
+evaṃ vicaran helā vimukha-   
+śrīveṅkaṭagiri devoyaṃ ❘  
+pāvanarādhāparirambhasukha-   
+śrī vaibhavasusthiro bhavati ‖
+
+### PlainEnglish
+
+#### annamayya keertana raadhaa maadhava rati charitamiti
+
+raadhaamaadhavaraticaritamiti   
+bodhaavahaM shrutibhooshhaNaM ‖
+
+gahane dvaavapi gatvaa gatvaa   
+rahasi ratiM prerayati sati ❘  
+viharatastadaa vilasaMtau   
+vihatagRRihaashau vivashau tau ‖
+
+lajjaashabhaLa vilaasaleelayaa   
+kajjalanayana vikaareNa ❘  
+hRRijjaavyavanahita hRRidayaa rati   
+ssajjaa saMbhramacapalaa jaataa ‖
+
+purato yaaMtaM purushhaM vakuLaiH   
+kuraMTakairvaa kuTajairvaa ❘  
+paramaM praharati pashcaallagnaa-  
+giraM vinaasi vikirati mudaM ‖
+
+hari surabhooruha maarohateeva  
+caraNena kaTiM saMveshhTya ❘  
+pariraMcaNa saMpaaditapulakai   
+ssurucirjaataa sumalatikeva ‖
+
+vidhumukhadarshana vikaLitalajjaa-   
+tvadharabiMbaphalamaasvaadya ❘  
+madhuropaayanamaargeNa kucau   
+nidhivada tvaa nityasukhamitaa ‖
+
+suruciraketaka sumadaLa nakharai-   
+rvaracibukaM saa parivRRitya ❘  
+taruNimasiMdhau tadeeyadRRigjala-  
+carayugaLaM saMsaktaM cakaara ‖
+
+vacana vilaasairvasheekRRita taM   
+niculakuMja maanitadeshe ❘  
+pracurasaikate pallavashayane-   
+racitaratikaLaa raageNaasa ‖
+
+abhinavakalyaaNaaMcitaroopaa-   
+vabhinivesha saMyatacittau ❘  
+babhoovatu statparau veMkaTa   
+vibhunaa saa tadvidhinaa satayaa ‖
+
+saca lajjaaveekshhaNo bhavati taM   
+kacabharaaM gaMdhaM ghraapayati ❘  
+nacalaticenmaanavatee tathaapi   
+kucasaMgaadanukoolayati ‖
+
+avanatashirasaapyati subhagaM   
+vividhaalaapairvivashayati ❘  
+pravimala kararuharacana vilaasai   
+rbhuvanapati taM bhooshhayati ‖
+
+lataagRRihameLanaM navasai   
+katavaibhava saukhyaM dRRishhTvaa ❘  
+tatastatashcarasau kelee-   
+vratacaryaaM taaM vaaMChaMtau ❘  
+vanakusuma vishadavaravaasanayaa-   
+ghanasaararajogaMdhaishca ❘  
+janayati pavane sapadi vikaaraM-   
+vanitaa purushhau janitaashau ‖
+
+evaM vicaran helaa vimukha-   
+shreeveMkaTagiri devoyaM ❘  
+paavanaraadhaapariraMbhasukha-   
+shree vaibhavasusthiro bhavati ‖
+

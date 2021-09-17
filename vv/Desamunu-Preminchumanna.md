@@ -809,3 +809,123 @@ maanamulu m.olak.etta val.enoyi !
 మానములు మొలకెత్త వలెనోయి !  
 
 
+### English
+
+#### deśamunu premiñchumanna
+
+deśamunu premiñcumannā  
+mañci annadi peñcumannā  
+vaṭṭi māṭalu kaṭṭipeṭṭoy  
+gaṭṭi mel talapeṭṭavoy !  
+pāḍipaṇṭalupoṅgi porle  
+dārilo nuvu pāṭu paḍavoy  
+tiṇḍi kaligite kaṇḍa kaladoy  
+kaṇḍa kalavāḍenu maniśhoy !  
+īsuromani manuśhuluṇṭe  
+deśa megati bāgupaḍunoy  
+jalḍukoni kaḻalella nercuku  
+deśi  sarukulu niñcavoy !  
+anni deśāl krammavale noy   
+deśi sarukulu nammavele noy   
+ḍabbu telenaṭṭi narulaku  
+kīrti sampada labbavoy !  
+venuka cūsina kāryamemoy  
+mañcigatamuna koñcamenoy  
+mandagiñcaka mundu aḍugey  
+venuka paḍite venukenoy !  
+pūnu spardanu vidyalande  
+vairamulu vāṇijya mande  
+vyardha kalahaṃ peñcabokoy  
+katti vairaṃ kālcavoy !  
+deśābhimānamu nāku kaddani  
+vaṭṭi goppalu ceppakokoy  
+pūni yedainānu,  voka mel   
+kūrci janulaku cūpavoy !  
+orvalemi piśāci deśaṃ  
+mūlugulu pīlcese noy  
+orula meluku santasistū  
+aikamatyaṃ nercavoy  
+parula kalimiki porli yeḍce  
+pāpi kekkaḍa sukhaṃ kaddoy  
+okari mel tana melaneñce  
+nerpariki mel kolla loyi !  
+sonta lābhaṃ konta mānuku  
+poruguvāḍiki toḍu paḍavoy  
+deśamaṇṭe maṭṭikādoyi  
+deśamaṇṭe manuśhuloy !  
+ceṭṭa paṭṭāl paṭṭukuni   
+deśastu lantā naḍavavale noy  
+annadammula valenu jātulu  
+matamulannī melagavale noyi !  
+mataṃ veraitenu yemoyi  
+manasu vokaṭai manuśhuluṇṭe  
+jātiyannadi leci perigī  
+lokamuna rāṇiñcu noyi !  
+deśa maniyeḍi doḍḍa vṛkśhaṃ   
+premalanu pūlettavale noy  
+narula cemaṭanu taḍisi mūlaṃ  
+dhanaṃ paṇṭalu paṇḍavale noyi !  
+ākulanduna aṇagi maṇagī  
+kavita palakavale noy  
+palukulanu vini deśamandabhi  
+mānamulu molaketta valenoyi !  
+### PlainEnglish
+
+#### deshamunu premiMchumanna
+
+deshamunu premiMcumannaa  
+maMci annadi p.eMcumannaa  
+vaTTi maaTalu kaTTip.eTToy  
+gaTTi mel talap.eTTavoy !  
+paaDipaMTalup.oMgi p.orle  
+daarilo nuvu paaTu paDavoy  
+tiMDi kaligit.e kaMDa kaladoy  
+kaMDa kalavaaDenu manishhoy !  
+eesuromani manushhuluMTe  
+desha megati baagupaDunoy  
+jalDuk.oni kaLal.ella nercuku  
+deshi  sarukulu niMcavoy !  
+anni deshaal krammaval.e noy   
+deshi sarukulu nammav.el.e noy   
+Dabbu telenaTTi narulaku  
+keerti saMpada labbavoy !  
+v.enuka coosina kaaryamemoy  
+maMcigatamuna k.oMcamenoy  
+maMdagiMcaka muMdu aDugey  
+v.enuka paDite v.enukenoy !  
+poonu spardanu vidyalaMde  
+vairamulu vaaNijya maMde  
+vyardha kalahaM p.eMcabokoy  
+katti vairaM kaalcavoy !  
+deshaabhimaanamu naaku kaddani  
+vaTTi g.oppalu c.eppakokoy  
+pooni yedainaanu,  v.oka mel   
+koorci janulaku coopavoy !  
+orvalemi pishaaci deshaM  
+moolugulu peelces.e noy  
+.orula meluku saMtasistoo  
+aikamatyaM nercavoy  
+parula kalimiki p.orli yeDce  
+paapi k.ekkaDa sukhaM kaddoy  
+.okari mel tana melan.eMce  
+nerpariki mel k.olla loyi !  
+s.oMta laabhaM k.oMta maanuku  
+p.oruguvaaDiki toDu paDavoy  
+deshamaMTe maTTikaadoyi  
+deshamaMTe manushhuloy !  
+c.eTTa paTTaal paTTukuni   
+deshastu laMtaa naDavaval.e noy  
+annadammula val.enu jaatulu  
+matamulannee m.elagaval.e noyi !  
+mataM veraitenu yemoyi  
+manasu v.okaTai manushhuluMTe  
+jaatiyannadi leci p.erigee  
+lokamuna raaNiMcu noyi !  
+desha maniy.eDi d.oDDa vRRikshhaM   
+premalanu pool.ettaval.e noy  
+narula c.emaTanu taDisi moolaM  
+dhanaM paMTalu paMDaval.e noyi !  
+aakulaMduna aNagi maNagee  
+kavita palakaval.e noy  
+palukulanu vini deshamaMdabhi  
+maanamulu m.olak.etta val.enoyi !  

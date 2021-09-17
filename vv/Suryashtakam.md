@@ -510,3 +510,57 @@ iti shree shivaproktaM shree sooryaashhTakaM saMpoorNaM
 
 ఇతి శ్రీ శివప్రోక్తం శ్రీ సూర్యాష్టకం సంపూర్ణం  
 
+### English
+
+#### sūryāśhṭakam
+
+ādideva namastubhyaṃ prasīda mabhāskara  
+divākara namastubhyaṃ prabhākara namostute  
+saptāśva radha mārūḍhaṃ pracaṇḍaṃ kaśyapātmajaṃ  
+śveta padmadharaṃ devaṃ taṃ sūryaṃ praṇamāmyahaṃ  
+lohitaṃ radhamārūḍhaṃ sarva loka pitāmahaṃ  
+mahāpāpa haraṃ devaṃ taṃ sūryaṃ praṇamāmyahaṃ  
+traiguṇyaṃ ca mahāśūraṃ brahma viśhṇu maheśvaraṃ  
+mahā pāpa haraṃ devaṃ taṃ sūryaṃ praṇamāmyahaṃ  
+bṛṃhitaṃ tejasāṃ puñjaṃ vāyu mākāśa mevaca  
+prabhuñca sarva lokānāṃ taṃ sūryaṃ praṇamāmyahaṃ  
+bandhūka puśhpa saṅkāśaṃ hāra kuṇḍala bhūśhitaṃ  
+eka cakradharaṃ devaṃ taṃ sūryaṃ praṇamāmyahaṃ  
+viśveśaṃ viśva kartāraṃ mahā tejaḥ pradīpanaṃ  
+mahā pāpa haraṃ devaṃ taṃ sūryaṃ praṇamāmyahaṃ  
+taṃ sūryaṃ jagatāṃ nādhaṃ jnāna vijnāna mokśhadaṃ  
+mahā pāpa haraṃ devaṃ taṃ sūryaṃ praṇamāmyahaṃ  
+sūryāśhṭakaṃ paṭhennityaṃ grahapīḍā praṇāśanaṃ  
+aputro labhate putraṃ daridro dhanavān bhavet  
+āmiśhaṃ madhupānaṃ ca yaḥ karoti raverdhine  
+sapta janma bhavedrogī janma karma daridratā  
+strī taila madhu māṃsāni hastyajettu raverdhine  
+na vyādhi śoka dāridryaṃ sūrya lokaṃ sa gacChati  
+iti śrī śivaproktaṃ śrī sūryāśhṭakaṃ sampūrṇaṃ   
+### PlainEnglish
+
+#### sooryaashhTakam
+
+aadideva namastubhyaM praseeda mabhaaskara  
+divaakara namastubhyaM prabhaakara namostute  
+saptaashva radha maarooDhaM pracaMDaM kashyapaatmajaM  
+shveta padmadharaM devaM taM sooryaM praNamaamyahaM  
+lohitaM radhamaarooDhaM sarva loka pitaamahaM  
+mahaapaapa haraM devaM taM sooryaM praNamaamyahaM  
+traiguNyaM ca mahaashooraM brahma vishhNu maheshvaraM  
+mahaa paapa haraM devaM taM sooryaM praNamaamyahaM  
+bRRiMhitaM tejasaaM puMjaM vaayu maakaasha mevaca  
+prabhuMca sarva lokaanaaM taM sooryaM praNamaamyahaM  
+baMdhooka pushhpa saMkaashaM haara kuMDala bhooshhitaM  
+eka cakradharaM devaM taM sooryaM praNamaamyahaM  
+vishveshaM vishva kartaaraM mahaa tejaH pradeepanaM  
+mahaa paapa haraM devaM taM sooryaM praNamaamyahaM  
+taM sooryaM jagataaM naadhaM jnaana vijnaana mokshhadaM  
+mahaa paapa haraM devaM taM sooryaM praNamaamyahaM  
+sooryaashhTakaM paThennityaM grahapeeDaa praNaashanaM  
+aputro labhate putraM daridro dhanavaan bhavet  
+aamishhaM madhupaanaM ca yaH karoti raverdhine  
+sapta janma bhavedrogee janma karma daridrataa  
+stree taila madhu maaMsaani hastyajettu raverdhine  
+na vyaadhi shoka daaridryaM soorya lokaM sa gacChati  
+iti shree shivaproktaM shree sooryaashhTakaM saMpoorNaM   

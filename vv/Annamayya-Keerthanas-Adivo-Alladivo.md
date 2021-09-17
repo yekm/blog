@@ -315,3 +315,49 @@ paavanamula k.ella paavana mayamoo ‖
 భావింప సకల సంపద రూపమదివో  
 పావనముల కెల్ల పావన మయమూ ‖  
 
+### English
+
+#### annamayya kīrtana adivo alladivo
+
+rāgaṃ: madhyamāvati  
+adivo alladivo śrī hari vāsamu  
+padivela śeśhula paḍagala mayamu ‖
+
+ade veṅkaṭāchala makhilonnatamu  
+adivo brahmādula kapurūpamu ❘  
+adivo nityanivāsa makhila munulaku  
+ade chūḍu ḍade mokku ḍānandamayamu ‖
+
+cheṅgaṭa nadivo śeśhāchalamū  
+niṅgi nunna devatala nijavāsamu ❘  
+muṅgiṭa nalladivo mūlanunna dhanamu  
+baṅgāru śikharāla bahu brahmamayamu ‖
+
+kaivalya padamu veṅkaṭa naga madivo  
+śrī veṅkaṭapatiki sirulainadi ❘  
+bhāvimpa sakala sampada rūpamadivo  
+pāvanamula kella pāvana mayamū ‖
+
+### PlainEnglish
+
+#### annamayya keertana adivo alladivo
+
+raagaM: madhyamaavati  
+adivo alladivo shree hari vaasamu  
+padivela sheshhula paDagala mayamu ‖
+
+ad.e veMkaTaachala makhilonnatamu  
+adivo brahmaadula kapuroopamu ❘  
+adivo nityanivaasa makhila munulaku  
+ad.e chooDu Dad.e m.okku DaanaMdamayamu ‖
+
+ch.eMgaTa nadivo sheshhaachalamoo  
+niMgi nunna devatala nijavaasamu ❘  
+muMgiTa nalladivo moolanunna dhanamu  
+baMgaaru shikharaala bahu brahmamayamu ‖
+
+kaivalya padamu veMkaTa naga madivo  
+shree veMkaTapatiki sirulainadi ❘  
+bhaaviMpa sakala saMpada roopamadivo  
+paavanamula k.ella paavana mayamoo ‖
+

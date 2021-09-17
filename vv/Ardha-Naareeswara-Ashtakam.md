@@ -640,3 +640,117 @@ bhooyaatsadaa tasya samastasiddhiH ‖
 ప్రాప్నోతి సౌభాగ్యమనంతకాలం  
 భూయాత్సదా తస్య సమస్తసిద్ధిః ‖  
 
+### English
+
+#### ardha nārīśvara aśhṭakam
+
+chāmpeyagaurārdhaśarīrakāyai   
+karpūragaurārdhaśarīrakāya ❘  
+dhammillakāyai cha jaṭādharāya  
+namaḥ śivāyai cha namaḥ śivāya 
+‖ 1 ‖
+
+kastūrikākuṅkumacharchitāyai   
+chitārajaḥpuñja vicharchitāya ❘  
+kṛtasmarāyai vikṛtasmarāya   
+namaḥ śivāyai cha namaḥ śivāya 
+‖ 2 ‖
+
+jhaṇatkvaṇatkaṅkaṇanūpurāyai   
+pādābjarājatphaṇinūpurāya ❘  
+hemāṅgadāyai bhujagāṅgadāya   
+namaḥ śivāyai cha namaḥ śivāya 
+‖ 3 ‖
+
+viśālanīlotpalalochanāyai   
+vikāsipaṅkeruhalochanāya ❘  
+samekśhaṇāyai viśhamekśhaṇāya   
+namaḥ śivāyai cha namaḥ śivāya 
+‖ 4 ‖
+
+mandāramālākalitālakāyai   
+kapālamālāṅkitakandharāya ❘  
+divyāmbarāyai cha digambarāya   
+namaḥ śivāyai cha namaḥ śivāya 
+‖ 5 ‖
+
+ambhodharaśyāmalakuntalāyai   
+taṭitprabhātāmrajaṭādharāya ❘  
+nirīśvarāyai nikhileśvarāya   
+namaḥ śivāyai cha namaḥ śivāya 
+‖ 6 ‖
+
+prapañchasṛśhṭyunmukhalāsyakāyai   
+samastasaṃhārakatāṇḍavāya ❘  
+jagajjananyai jagadekapitre   
+namaḥ śivāyai cha namaḥ śivāya 
+‖ 7 ‖
+
+pradīptaratnojjvalakuṇḍalāyai   
+sphuranmahāpannagabhūśhaṇāya ❘  
+śivānvitāyai cha śivānvitāya   
+namaḥ śivāyai cha namaḥ śivāya 
+‖ 8 ‖
+
+etatpaṭhedaśhṭakamiśhṭadaṃ yo   
+bhaktyā sa mānyo bhuvi dīrghajīvī ❘  
+prāpnoti saubhāgyamanantakālaṃ   
+bhūyātsadā tasya samastasiddhiḥ ‖
+
+### PlainEnglish
+
+#### ardha naareeshvara ashhTakam
+
+chaaMpeyagauraardhashareerakaayai   
+karpooragauraardhashareerakaaya ❘  
+dhammillakaayai cha jaTaadharaaya  
+namaH shivaayai cha namaH shivaaya 
+‖ 1 ‖
+
+kastoorikaakuMkumacharchitaayai   
+chitaarajaHpunja vicharchitaaya ❘  
+kRRitasmaraayai vikRRitasmaraaya   
+namaH shivaayai cha namaH shivaaya 
+‖ 2 ‖
+
+jhaNatkvaNatkaMkaNanoopuraayai   
+paadaabjaraajatphaNinoopuraaya ❘  
+hemaaMgadaayai bhujagaaMgadaaya   
+namaH shivaayai cha namaH shivaaya 
+‖ 3 ‖
+
+vishaalaneelotpalalochanaayai   
+vikaasipaMkeruhalochanaaya ❘  
+samekshhaNaayai vishhamekshhaNaaya   
+namaH shivaayai cha namaH shivaaya 
+‖ 4 ‖
+
+maMdaaramaalaakalitaalakaayai   
+kapaalamaalaaMkitakaMdharaaya ❘  
+divyaaMbaraayai cha digaMbaraaya   
+namaH shivaayai cha namaH shivaaya 
+‖ 5 ‖
+
+aMbhodharashyaamalakuntalaayai   
+taTitprabhaataamrajaTaadharaaya ❘  
+nireeshvaraayai nikhileshvaraaya   
+namaH shivaayai cha namaH shivaaya 
+‖ 6 ‖
+
+prapaMchasRRishhTyunmukhalaasyakaayai   
+samastasaMhaarakataaMDavaaya ❘  
+jagajjananyai jagadekapitre   
+namaH shivaayai cha namaH shivaaya 
+‖ 7 ‖
+
+pradeeptaratnojjvalakuMDalaayai   
+sphuranmahaapannagabhooshhaNaaya ❘  
+shivaanvitaayai cha shivaanvitaaya   
+namaH shivaayai cha namaH shivaaya 
+‖ 8 ‖
+
+etatpaThedashhTakamishhTadaM yo   
+bhaktyaa sa maanyo bhuvi deerghajeevee ❘  
+praapnoti saubhaagyamanantakaalaM   
+bhooyaatsadaa tasya samastasiddhiH ‖
+

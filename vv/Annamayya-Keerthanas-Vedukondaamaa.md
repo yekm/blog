@@ -198,3 +198,33 @@ alamelmaMgaa shreeveMkaTaadri naathuDe ‖
 ఎలిమి గోరిన వరాలిచ్చే దేవుడే వాడు ❘  
 అలమేల్మంగా శ్రీవేంకటాద్రి నాథుడే ‖  
 
+### English
+
+#### annamayya kīrtana veḍukondāmā
+
+veḍukondāmā veṅkaṭagiri veṅkaṭeśvaruni ‖
+
+āmaṭi mrokkula vāḍe ādidevuḍe vāḍu ❘  
+tomani paḻyālavāḍe durita dūruḍe ‖
+
+vaḍḍikāsula vāḍe vanajanābhuḍe puṭṭu ❘  
+goḍḍurāṇḍraku biḍḍalichche govinduḍe ‖
+
+elimi gorina varālichche devuḍe vāḍu ❘  
+alamelmaṅgā śrīveṅkaṭādri nāthuḍe ‖
+
+### PlainEnglish
+
+#### annamayya keertana veDuk.oMdaamaa
+
+veDuk.oMdaamaa veMkaTagiri veMkaTeshvaruni ‖
+
+aamaTi mr.okkula vaaD.e aadidevuDe vaaDu ❘  
+tomani paLyaalavaaD.e durita dooruDe ‖
+
+vaDDikaasula vaaD.e vanajanaabhuDe puTTu ❘  
+g.oDDuraaMDraku biDDalichche goviMduDe ‖
+
+.elimi gorina varaalichche devuDe vaaDu ❘  
+alamelmaMgaa shreeveMkaTaadri naathuDe ‖
+

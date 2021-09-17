@@ -1277,3 +1277,243 @@ guNatrayavibhaagayogo naama chaturdasho.adhyaayaH ‖14 ‖
 
 గుణత్రయవిభాగయోగో నామ చతుర్దశోఽధ్యాయః ‖14 ‖  
 
+### English
+
+#### śrīmad bhagavad gīta chaturdaśoadhyāyaḥ
+
+atha chaturdaśoadhyāyaḥ ❘  
+śrībhagavānuvācha ❘  
+paraṃ bhūyaḥ pravakśhyāmi GYānānāṃ GYānamuttamam ❘  
+yajGYātvā munayaḥ sarve parāṃ siddhimito gatāḥ 
+‖ 1 ‖
+
+idaṃ GYānamupāśritya mama sādharmyamāgatāḥ ❘  
+sargeapi nopajāyante pralaye na vyathanti cha 
+‖ 2 ‖
+
+mama yonirmahadbrahma tasmingarbhaṃ dadhāmyaham ❘  
+sambhavaḥ sarvabhūtānāṃ tato bhavati bhārata 
+‖ 3 ‖
+
+sarvayoniśhu kaunteya mūrtayaḥ sambhavanti yāḥ ❘  
+tāsāṃ brahma mahadyonirahaṃ bījapradaḥ pitā 
+‖ 4 ‖
+
+sattvaṃ rajastama iti guṇāḥ prakṛtisambhavāḥ ❘  
+nibadhnanti mahābāho dehe dehinamavyayam 
+‖ 5 ‖
+
+tatra sattvaṃ nirmalatvātprakāśakamanāmayam ❘  
+sukhasaṅgena badhnāti GYānasaṅgena chānagha 
+‖ 6 ‖
+
+rajo rāgātmakaṃ viddhi tṛśhṇāsaṅgasamudbhavam ❘  
+tannibadhnāti kaunteya karmasaṅgena dehinam 
+‖ 7 ‖
+
+tamastvaGYānajaṃ viddhi mohanaṃ sarvadehinām ❘  
+pramādālasyanidrābhistannibadhnāti bhārata 
+‖ 8 ‖
+
+sattvaṃ sukhe sañjayati rajaḥ karmaṇi bhārata ❘  
+GYānamāvṛtya tu tamaḥ pramāde sañjayatyuta 
+‖ 9 ‖
+
+rajastamaśchābhibhūya sattvaṃ bhavati bhārata ❘  
+rajaḥ sattvaṃ tamaśchaiva tamaḥ sattvaṃ rajastathā 
+‖ 10 ‖
+
+sarvadvāreśhu deheasminprakāśa upajāyate ❘  
+GYānaṃ yadā tadā vidyādvivṛddhaṃ sattvamityuta 
+‖ 11 ‖
+
+lobhaḥ pravṛttirārambhaḥ karmaṇāmaśamaḥ spṛhā ❘  
+rajasyetāni jāyante vivṛddhe bharatarśhabha 
+‖ 12 ‖
+
+aprakāśoapravṛttiścha pramādo moha eva cha ❘  
+tamasyetāni jāyante vivṛddhe kurunandana 
+‖ 13 ‖
+
+yadā sattve pravṛddhe tu pralayaṃ yāti dehabhṛt ❘  
+tadottamavidāṃ lokānamalānpratipadyate 
+‖ 14 ‖
+
+rajasi pralayaṃ gatvā karmasaṅgiśhu jāyate ❘  
+tathā pralīnastamasi mūḍhayoniśhu jāyate 
+‖ 15 ‖
+
+karmaṇaḥ sukṛtasyāhuḥ sāttvikaṃ nirmalaṃ phalam ❘  
+rajasastu phalaṃ duḥkhamaGYānaṃ tamasaḥ phalam 
+‖ 16 ‖
+
+sattvātsañjāyate GYānaṃ rajaso lobha eva cha ❘  
+pramādamohau tamaso bhavatoaGYānameva cha 
+‖ 17 ‖
+
+ūrdhvaṃ gachChanti sattvasthā madhye tiśhṭhanti rājasāḥ ❘  
+jaghanyaguṇavṛttisthā adho gachChanti tāmasāḥ 
+‖ 18 ‖
+
+nānyaṃ guṇebhyaḥ kartāraṃ yadā draśhṭānupaśyati ❘  
+guṇebhyaścha paraṃ vetti madbhāvaṃ soadhigachChati 
+‖ 19 ‖
+
+guṇānetānatītya trīndehī dehasamudbhavān ❘  
+janmamṛtyujarāduḥkhairvimuktoamṛtamaśnute 
+‖ 20 ‖
+
+arjuna uvācha ❘  
+kairliṅgaistrīnguṇānetānatīto bhavati prabho ❘  
+kimāchāraḥ kathaṃ chaitāṃstrīnguṇānativartate 
+‖ 21 ‖
+
+śrībhagavānuvācha ❘  
+prakāśaṃ cha pravṛttiṃ cha mohameva cha pāṇḍava ❘  
+ta dveśhṭi sampravṛttāni na nivṛttāni kāṅkśhati 
+‖ 22 ‖
+
+udāsīnavadāsīno guṇairyo na vichālyate ❘  
+guṇā vartanta ityeva yoavatiśhṭhati neṅgate 
+‖ 23 ‖
+
+samaduḥkhasukhaḥ svasthaḥ samalośhṭāśmakāñchanaḥ ❘  
+tulyapriyāpriyo dhīrastulyanindātmasaṃstutiḥ 
+‖ 24 ‖
+
+mānāpamānayostulyastulyo mitrāripakśhayoḥ ❘  
+sarvārambhaparityāgī guṇātītaḥ sa uchyate 
+‖ 25 ‖
+
+māṃ cha yoavyabhichāreṇa bhaktiyogena sevate ❘  
+sa guṇānsamatītyaitānbrahmabhūyāya kalpate 
+‖ 26 ‖
+
+brahmaṇo hi pratiśhṭhāhamamṛtasyāvyayasya cha ❘  
+śāśvatasya cha dharmasya sukhasyaikāntikasya cha 
+‖ 27 ‖
+
+oṃ tatsaditi śrīmadbhagavadgītāsūpaniśhatsu brahmavidyāyāṃ yogaśāstre śrīkṛśhṇārjunasaṃvāde   
+guṇatrayavibhāgayogo nāma chaturdaśoadhyāyaḥ 
+‖14 ‖
+
+### PlainEnglish
+
+#### shreemad bhagavad geeta chaturdasho.adhyaayaH
+
+atha chaturdasho.adhyaayaH ❘  
+shreebhagavaanuvaacha ❘  
+paraM bhooyaH pravakshhyaami gnyaanaanaaM gnyaanamuttamam ❘  
+yajgnyaatvaa munayaH sarve paraaM siddhimito gataaH 
+‖ 1 ‖
+
+idaM gnyaanamupaashritya mama saadharmyamaagataaH ❘  
+sarge.api nopajaayante pralaye na vyathanti cha 
+‖ 2 ‖
+
+mama yonirmahadbrahma tasmingarbhaM dadhaamyaham ❘  
+saMbhavaH sarvabhootaanaaM tato bhavati bhaarata 
+‖ 3 ‖
+
+sarvayonishhu kaunteya moortayaH saMbhavanti yaaH ❘  
+taasaaM brahma mahadyonirahaM beejapradaH pitaa 
+‖ 4 ‖
+
+sattvaM rajastama iti guNaaH prakRRitisaMbhavaaH ❘  
+nibadhnanti mahaabaaho dehe dehinamavyayam 
+‖ 5 ‖
+
+tatra sattvaM nirmalatvaatprakaashakamanaamayam ❘  
+sukhasangena badhnaati gnyaanasangena chaanagha 
+‖ 6 ‖
+
+rajo raagaatmakaM viddhi tRRishhNaasangasamudbhavam ❘  
+tannibadhnaati kaunteya karmasangena dehinam 
+‖ 7 ‖
+
+tamastvagnyaanajaM viddhi mohanaM sarvadehinaam ❘  
+pramaadaalasyanidraabhistannibadhnaati bhaarata 
+‖ 8 ‖
+
+sattvaM sukhe saMjayati rajaH karmaNi bhaarata ❘  
+gnyaanamaavRRitya tu tamaH pramaade saMjayatyuta 
+‖ 9 ‖
+
+rajastamashchaabhibhooya sattvaM bhavati bhaarata ❘  
+rajaH sattvaM tamashchaiva tamaH sattvaM rajastathaa 
+‖ 10 ‖
+
+sarvadvaareshhu dehe.asminprakaasha upajaayate ❘  
+gnyaanaM yadaa tadaa vidyaadvivRRiddhaM sattvamityuta 
+‖ 11 ‖
+
+lobhaH pravRRittiraarambhaH karmaNaamashamaH spRRihaa ❘  
+rajasyetaani jaayante vivRRiddhe bharatarshhabha 
+‖ 12 ‖
+
+aprakaasho.apravRRittishcha pramaado moha eva cha ❘  
+tamasyetaani jaayante vivRRiddhe kurunandana 
+‖ 13 ‖
+
+yadaa sattve pravRRiddhe tu pralayaM yaati dehabhRRit ❘  
+tadottamavidaaM lokaanamalaanpratipadyate 
+‖ 14 ‖
+
+rajasi pralayaM gatvaa karmasangishhu jaayate ❘  
+tathaa praleenastamasi mooDhayonishhu jaayate 
+‖ 15 ‖
+
+karmaNaH sukRRitasyaahuH saattvikaM nirmalaM phalam ❘  
+rajasastu phalaM duHkhamagnyaanaM tamasaH phalam 
+‖ 16 ‖
+
+sattvaatsaMjaayate gnyaanaM rajaso lobha eva cha ❘  
+pramaadamohau tamaso bhavato.agnyaanameva cha 
+‖ 17 ‖
+
+oordhvaM gachChanti sattvasthaa madhye tishhThanti raajasaaH ❘  
+jaghanyaguNavRRittisthaa adho gachChanti taamasaaH 
+‖ 18 ‖
+
+naanyaM guNebhyaH kartaaraM yadaa drashhTaanupashyati ❘  
+guNebhyashcha paraM vetti madbhaavaM so.adhigachChati 
+‖ 19 ‖
+
+guNaanetaanateetya treendehee dehasamudbhavaan ❘  
+janmamRRityujaraaduHkhairvimukto.amRRitamashnute 
+‖ 20 ‖
+
+arjuna uvaacha ❘  
+kairlingaistreenguNaanetaanateeto bhavati prabho ❘  
+kimaachaaraH kathaM chaitaaMstreenguNaanativartate 
+‖ 21 ‖
+
+shreebhagavaanuvaacha ❘  
+prakaashaM cha pravRRittiM cha mohameva cha paaMDava ❘  
+ta dveshhTi saMpravRRittaani na nivRRittaani kaankshhati 
+‖ 22 ‖
+
+udaaseenavadaaseeno guNairyo na vichaalyate ❘  
+guNaa vartanta ityeva yo.avatishhThati nengate 
+‖ 23 ‖
+
+samaduHkhasukhaH svasthaH samaloshhTaashmakaanchanaH ❘  
+tulyapriyaapriyo dheerastulyanindaatmasaMstutiH 
+‖ 24 ‖
+
+maanaapamaanayostulyastulyo mitraaripakshhayoH ❘  
+sarvaarambhaparityaagee guNaateetaH sa uchyate 
+‖ 25 ‖
+
+maaM cha yo.avyabhichaareNa bhaktiyogena sevate ❘  
+sa guNaansamateetyaitaanbrahmabhooyaaya kalpate 
+‖ 26 ‖
+
+brahmaNo hi pratishhThaahamamRRitasyaavyayasya cha ❘  
+shaashvatasya cha dharmasya sukhasyaikaantikasya cha 
+‖ 27 ‖
+
+oM tatsaditi shreemadbhagavadgeetaasoopanishhatsu brahmavidyaayaaM yogashaastre shreekRRishhNaarjunasaMvaade   
+guNatrayavibhaagayogo naama chaturdasho.adhyaayaH 
+‖14 ‖
+

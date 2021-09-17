@@ -224,3 +224,33 @@ jayahe! jayahe! jayahe! jaya jaya jaya jayahe!
 జనగణ మంగళదాయక జయహే భారత భాగ్యవిధాతా!  
 జయహే! జయహే! జయహే! జయ జయ జయ జయహే!  
 
+### English
+
+#### jana gaṇa mana
+
+jana gaṇa mana adhināyaka jayahe!  
+bhārata bhāgya vidhātā!  
+pañjāba, sindhu, gujarāta, marāṭhā,  
+drāviḍa, utkaḻa, vaṅga!  
+vindhya, himācala, yamunā, gaṅga,  
+uccala jaladhitaraṅga!  
+tava śubhanāme jāge!  
+tava śubha āśiśha māge!  
+gāhe tava jaya gāthā!  
+janagaṇa maṅgaḻadāyaka jayahe bhārata bhāgyavidhātā!  
+jayahe! jayahe! jayahe! jaya jaya jaya jayahe!  
+### PlainEnglish
+
+#### jana gaNa mana
+
+jana gaNa mana adhinaayaka jayahe!  
+bhaarata bhaagya vidhaataa!  
+paMjaaba, siMdhu, gujaraata, maraaThaa,  
+draaviDa, utkaLa, vaMga!  
+viMdhya, himaacala, yamunaa, gaMga,  
+uccala jaladhitaraMga!  
+tava shubhanaame jaage!  
+tava shubha aashishha maage!  
+gaahe tava jaya gaathaa!  
+janagaNa maMgaLadaayaka jayahe bhaarata bhaagyavidhaataa!  
+jayahe! jayahe! jayahe! jaya jaya jaya jayahe!  

@@ -1862,3 +1862,363 @@ gnyaanakarmasaMnyaasayogo naama chaturtho.adhyaayaH ‖4 ‖
 
 జ్ఞానకర్మసంన్యాసయోగో నామ చతుర్థోఽధ్యాయః ‖4 ‖  
 
+### English
+
+#### śrīmad bhagavad gīta chaturthoadhyāyaḥ
+
+atha chaturthoadhyāyaḥ ❘  
+śrībhagavānuvācha ❘  
+imaṃ vivasvate yogaṃ proktavānahamavyayam ❘  
+vivasvānmanave prāha manurikśhvākaveabravīt 
+‖ 1 ‖
+
+evaṃ paramparāprāptamimaṃ rājarśhayo viduḥ ❘  
+sa kāleneha mahatā yogo naśhṭaḥ parantapa 
+‖ 2 ‖
+
+sa evāyaṃ mayā teadya yogaḥ proktaḥ purātanaḥ ❘  
+bhaktoasi me sakhā cheti rahasyaṃ hyetaduttamam 
+‖ 3 ‖
+
+arjuna uvācha ❘  
+aparaṃ bhavato janma paraṃ janma vivasvataḥ ❘  
+kathametadvijānīyāṃ tvamādau proktavāniti 
+‖ 4 ‖
+
+śrībhagavānuvācha ❘  
+bahūni me vyatītāni janmāni tava chārjuna ❘  
+tānyahaṃ veda sarvāṇi na tvaṃ vettha parantapa 
+‖ 5 ‖
+
+ajoapi sannavyayātmā bhūtānāmīśvaroapi san ❘  
+prakṛtiṃ svāmadhiśhṭhāya sambhavāmyātmamāyayā 
+‖ 6 ‖
+
+yadā yadā hi dharmasya glānirbhavati bhārata ❘  
+abhyutthānamadharmasya tadātmānaṃ sṛjāmyaham 
+‖ 7 ‖
+
+paritrāṇāya sādhūnāṃ vināśāya cha duśhkṛtām ❘  
+dharmasaṃsthāpanārthāya sambhavāmi yuge yuge 
+‖ 8 ‖
+
+janma karma cha me divyamevaṃ yo vetti tattvataḥ ❘  
+tyaktvā dehaṃ punarjanma naiti māmeti soarjuna 
+‖ 9 ‖
+
+vītarāgabhayakrodhā manmayā māmupāśritāḥ ❘  
+bahavo GYānatapasā pūtā madbhāvamāgatāḥ 
+‖ 10 ‖
+
+ye yathā māṃ prapadyante tāṃstathaiva bhajāmyaham ❘  
+mama vartmānuvartante manuśhyāḥ pārtha sarvaśaḥ 
+‖ 11 ‖
+
+kāṅkśhantaḥ karmaṇāṃ siddhiṃ yajanta iha devatāḥ ❘  
+kśhipraṃ hi mānuśhe loke siddhirbhavati karmajā 
+‖ 12 ‖
+
+chāturvarṇyaṃ mayā sṛśhṭaṃ guṇakarmavibhāgaśaḥ ❘  
+tasya kartāramapi māṃ viddhyakartāramavyayam 
+‖ 13 ‖
+
+na māṃ karmāṇi limpanti na me karmaphale spṛhā ❘  
+iti māṃ yoabhijānāti karmabhirna sa badhyate 
+‖ 14 ‖
+
+evaṃ GYātvā kṛtaṃ karma pūrvairapi mumukśhubhiḥ ❘  
+kuru karmaiva tasmāttvaṃ pūrvaiḥ pūrvataraṃ kṛtam 
+‖ 15 ‖
+
+kiṃ karma kimakarmeti kavayoapyatra mohitāḥ ❘  
+tatte karma pravakśhyāmi yajGYātvā mokśhyaseaśubhāt 
+‖ 16 ‖
+
+karmaṇo hyapi boddhavyaṃ boddhavyaṃ cha vikarmaṇaḥ ❘  
+akarmaṇaścha boddhavyaṃ gahanā karmaṇo gatiḥ 
+‖ 17 ‖
+
+karmaṇyakarma yaḥ paśyedakarmaṇi cha karma yaḥ ❘  
+sa buddhimānmanuśhyeśhu sa yuktaḥ kṛtsnakarmakṛt 
+‖ 18 ‖
+
+yasya sarve samārambhāḥ kāmasaṅkalpavarjitāḥ ❘  
+GYānāgnidagdhakarmāṇaṃ tamāhuḥ paṇḍitaṃ budhāḥ 
+‖ 19 ‖
+
+tyaktvā karmaphalāsaṅgaṃ nityatṛpto nirāśrayaḥ ❘  
+karmaṇyabhipravṛttoapi naiva kiñchitkaroti saḥ 
+‖ 20 ‖
+
+nirāśīryatachittātmā tyaktasarvaparigrahaḥ ❘  
+śārīraṃ kevalaṃ karma kurvannāpnoti kilbiśham 
+‖ 21 ‖
+
+yadṛchChālābhasantuśhṭo dvandvātīto vimatsaraḥ ❘  
+samaḥ siddhāvasiddhau cha kṛtvāpi na nibadhyate 
+‖ 22 ‖
+
+gatasaṅgasya muktasya GYānāvasthitachetasaḥ ❘  
+yaGYāyācharataḥ karma samagraṃ pravilīyate 
+‖ 23 ‖
+
+brahmārpaṇaṃ brahma havirbrahmāgnau brahmaṇā hutam ❘  
+brahmaiva tena gantavyaṃ brahmakarmasamādhinā 
+‖ 24 ‖
+
+daivamevāpare yaGYaṃ yoginaḥ paryupāsate ❘  
+brahmāgnāvapare yaGYaṃ yaGYenaivopajuhvati 
+‖ 25 ‖
+
+śrotrādīnīndriyāṇyanye saṃyamāgniśhu juhvati ❘  
+śabdādīnviśhayānanya indriyāgniśhu juhvati 
+‖ 26 ‖
+
+sarvāṇīndriyakarmāṇi prāṇakarmāṇi chāpare ❘  
+ātmasaṃyamayogāgnau juhvati GYānadīpite 
+‖ 27 ‖
+
+dravyayaGYāstapoyaGYā yogayaGYāstathāpare ❘  
+svādhyāyaGYānayaGYāścha yatayaḥ saṃśitavratāḥ 
+‖ 28 ‖
+
+apāne juhvati prāṇaṃ prāṇeapānaṃ tathāpare ❘  
+prāṇāpānagatī ruddhvā prāṇāyāmaparāyaṇāḥ 
+‖ 29 ‖
+
+apare niyatāhārāḥ prāṇānprāṇeśhu juhvati ❘  
+sarveapyete yaGYavido yaGYakśhapitakalmaśhāḥ 
+‖ 30 ‖
+
+yaGYaśiśhṭāmṛtabhujo yānti brahma sanātanam ❘  
+nāyaṃ lokoastyayaGYasya kutoanyaḥ kurusattama 
+‖ 31 ‖
+
+evaṃ bahuvidhā yaGYā vitatā brahmaṇo mukhe ❘  
+karmajānviddhi tānsarvānevaṃ GYātvā vimokśhyase 
+‖ 32 ‖
+
+śreyāndravyamayādyaGYājGYānayaGYaḥ parantapa ❘  
+sarvaṃ karmākhilaṃ pārtha GYāne parisamāpyate 
+‖ 33 ‖
+
+tadviddhi praṇipātena paripraśnena sevayā ❘  
+upadekśhyanti te GYānaṃ GYāninastattvadarśinaḥ 
+‖ 34 ‖
+
+yajGYātvā na punarmohamevaṃ yāsyasi pāṇḍava ❘  
+yena bhūtānyaśeśheṇa drakśhyasyātmanyatho mayi 
+‖ 35 ‖
+
+api chedasi pāpebhyaḥ sarvebhyaḥ pāpakṛttamaḥ ❘  
+sarvaṃ GYānaplavenaiva vṛjinaṃ santariśhyasi 
+‖ 36 ‖
+
+yathaidhāṃsi samiddhoagnirbhasmasātkurutearjuna ❘  
+GYānāgniḥ sarvakarmāṇi bhasmasātkurute tathā 
+‖ 37 ‖
+
+na hi GYānena sadṛśaṃ pavitramiha vidyate ❘  
+tatsvayaṃ yogasaṃsiddhaḥ kālenātmani vindati 
+‖ 38 ‖
+
+śraddhāvāṃllabhate GYānaṃ tatparaḥ saṃyatendriyaḥ ❘  
+GYānaṃ labdhvā parāṃ śāntimachireṇādhigachChati 
+‖ 39 ‖
+
+aGYaśchāśraddadhānaścha saṃśayātmā vinaśyati ❘  
+nāyaṃ lokoasti na paro na sukhaṃ saṃśayātmanaḥ 
+‖ 40 ‖
+
+yogasaṃnyastakarmāṇaṃ GYānasañChinnasaṃśayam ❘  
+ātmavantaṃ na karmāṇi nibadhnanti dhanañjaya 
+‖ 41 ‖
+
+tasmādaGYānasambhūtaṃ hṛtsthaṃ GYānāsinātmanaḥ ❘  
+Chittvainaṃ saṃśayaṃ yogamātiśhṭhottiśhṭha bhārata 
+‖ 42 ‖
+
+oṃ tatsaditi śrīmadbhagavadgītāsūpaniśhatsu brahmavidyāyāṃ yogaśāstre śrīkṛśhṇārjunasaṃvāde   
+GYānakarmasaṃnyāsayogo nāma chaturthoadhyāyaḥ 
+‖4 ‖
+
+### PlainEnglish
+
+#### shreemad bhagavad geeta chaturtho.adhyaayaH
+
+atha chaturtho.adhyaayaH ❘  
+shreebhagavaanuvaacha ❘  
+imaM vivasvate yogaM proktavaanahamavyayam ❘  
+vivasvaanmanave praaha manurikshhvaakave.abraveet 
+‖ 1 ‖
+
+evaM paraMparaapraaptamimaM raajarshhayo viduH ❘  
+sa kaaleneha mahataa yogo nashhTaH paraMtapa 
+‖ 2 ‖
+
+sa evaayaM mayaa te.adya yogaH proktaH puraatanaH ❘  
+bhakto.asi me sakhaa cheti rahasyaM hyetaduttamam 
+‖ 3 ‖
+
+arjuna uvaacha ❘  
+aparaM bhavato janma paraM janma vivasvataH ❘  
+kathametadvijaaneeyaaM tvamaadau proktavaaniti 
+‖ 4 ‖
+
+shreebhagavaanuvaacha ❘  
+bahooni me vyateetaani janmaani tava chaarjuna ❘  
+taanyahaM veda sarvaaNi na tvaM vettha paraMtapa 
+‖ 5 ‖
+
+ajo.api sannavyayaatmaa bhootaanaameeshvaro.api san ❘  
+prakRRitiM svaamadhishhThaaya saMbhavaamyaatmamaayayaa 
+‖ 6 ‖
+
+yadaa yadaa hi dharmasya glaanirbhavati bhaarata ❘  
+abhyutthaanamadharmasya tadaatmaanaM sRRijaamyaham 
+‖ 7 ‖
+
+paritraaNaaya saadhoonaaM vinaashaaya cha dushhkRRitaam ❘  
+dharmasaMsthaapanaarthaaya saMbhavaami yuge yuge 
+‖ 8 ‖
+
+janma karma cha me divyamevaM yo vetti tattvataH ❘  
+tyaktvaa dehaM punarjanma naiti maameti so.arjuna 
+‖ 9 ‖
+
+veetaraagabhayakrodhaa manmayaa maamupaashritaaH ❘  
+bahavo gnyaanatapasaa pootaa madbhaavamaagataaH 
+‖ 10 ‖
+
+ye yathaa maaM prapadyante taaMstathaiva bhajaamyaham ❘  
+mama vartmaanuvartante manushhyaaH paartha sarvashaH 
+‖ 11 ‖
+
+kaankshhantaH karmaNaaM siddhiM yajanta iha devataaH ❘  
+kshhipraM hi maanushhe loke siddhirbhavati karmajaa 
+‖ 12 ‖
+
+chaaturvarNyaM mayaa sRRishhTaM guNakarmavibhaagashaH ❘  
+tasya kartaaramapi maaM viddhyakartaaramavyayam 
+‖ 13 ‖
+
+na maaM karmaaNi limpanti na me karmaphale spRRihaa ❘  
+iti maaM yo.abhijaanaati karmabhirna sa badhyate 
+‖ 14 ‖
+
+evaM gnyaatvaa kRRitaM karma poorvairapi mumukshhubhiH ❘  
+kuru karmaiva tasmaattvaM poorvaiH poorvataraM kRRitam 
+‖ 15 ‖
+
+kiM karma kimakarmeti kavayo.apyatra mohitaaH ❘  
+tatte karma pravakshhyaami yajgnyaatvaa mokshhyase.ashubhaat 
+‖ 16 ‖
+
+karmaNo hyapi boddhavyaM boddhavyaM cha vikarmaNaH ❘  
+akarmaNashcha boddhavyaM gahanaa karmaNo gatiH 
+‖ 17 ‖
+
+karmaNyakarma yaH pashyedakarmaNi cha karma yaH ❘  
+sa buddhimaanmanushhyeshhu sa yuktaH kRRitsnakarmakRRit 
+‖ 18 ‖
+
+yasya sarve samaarambhaaH kaamasaMkalpavarjitaaH ❘  
+gnyaanaagnidagdhakarmaaNaM tamaahuH paNDitaM budhaaH 
+‖ 19 ‖
+
+tyaktvaa karmaphalaasangaM nityatRRipto niraashrayaH ❘  
+karmaNyabhipravRRitto.api naiva kiMchitkaroti saH 
+‖ 20 ‖
+
+niraasheeryatachittaatmaa tyaktasarvaparigrahaH ❘  
+shaareeraM kevalaM karma kurvannaapnoti kilbishham 
+‖ 21 ‖
+
+yadRRichChaalaabhasaMtushhTo dvandvaateeto vimatsaraH ❘  
+samaH siddhaavasiddhau cha kRRitvaapi na nibadhyate 
+‖ 22 ‖
+
+gatasangasya muktasya gnyaanaavasthitachetasaH ❘  
+yagnyaayaacharataH karma samagraM pravileeyate 
+‖ 23 ‖
+
+brahmaarpaNaM brahma havirbrahmaagnau brahmaNaa hutam ❘  
+brahmaiva tena gantavyaM brahmakarmasamaadhinaa 
+‖ 24 ‖
+
+daivamevaapare yagnyaM yoginaH paryupaasate ❘  
+brahmaagnaavapare yagnyaM yagnyenaivopajuhvati 
+‖ 25 ‖
+
+shrotraadeeneendriyaaNyanye saMyamaagnishhu juhvati ❘  
+shabdaadeenvishhayaananya indriyaagnishhu juhvati 
+‖ 26 ‖
+
+sarvaaNeendriyakarmaaNi praaNakarmaaNi chaapare ❘  
+aatmasaMyamayogaagnau juhvati gnyaanadeepite 
+‖ 27 ‖
+
+dravyayagnyaastapoyagnyaa yogayagnyaastathaapare ❘  
+svaadhyaayagnyaanayagnyaashcha yatayaH saMshitavrataaH 
+‖ 28 ‖
+
+apaane juhvati praaNaM praaNe.apaanaM tathaapare ❘  
+praaNaapaanagatee ruddhvaa praaNaayaamaparaayaNaaH 
+‖ 29 ‖
+
+apare niyataahaaraaH praaNaanpraaNeshhu juhvati ❘  
+sarve.apyete yagnyavido yagnyakshhapitakalmashhaaH 
+‖ 30 ‖
+
+yagnyashishhTaamRRitabhujo yaanti brahma sanaatanam ❘  
+naayaM loko.astyayagnyasya kuto.anyaH kurusattama 
+‖ 31 ‖
+
+evaM bahuvidhaa yagnyaa vitataa brahmaNo mukhe ❘  
+karmajaanviddhi taansarvaanevaM gnyaatvaa vimokshhyase 
+‖ 32 ‖
+
+shreyaandravyamayaadyagnyaajgnyaanayagnyaH paraMtapa ❘  
+sarvaM karmaakhilaM paartha gnyaane parisamaapyate 
+‖ 33 ‖
+
+tadviddhi praNipaatena pariprashnena sevayaa ❘  
+upadekshhyanti te gnyaanaM gnyaaninastattvadarshinaH 
+‖ 34 ‖
+
+yajgnyaatvaa na punarmohamevaM yaasyasi paaMDava ❘  
+yena bhootaanyasheshheNa drakshhyasyaatmanyatho mayi 
+‖ 35 ‖
+
+api chedasi paapebhyaH sarvebhyaH paapakRRittamaH ❘  
+sarvaM gnyaanaplavenaiva vRRijinaM saMtarishhyasi 
+‖ 36 ‖
+
+yathaidhaaMsi samiddho.agnirbhasmasaatkurute.arjuna ❘  
+gnyaanaagniH sarvakarmaaNi bhasmasaatkurute tathaa 
+‖ 37 ‖
+
+na hi gnyaanena sadRRishaM pavitramiha vidyate ❘  
+tatsvayaM yogasaMsiddhaH kaalenaatmani vindati 
+‖ 38 ‖
+
+shraddhaavaaMllabhate gnyaanaM tatparaH saMyatendriyaH ❘  
+gnyaanaM labdhvaa paraaM shaantimachireNaadhigachChati 
+‖ 39 ‖
+
+agnyashchaashraddadhaanashcha saMshayaatmaa vinashyati ❘  
+naayaM loko.asti na paro na sukhaM saMshayaatmanaH 
+‖ 40 ‖
+
+yogasaMnyastakarmaaNaM gnyaanasaMChinnasaMshayam ❘  
+aatmavantaM na karmaaNi nibadhnanti dhanaMjaya 
+‖ 41 ‖
+
+tasmaadagnyaanasaMbhootaM hRRitsthaM gnyaanaasinaatmanaH ❘  
+ChittvainaM saMshayaM yogamaatishhThottishhTha bhaarata 
+‖ 42 ‖
+
+oM tatsaditi shreemadbhagavadgeetaasoopanishhatsu brahmavidyaayaaM yogashaastre shreekRRishhNaarjunasaMvaade   
+gnyaanakarmasaMnyaasayogo naama chaturtho.adhyaayaH 
+‖4 ‖
+

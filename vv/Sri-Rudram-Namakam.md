@@ -1680,3 +1680,285 @@ oM shaaM _ti_ H shaaM _ti_ H shaaMti'H
 
 ఓం శాం _తిః_ శాం _తిః_ శాంతిః'  
 
+### English
+
+#### śrī rudraṃ namakam
+
+śrī rudra praśnaḥ  
+kṛśhṇa yajurvedīya taittirīya saṃhitā  
+chaturthaṃ vaiśvadevaṃ kāṇḍam pañchamaḥ prapāṭhakaḥ  
+oṃ namo bhagavate' rudrāya ‖
+
+nama'ste rudra manyava' utota iśha've nama'ḥ ❘  
+nama'ste astu dhanva'ne bāhubhyā'muta te nama'ḥ ‖
+
+yā ta iśhu'ḥ śivata'mā śivaṃ babhūva' te dhanu'ḥ ❘  
+śivā śa'ravyā' yā tava tayā' no rudra mṛḍaya ❘  
+yā te' rudra śivā tanūraghorā'pā'pakāśinī ❘  
+tayā' nastanuvā śanta'mayā giri'śantābhichā'kaśīhi ‖
+
+yāmiśhu'ṃ giriśanta haste bibharśhyasta've ❘  
+śivāṃ gi'ritra tāṃ ku'ru mā hig'ṃsīḥ puru'śhaṃ jaga't‖
+
+śivena vacha'sā tvā giriśāchChā'vadāmasi ❘  
+yathā' naḥ sarvamijjaga'dayakśhmagṃ sumanā asa't ‖
+
+adhya'vochadadhivaktā pra'thamo daivyo' bhiśhak ❘  
+ahīg'ścha sarvā''ñjambhayanthsarvā''ścha yātudhānya'ḥ ‖
+
+asau yastāmro a'ruṇa uta babhruḥ su'maṅgaḻa'ḥ ❘  
+ye chemāgṃ rudrā abhito' dikśhu śritāḥ sa'hasraśoavaiśhāgṃ heḍa' īmahe ‖
+
+asau yo''vasarpa'ti nīla'grīvo vilo'hitaḥ ❘  
+utaina'ṃ gopā a'dṛśannadṛ'śannudahārya'ḥ ❘  
+utainaṃ viśvā' bhūtāni sa dṛśhṭo mṛ'ḍayāti naḥ ‖
+
+namo' astu nīla'grīvāya sahasrākśhāya' mīḍhuśhe'' ❘  
+atho ye a'sya satvā'no'haṃ tebhyo''karannama'ḥ ‖
+
+pramu'ñcha dhanva'nastvamubhayorārtni' yorjyāṃ ❘  
+yāścha' te hasta iśha'vaḥ parā tā bha'gavo vapa ‖
+
+avatatya dhanustvagṃ saha'srākśha śate'śhudhe ❘  
+niśīrya' śalyānāṃ mukhā' śivo na'ḥ sumanā' bhava ‖
+
+vijyaṃ dhanu'ḥ kapardino viśa'lyo bāṇa'vāgṃ uta ❘  
+ane'śannasyeśha'va ābhura'sya niśhaṅgathi'ḥ ‖
+
+yā te' hetirmī'ḍuśhṭama haste' babhūva' te dhanu'ḥ ❘  
+tayā'smān, viśvatastvama'yakśhmayā pari'bbhuja ‖
+
+nama'ste astvāyu'dhāyānā'tatāya dhṛśhṇave'' ❘  
+ubhābhyā'muta te namo' bāhubhyāṃ tava dhanva'ne ‖
+
+pari' te dhanva'no hetirasmān vṛ'ṇaktu viśvata'ḥ ❘  
+atho ya i'śhudhistavāre asmannidhe'hi taṃ 
+‖ 1 ‖
+
+śambha've nama'ḥ ❘  
+nama'ste astu bhagavan-viśveśvarāya' mahādevāya' tryambakāya'  tripurāntakāya' trikāgnikālāya' kālāgnirudrāya'  nīlakaṇṭhāya' mṛtyuñjayāya' sarveśvarāya'  sadāśivāya' śrīman-mahādevāya nama'ḥ ‖
+
+namo hira'ṇya bāhave senānye' diśāṃ cha pata'ye namo namo' vṛkśhebhyo hari'keśebhyaḥ paśūnāṃ pata'ye namo nama'ḥ saspiñja'rāya tviśhī'mate pathīnāṃ pata'ye namo namo' babhluśāya' vivyādhineannā'nāṃ pata'ye namo namo hari'keśāyopavītine' puśhṭānāṃ pata'ye namo namo' bhavasya' hetyai jaga'tāṃ pata'ye namo namo' rudrāyā'tatāvine kśhetrā'ṇāṃ pata'ye namo nama'ḥ sūtāyāha'ntyāya vanā'nāṃ pata'ye namo namo rohi'tāya sthapata'ye vṛkśhāṇāṃ pata'ye namo namo' mantriṇe' vāṇijāya kakśhā'ṇāṃ pata'ye namo namo' bhuvantaye' vārivaskṛtā-yauśha'dhīnāṃ pata'ye namo nama' uchchair-gho'śhāyākrandaya'te pattīnāṃ pata'ye namo nama'ḥ kṛtsnavītāya dhāva'te sattva'nāṃ pata'ye nama'ḥ 
+‖ 2 ‖
+
+namaḥ saha'mānāya nivyādhina' āvyādhinī'nāṃ pata'ye namo nama'ḥ kakubhāya' niśhaṅgiṇe'' stenānāṃ pata'ye namo namo' niśhaṅgiṇa' iśhudhimate' taska'rāṇāṃ pata'ye namo namo vañcha'te parivañcha'te stāyūnāṃ pata'ye namo namo' nicherave' paricharāyāra'ṇyānāṃ pata'ye namo nama'ḥ sṛkāvibhyo jighāg'ṃsadbhyo muśhṇatāṃ pata'ye namo namo''simadbhyo naktañchara'dbhyaḥ prakṛntānāṃ pata'ye namo nama' uśhṇīśhine' giricharāya' kuluñchānāṃ pata'ye namo nama iśhu'madbhyo dhanvāvibhya'ścha vo namo nama' ātan-vānebhya'ḥ pratidadhā'nebhyaścha vo namo nama' āyachCha'dbhyo visṛjad-bhya'ścha vo namo namoassa'dbhyo vidya'd-bhyaścha vo namo nama āsī'nebhyaḥ śayā'nebhyaścha vo namo nama'ḥ svapadbhyo jāgra'd-bhyaścha vo namo namastiśhṭha'dbhyo dhāva'd-bhyaścha vo namo nama'ḥ sabhābhya'ḥ sabhāpa'tibhyaścha vo namo namo aśvebhyoaśva'patibhyaścha vo nama'ḥ 
+‖ 3 ‖
+
+nama' āvyādhinī''bhyo vividhya'ntībhyaścha vo namo nama uga'ṇābhyastṛgaṃ-hatībhya'ścha vo namo namo' gṛtsebhyo' gṛtsapa'tibhyaścha vo namo namo vrāte''bhyo vrāta'patibhyaścha vo namo namo' gaṇebhyo' gaṇapa'tibhyaścha vo namo namo virū'pebhyo viśvarū'pebhyaścha vo namo namo' mahadbhya'ḥ, kśhullakebhya'ścha vo namo namo' rathibhyo''rathebhya'ścha vo namo namo rathe''bhyo ratha'patibhyaścha vo namo nama'ḥ senā''bhyaḥ senānibhya'ścha vo namo nama'ḥ, kśhattṛbhya'ḥ saṅgrahītṛbhya'ścha vo namo namastakśha'bhyo rathakārebhya'ścha vo namo' namaḥ kulā'lebhyaḥ karmāre''bhyaścha vo namo nama'ḥ puñjiśhṭe''bhyo niśhādebhya'ścha vo namo nama'ḥ iśhukṛdbhyo' dhanvakṛd-bhya'ścha vo namo namo' mṛgayubhya'ḥ śvanibhya'ścha vo namo namaḥ śvabhyaḥ śvapa'tibhyaścha vo nama'ḥ 
+‖ 4 ‖
+
+namo' bhavāya' cha rudrāya' cha nama'ḥ śarvāya' cha paśupata'ye cha namo nīla'grīvāya cha śitikaṇṭhā'ya cha nama'ḥ kapardhine' cha vyu'ptakeśāya cha nama'ḥ sahasrākśhāya' cha śatadha'nvane cha namo' giriśāya' cha śipiviśhṭāya' cha namo' mīḍhuśhṭa'māya cheśhu'mate cha namo'' hrasvāya' cha vāmanāya' cha namo' bṛhate cha varśhī'yase cha namo' vṛddhāya' cha saṃvṛdhva'ne cha namo agri'yāya cha prathamāya' cha nama' āśave' chājirāya' cha namaḥ śīghri'yāya cha śībhyā'ya cha nama' ūrmyā'ya chāvasvanyā'ya cha nama'ḥ srotasyā'ya cha dvīpyā'ya cha 
+‖ 5 ‖
+
+namo'' jyeśhṭhāya' cha kaniśhṭhāya' cha nama'ḥ pūrvajāya' chāparajāya' cha namo' madhyamāya' chāpagalbhāya' cha namo' jaghanyā'ya cha budhni'yāya cha nama'ḥ sobhyā'ya cha pratisaryā'ya cha namo yāmyā'ya cha kśhemyā'ya cha nama' urvaryā'ya cha khalyā'ya cha namaḥ ślokyā'ya chā'vasānyā'ya cha namo vanyā'ya cha kakśhyā'ya cha nama'ḥ śravāya' cha pratiśravāya' cha nama' āśuśhe'ṇāya chāśura'thāya cha namaḥ śūrā'ya chāvabhindate cha namo' varmiṇe' cha varūdhine' cha namo' bilmine' cha kavachine' cha nama'ḥ śrutāya' cha śrutasenāya' cha 
+‖ 6 ‖
+
+namo' dundubhyā'ya chāhananyā'ya cha namo' dhṛśhṇave' cha pramṛśāya' cha namo' dūtāya' cha prahi'tāya cha namo' niśhaṅgiṇe' cheśhudhimate' cha nama's-tīkśhṇeśha've chāyudhine' cha nama'ḥ svāyudhāya' cha sudhanva'ne cha namaḥ srutyā'ya cha pathyā'ya cha nama'ḥ kāṭyā'ya cha nīpyā'ya cha namaḥ sūdyā'ya cha sarasyā'ya cha namo' nādyāya' cha vaiśantāya' cha namaḥ kūpyā'ya chāvaṭyā'ya cha namo varśhyā'ya chāvarśhyāya' cha namo' meghyā'ya cha vidyutyā'ya cha nama īdhriyā'ya chātapyā'ya cha namo vātyā'ya cha reśhmi'yāya cha namo' vāstavyā'ya cha vāstupāya' cha 
+‖ 7 ‖
+
+namaḥ somā'ya cha rudrāya' cha nama'stāmrāya' chāruṇāya' cha nama'ḥ śaṅgāya' cha paśupata'ye cha nama' ugrāya' cha bhīmāya' cha namo' agrevadhāya' cha dūrevadhāya' cha namo' hantre cha hanī'yase cha namo' vṛkśhebhyo hari'keśebhyo nama'stārāya nama'śśambhave' cha mayobhave' cha nama'ḥ śaṅkarāya' cha mayaskarāya' cha nama'ḥ śivāya' cha śivata'rāya cha namastīrthyā'ya cha kūlyā'ya cha nama'ḥ pāryā'ya chāvāryā'ya cha nama'ḥ pratara'ṇāya chottara'ṇāya cha nama' ātāryā'ya chālādyā'ya cha namaḥ śaśhpyā'ya cha phenyā'ya cha nama'ḥ sikatyā'ya cha pravāhyā'ya cha 
+‖ 8 ‖
+
+nama' iriṇyā'ya cha prapathyā'ya cha nama'ḥ kig^m^śilāya' cha kśhaya'ṇāya cha nama'ḥ kapardine' cha pulastaye' cha namo gośhṭhyā'ya cha gṛhyā'ya cha namastalpyā'ya cha gehyā'ya cha nama'ḥ kāṭyā'ya cha gahvareśhṭhāya' cha namo'' hṛdayyā'ya cha niveśhpyā'ya cha nama'ḥ pāgṃ savyā'ya cha rajasyā'ya cha namaḥ śuśhkyā'ya cha harityā'ya cha namo lopyā'ya cholapyā'ya cha nama' ūrvyā'ya cha sūrmyā'ya cha nama'ḥ parṇyā'ya cha parṇaśadyā'ya cha namo''paguramā'ṇāya chābhighnate cha nama' ākhkhidate cha' prakhkhidate cha namo' vaḥ kirikebhyo' devānāgm hṛda'yebhyo namo' vikśhīṇakebhyo namo' vichinvatkebhyo nama' ānir hatebhyo nama' āmīvatkebhya'ḥ 
+‖ 9 ‖
+
+drāpe andha'saspate dari'dran-nīla'lohita ❘  
+eśhāṃ puru'śhāṇāmeśhāṃ pa'śūnāṃ mā bhermā'ro mo e'śhāṃ kiñchanāma'mat ❘  
+yā te' rudra śivā tanūḥ śivā viśvāha'bheśhajī ❘  
+śivā rudrasya' bheśhajī tayā' no mṛḍa jīvase'' ‖
+
+imāgṃ rudrāya' tavase' kapardine'' kśhayadvī'rāya prabha'rāmahe matiṃ ❘  
+yathā' naḥ śamasa'd dvipade chatu'śhpade viśva'ṃ puśhṭaṃ grāme' asminnanā'turaṃ ❘  
+mṛḍā no' rudrota no maya'skṛdhi kśhayadvī'rāya nama'sā vidhema te ❘  
+yachChaṃ cha yoścha manu'rāyaje pitā tada'śyāma tava' rudra praṇī'tau ❘  
+mā no' mahānta'muta mā no' arbhakaṃ mā na ukśha'ntamuta mā na' ukśhitaṃ ❘  
+mā no''vadhīḥ pitaraṃ mota mātara'ṃ priyā mā na'stanuvo' rudra rīriśhaḥ ❘  
+mā na'stoke tana'ye mā na āyu'śhi mā no gośhu mā no aśve'śhu rīriśhaḥ ❘  
+vīrānmā no' rudra bhāmitoava'dhīr-haviśhma'nto nama'sā vidhema te ❘  
+ārātte' goghna uta pū'ruśhaghne kśhayadvī'rāya sum-namasme te' astu ❘  
+rakśhā' cha no adhi' cha deva brūhyathā' cha naḥ śarma' yachCha dvibarhā''ḥ ❘  
+stuhi śrutaṃ ga'rtasadaṃ yuvā'naṃ mṛganna bhīmamu'pahantumugram ❘  
+mṛḍā ja'ritre ru'dra stavā'no anyante' asmanniva'pantu senā''ḥ ❘  
+pari'ṇo rudrasya' hetir-vṛ'ṇaktu pari' tveśhasya' durmati ra'ghāyoḥ ❘  
+ava' sthirā maghava'd-bhyas-tanuśhva mīḍh-va'stokāya tana'yāya mṛḍaya ❘  
+mīḍhu'śhṭama śiva'mata śivo na'ḥ sumanā' bhava ❘  
+parame vṛkśha āyu'dhannidhāya kṛttiṃ vasā'na ācha'ra pinā'kaṃ bibhradāga'hi ❘  
+viki'rida vilo'hita nama'ste astu bhagavaḥ ❘  
+yāste' sahasrag'ṃ hetayonyamasman-niva'pantu tāḥ ❘  
+sahasrā'ṇi sahasradhā bā'huvostava' hetaya'ḥ ❘  
+tāsāmīśā'no bhagavaḥ parāchīnā mukhā' kṛdhi 
+‖ 10 ‖
+
+sahasrā'ṇi sahasraśo ye rudrā adhi bhūmyā''m ❘  
+teśhāg'ṃ sahasrayojaneavadhanvā'ni tanmasi ❘  
+asmin-ma'hat-ya'rṇave'''ntari'kśhe bhavā adhi' ❘  
+nīla'grīvāḥ śitikaṇṭhā''ḥ śarvā adhaḥ, kśha'mācharāḥ ❘  
+nīla'grīvāḥ śitikaṇṭhā divag'ṃ rudrā upa'śritāḥ ❘  
+ye vṛkśheśhu' saspiñja'rā nīla'grīvā vilo'hitāḥ ❘  
+ye bhūtānāmadhi'patayo viśikhāsa'ḥ kapardi'naḥ ❘  
+ye anne'śhu vividhya'nti pātre'śhu piba'to janān' ❘  
+ye pathāṃ pa'thirakśha'ya ailabṛdā' yavyudha'ḥ ❘  
+ye tīrthāni' prachara'nti sṛkāva'nto niśhaṅgiṇa'ḥ ❘  
+ya etāva'ntaścha bhūyāg'ṃsaścha diśo' rudrā vi'tasthire ❘  
+teśhāg'ṃ sahasrayojaneavadhanvā'ni tanmasi ❘  
+namo' rudhrebhyo ye pṛ'thivyāṃ ye'''ntari'kśhe ye divi yeśhāmannaṃ vāto' var-śhamiśha'vas-tebhyo daśa prāchīrdaśa' dakśhiṇā daśa' pratīchīr-daśo-dī'chīr-daśordhvās-tebhyo namaste no' mṛḍayantu te yaṃ dviśhmo yaścha' no dveśhṭi taṃ vo jambhe' dadhāmi 
+‖ 11 ‖
+
+trya'mbakaṃ yajāmahe sugandhiṃ pu'śhṭivardha'naṃ ❘  
+urvārukami'va bandha'nān-mṛtyo'r-mukśhīya mā'mṛtā''t ❘  
+yo rudro agnau yo apsu ya ośha'dhīśhu yo rudro viśvā bhuva'nā viveśa tasmai' rudrāya namo' astu ❘  
+tamu' śhṭuhi yaḥ sviśhuḥ sudhanvā yo viśva'sya kśhaya'ti bheśhajasya' ❘  
+yakśhvā''mahe sau''manasāya' rudraṃ namo''bhir-devamasu'raṃ duvasya ❘  
+ayaṃ me hasto bhaga'vānayaṃ me bhaga'vattaraḥ ❘  
+ayaṃ me'' viśvabhe''śhajo'yagṃ śivābhi'marśanaḥ ❘  
+ye te' sahasra'mayutaṃ pāśā mṛtyo martyā'ya hanta've ❘  
+tān yaGYasya' māyayā sarvānava' yajāmahe ❘  
+mṛtyave svāhā' mṛtyave svāhā'' ❘  
+prāṇānāṃ granthirasi rudro mā' viśāntakaḥ ❘  
+tenānnenā''pyāyasva ‖
+
+oṃ namo bhagavate rudrāya viśhṇave mṛtyu'rme pāhi ‖
+
+sadāśivoṃ ❘  
+oṃ śāntiḥ śāntiḥ śānti'ḥ   
+### PlainEnglish
+
+#### shree rudraM namakam
+
+shree rudra prashnaH  
+kRRishhNa yajurvedeeya taittireeya saMhitaa  
+chaturthaM vaishvadevaM kaaNDam paMchamaH prapaaThakaH  
+oM namo bhagavate' rudraaya ‖
+
+nama'ste rudra manyava' utota ishha've nama'H ❘  
+nama'ste astu dhanva'ne baahubhyaa'muta te nama'H ‖
+
+yaa ta ishhu'H shivata'maa shivaM babhoova' te dhanu'H ❘  
+shivaa sha'ravyaa' yaa tava tayaa' no rudra mRRiDaya ❘  
+yaa te' rudra shivaa tanooraghoraa.apaa'pakaashinee ❘  
+tayaa' nastanuvaa shanta'mayaa giri'shaMtaabhichaa'kasheehi ‖
+
+yaamishhu'M girishaMta haste bibharshhyasta've ❘  
+shivaaM gi'ritra taaM ku'ru maa hig'MseeH puru'shhaM jaga't‖
+
+shivena vacha'saa tvaa girishaachChaa'vadaamasi ❘  
+yathaa' naH sarvamijjaga'dayakshhmagM sumanaa asa't ‖
+
+adhya'vochadadhivaktaa pra'thamo daivyo' bhishhak ❘  
+aheeg'shcha sarvaa''njaMbhayanthsarvaa''shcha yaatudhaanya'H ‖
+
+asau yastaamro a'ruNa uta babhruH su'maMgaLa'H ❘  
+ye chemaagM rudraa abhito' dikshhu shritaaH sa'hasrasho.avaishhaagM heDa' eemahe ‖
+
+asau yo'.avasarpa'ti neela'greevo vilo'hitaH ❘  
+utaina'M gopaa a'dRRishannadRRi'shannudahaarya'H ❘  
+utainaM vishvaa' bhootaani sa dRRishhTo mRRi'Dayaati naH ‖
+
+namo' astu neela'greevaaya sahasraakshhaaya' meeDhushhe'' ❘  
+atho ye a'sya satvaa'no.ahaM tebhyo'.akarannama'H ‖
+
+pramu'ncha dhanva'nastvamubhayoraartni' yorjyaaM ❘  
+yaashcha' te hasta ishha'vaH paraa taa bha'gavo vapa ‖
+
+avatatya dhanustvagM saha'sraakshha shate'shhudhe ❘  
+nisheerya' shalyaanaaM mukhaa' shivo na'H sumanaa' bhava ‖
+
+vijyaM dhanu'H kapardino visha'lyo baaNa'vaagM uta ❘  
+ane'shannasyeshha'va aabhura'sya nishhaMgathi'H ‖
+
+yaa te' hetirmee'DushhTama haste' babhoova' te dhanu'H ❘  
+tayaa.asmaan, vishvatastvama'yakshhmayaa pari'bbhuja ‖
+
+nama'ste astvaayu'dhaayaanaa'tataaya dhRRishhNave'' ❘  
+ubhaabhyaa'muta te namo' baahubhyaaM tava dhanva'ne ‖
+
+pari' te dhanva'no hetirasmaan vRRi'Naktu vishvata'H ❘  
+atho ya i'shhudhistavaare asmannidhe'hi taM 
+‖ 1 ‖
+
+shambha've nama'H ❘  
+nama'ste astu bhagavan-vishveshvaraaya' mahaadevaaya' tryambakaaya'  tripuraantakaaya' trikaagnikaalaaya' kaalaagnirudraaya'  neelakaNThaaya' mRRityuMjayaaya' sarveshvaraaya'  sadaashivaaya' shreeman-mahaadevaaya nama'H ‖
+
+namo hira'Nya baahave senaanye' dishaaM cha pata'ye namo namo' vRRikshhebhyo hari'keshebhyaH pashoonaaM pata'ye namo nama'H saspiMja'raaya tvishhee'mate patheenaaM pata'ye namo namo' babhlushaaya' vivyaadhine.annaa'naaM pata'ye namo namo hari'keshaayopaveetine' pushhTaanaaM pata'ye namo namo' bhavasya' hetyai jaga'taaM pata'ye namo namo' rudraayaa'tataavine kshhetraa'NaaM pata'ye namo nama'H sootaayaaha'Mtyaaya vanaa'naaM pata'ye namo namo rohi'taaya sthapata'ye vRRikshhaaNaaM pata'ye namo namo' maMtriNe' vaaNijaaya kakshhaa'NaaM pata'ye namo namo' bhuvaMtaye' vaarivaskRRitaa-yaushha'dheenaaM pata'ye namo nama' uchchair-gho'shhaayaakrandaya'te patteenaaM pata'ye namo nama'H kRRitsnaveetaaya dhaava'te sattva'naaM pata'ye nama'H 
+‖ 2 ‖
+
+namaH saha'maanaaya nivyaadhina' aavyaadhinee'naaM pata'ye namo nama'H kakubhaaya' nishhaMgiNe'' stenaanaaM pata'ye namo namo' nishhaMgiNa' ishhudhimate' taska'raaNaaM pata'ye namo namo vaMcha'te parivaMcha'te staayoonaaM pata'ye namo namo' nicherave' paricharaayaara'NyaanaaM pata'ye namo nama'H sRRikaavibhyo jighaag'Msadbhyo mushhNataaM pata'ye namo namo'.asimadbhyo naktaMchara'dbhyaH prakRRintaanaaM pata'ye namo nama' ushhNeeshhine' giricharaaya' kuluMchaanaaM pata'ye namo nama ishhu'madbhyo dhanvaavibhya'shcha vo namo nama' aatan-vaanebhya'H pratidadhaa'nebhyashcha vo namo nama' aayachCha'dbhyo visRRijad-bhya'shcha vo namo namo.assa'dbhyo vidya'd-bhyashcha vo namo nama aasee'nebhyaH shayaa'nebhyashcha vo namo nama'H svapadbhyo jaagra'd-bhyashcha vo namo namastishhTha'dbhyo dhaava'd-bhyashcha vo namo nama'H sabhaabhya'H sabhaapa'tibhyashcha vo namo namo ashvebhyo.ashva'patibhyashcha vo nama'H 
+‖ 3 ‖
+
+nama' aavyaadhinee''bhyo vividhya'nteebhyashcha vo namo nama uga'NaabhyastRRigaM-hateebhya'shcha vo namo namo' gRRitsebhyo' gRRitsapa'tibhyashcha vo namo namo vraate''bhyo vraata'patibhyashcha vo namo namo' gaNebhyo' gaNapa'tibhyashcha vo namo namo viroo'pebhyo vishvaroo'pebhyashcha vo namo namo' mahadbhya'H, kshhullakebhya'shcha vo namo namo' rathibhyo'.arathebhya'shcha vo namo namo rathe''bhyo ratha'patibhyashcha vo namo nama'H senaa''bhyaH senaanibhya'shcha vo namo nama'H, kshhattRRibhya'H saMgraheetRRibhya'shcha vo namo namastakshha'bhyo rathakaarebhya'shcha vo namo' namaH kulaa'lebhyaH karmaare''bhyashcha vo namo nama'H puMjishhTe''bhyo nishhaadebhya'shcha vo namo nama'H ishhukRRidbhyo' dhanvakRRid-bhya'shcha vo namo namo' mRRigayubhya'H shvanibhya'shcha vo namo namaH shvabhyaH shvapa'tibhyashcha vo nama'H 
+‖ 4 ‖
+
+namo' bhavaaya' cha rudraaya' cha nama'H sharvaaya' cha pashupata'ye cha namo neela'greevaaya cha shitikaMThaa'ya cha nama'H kapardhine' cha vyu'ptakeshaaya cha nama'H sahasraakshhaaya' cha shatadha'nvane cha namo' girishaaya' cha shipivishhTaaya' cha namo' meeDhushhTa'maaya cheshhu'mate cha namo'' hrasvaaya' cha vaamanaaya' cha namo' bRRihate cha varshhee'yase cha namo' vRRiddhaaya' cha saMvRRidhva'ne cha namo agri'yaaya cha prathamaaya' cha nama' aashave' chaajiraaya' cha namaH sheeghri'yaaya cha sheebhyaa'ya cha nama' oormyaa'ya chaavasvanyaa'ya cha nama'H srotasyaa'ya cha dveepyaa'ya cha 
+‖ 5 ‖
+
+namo'' jyeshhThaaya' cha kanishhThaaya' cha nama'H poorvajaaya' chaaparajaaya' cha namo' madhyamaaya' chaapagalbhaaya' cha namo' jaghanyaa'ya cha budhni'yaaya cha nama'H sobhyaa'ya cha pratisaryaa'ya cha namo yaamyaa'ya cha kshhemyaa'ya cha nama' urvaryaa'ya cha khalyaa'ya cha namaH shlokyaa'ya chaa.avasaanyaa'ya cha namo vanyaa'ya cha kakshhyaa'ya cha nama'H shravaaya' cha pratishravaaya' cha nama' aashushhe'Naaya chaashura'thaaya cha namaH shooraa'ya chaavabhindate cha namo' varmiNe' cha varoodhine' cha namo' bilmine' cha kavachine' cha nama'H shrutaaya' cha shrutasenaaya' cha 
+‖ 6 ‖
+
+namo' duMdubhyaa'ya chaahananyaa'ya cha namo' dhRRishhNave' cha pramRRishaaya' cha namo' dootaaya' cha prahi'taaya cha namo' nishhaMgiNe' cheshhudhimate' cha nama's-teekshhNeshha've chaayudhine' cha nama'H svaayudhaaya' cha sudhanva'ne cha namaH srutyaa'ya cha pathyaa'ya cha nama'H kaaTyaa'ya cha neepyaa'ya cha namaH soodyaa'ya cha sarasyaa'ya cha namo' naadyaaya' cha vaishaMtaaya' cha namaH koopyaa'ya chaavaTyaa'ya cha namo varshhyaa'ya chaavarshhyaaya' cha namo' meghyaa'ya cha vidyutyaa'ya cha nama eedhriyaa'ya chaatapyaa'ya cha namo vaatyaa'ya cha reshhmi'yaaya cha namo' vaastavyaa'ya cha vaastupaaya' cha 
+‖ 7 ‖
+
+namaH somaa'ya cha rudraaya' cha nama'staamraaya' chaaruNaaya' cha nama'H shaMgaaya' cha pashupata'ye cha nama' ugraaya' cha bheemaaya' cha namo' agrevadhaaya' cha doorevadhaaya' cha namo' hantre cha hanee'yase cha namo' vRRikshhebhyo hari'keshebhyo nama'staaraaya nama'shshaMbhave' cha mayobhave' cha nama'H shaMkaraaya' cha mayaskaraaya' cha nama'H shivaaya' cha shivata'raaya cha namasteerthyaa'ya cha koolyaa'ya cha nama'H paaryaa'ya chaavaaryaa'ya cha nama'H pratara'Naaya chottara'Naaya cha nama' aataaryaa'ya chaalaadyaa'ya cha namaH shashhpyaa'ya cha phenyaa'ya cha nama'H sikatyaa'ya cha pravaahyaa'ya cha 
+‖ 8 ‖
+
+nama' iriNyaa'ya cha prapathyaa'ya cha nama'H kig^m^shilaaya' cha kshhaya'Naaya cha nama'H kapardine' cha pulastaye' cha namo goshhThyaa'ya cha gRRihyaa'ya cha namastalpyaa'ya cha gehyaa'ya cha nama'H kaaTyaa'ya cha gahvareshhThaaya' cha namo'' hRRidayyaa'ya cha niveshhpyaa'ya cha nama'H paagM savyaa'ya cha rajasyaa'ya cha namaH shushhkyaa'ya cha harityaa'ya cha namo lopyaa'ya cholapyaa'ya cha nama' oorvyaa'ya cha soormyaa'ya cha nama'H parNyaa'ya cha parNashadyaa'ya cha namo'.apaguramaa'Naaya chaabhighnate cha nama' aakhkhidate cha' prakhkhidate cha namo' vaH kirikebhyo' devaanaagm hRRida'yebhyo namo' vikshheeNakebhyo namo' vichinvatkebhyo nama' aanir hatebhyo nama' aameevatkebhya'H 
+‖ 9 ‖
+
+draape andha'saspate dari'dran-neela'lohita ❘  
+eshhaaM puru'shhaaNaameshhaaM pa'shoonaaM maa bhermaa.aro mo e'shhaaM kiMchanaama'mat ❘  
+yaa te' rudra shivaa tanooH shivaa vishvaaha'bheshhajee ❘  
+shivaa rudrasya' bheshhajee tayaa' no mRRiDa jeevase'' ‖
+
+imaagM rudraaya' tavase' kapardine'' kshhayadvee'raaya prabha'raamahe matiM ❘  
+yathaa' naH shamasa'd dvipade chatu'shhpade vishva'M pushhTaM graame' asminnanaa'turaM ❘  
+mRRiDaa no' rudrota no maya'skRRidhi kshhayadvee'raaya nama'saa vidhema te ❘  
+yachChaM cha yoshcha manu'raayaje pitaa tada'shyaama tava' rudra praNee'tau ❘  
+maa no' mahaanta'muta maa no' arbhakaM maa na ukshha'ntamuta maa na' ukshhitaM ❘  
+maa no'.avadheeH pitaraM mota maatara'M priyaa maa na'stanuvo' rudra reerishhaH ❘  
+maa na'stoke tana'ye maa na aayu'shhi maa no goshhu maa no ashve'shhu reerishhaH ❘  
+veeraanmaa no' rudra bhaamito.ava'dheer-havishhma'nto nama'saa vidhema te ❘  
+aaraatte' goghna uta poo'rushhaghne kshhayadvee'raaya sum-namasme te' astu ❘  
+rakshhaa' cha no adhi' cha deva broohyathaa' cha naH sharma' yachCha dvibarhaa''H ❘  
+stuhi shrutaM ga'rtasadaM yuvaa'naM mRRiganna bheemamu'pahantumugram ❘  
+mRRiDaa ja'ritre ru'dra stavaa'no anyante' asmanniva'pantu senaa''H ❘  
+pari'No rudrasya' hetir-vRRi'Naktu pari' tveshhasya' durmati ra'ghaayoH ❘  
+ava' sthiraa maghava'd-bhyas-tanushhva meeDh-va'stokaaya tana'yaaya mRRiDaya ❘  
+meeDhu'shhTama shiva'mata shivo na'H sumanaa' bhava ❘  
+parame vRRikshha aayu'dhannidhaaya kRRittiM vasaa'na aacha'ra pinaa'kaM bibhradaaga'hi ❘  
+viki'rida vilo'hita nama'ste astu bhagavaH ❘  
+yaaste' sahasrag'M hetayonyamasman-niva'pantu taaH ❘  
+sahasraa'Ni sahasradhaa baa'huvostava' hetaya'H ❘  
+taasaameeshaa'no bhagavaH paraacheenaa mukhaa' kRRidhi 
+‖ 10 ‖
+
+sahasraa'Ni sahasrasho ye rudraa adhi bhoomyaa''m ❘  
+teshhaag'M sahasrayojane.avadhanvaa'ni tanmasi ❘  
+asmin-ma'hat-ya'rNave''.antari'kshhe bhavaa adhi' ❘  
+neela'greevaaH shitikaNThaa''H sharvaa adhaH, kshha'maacharaaH ❘  
+neela'greevaaH shitikaNThaa divag'M rudraa upa'shritaaH ❘  
+ye vRRikshheshhu' saspiMja'raa neela'greevaa vilo'hitaaH ❘  
+ye bhootaanaamadhi'patayo vishikhaasa'H kapardi'naH ❘  
+ye anne'shhu vividhya'nti paatre'shhu piba'to janaan' ❘  
+ye pathaaM pa'thirakshha'ya ailabRRidaa' yavyudha'H ❘  
+ye teerthaani' prachara'nti sRRikaava'nto nishhaMgiNa'H ❘  
+ya etaava'ntashcha bhooyaag'Msashcha disho' rudraa vi'tasthire ❘  
+teshhaag'M sahasrayojane.avadhanvaa'ni tanmasi ❘  
+namo' rudhrebhyo ye pRRi'thivyaaM ye''.antari'kshhe ye divi yeshhaamannaM vaato' var-shhamishha'vas-tebhyo dasha praacheerdasha' dakshhiNaa dasha' prateecheer-dasho-dee'cheer-dashordhvaas-tebhyo namaste no' mRRiDayantu te yaM dvishhmo yashcha' no dveshhTi taM vo jambhe' dadhaami 
+‖ 11 ‖
+
+trya'MbakaM yajaamahe sugandhiM pu'shhTivardha'naM ❘  
+urvaarukami'va baMdha'naan-mRRityo'r-mukshheeya maa.amRRitaa''t ❘  
+yo rudro agnau yo apsu ya oshha'dheeshhu yo rudro vishvaa bhuva'naa vivesha tasmai' rudraaya namo' astu ❘  
+tamu' shhTuhi yaH svishhuH sudhanvaa yo vishva'sya kshhaya'ti bheshhajasya' ❘  
+yakshhvaa''mahe sau''manasaaya' rudraM namo''bhir-devamasu'raM duvasya ❘  
+ayaM me hasto bhaga'vaanayaM me bhaga'vattaraH ❘  
+ayaM me'' vishvabhe''shhajo.ayagM shivaabhi'marshanaH ❘  
+ye te' sahasra'mayutaM paashaa mRRityo martyaa'ya hanta've ❘  
+taan yagnyasya' maayayaa sarvaanava' yajaamahe ❘  
+mRRityave svaahaa' mRRityave svaahaa'' ❘  
+praaNaanaaM granthirasi rudro maa' vishaantakaH ❘  
+tenaannenaa''pyaayasva ‖
+
+oM namo bhagavate rudraaya vishhNave mRRityu'rme paahi ‖
+
+sadaashivoM ❘  
+oM shaaMtiH shaaMtiH shaaMti'H   

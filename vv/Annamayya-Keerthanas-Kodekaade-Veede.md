@@ -289,3 +289,47 @@ g.oMdiM dos.e nasurala goviMduDu ‖
 కుందని శ్రీవేంకటాద్రి గోవిందుడు  
 గొంది~ం దోసె నసురల గోవిందుడు ‖  
 
+### English
+
+#### annamayya kīrtana koḍekāḍe vīḍe
+
+koḍekāḍe vīḍe vīḍe govinduḍu  
+kūḍe iddaru satula govinduḍu ‖
+
+golletala valapiñce govinduḍu  
+kollalāḍe vennalu govinduḍu ❘  
+gulla saṅkuñjakramula govinduḍu  
+gollavāriṇṭa perige govinduḍu ‖
+
+kolace pasulagāce govinduḍu  
+kūlagumme kaṃsuni govinduḍu ❘  
+golayai vela koṇḍette govinduḍu  
+gūḻepusatulaṃ decce govinduḍu ‖
+
+kundanapu celatoḍi govinduḍu  
+gondulu sandulu dūre govinduḍu ❘  
+kundani śrīveṅkaṭādri govinduḍu  
+gondiṃ dose nasurala govinduḍu ‖
+
+### PlainEnglish
+
+#### annamayya keertana koD.ekaaD.e veeD.e
+
+koD.ekaaD.e veeD.e veeD.e goviMduDu  
+kooD.e iddaru satula goviMduDu ‖
+
+g.oll.etala valapiMc.e goviMduDu  
+k.ollalaaD.e v.ennalu goviMduDu ❘  
+gulla saMkuMjakramula goviMduDu  
+g.ollavaariMTa p.erig.e goviMduDu ‖
+
+kolace pasulagaac.e goviMduDu  
+koolagumm.e kaMsuni goviMduDu ❘  
+golayai vela k.oMD.ett.e goviMduDu  
+gooL.epusatulaM d.ecc.e goviMduDu ‖
+
+kuMdanapu celatoDi goviMduDu  
+g.oMdulu saMdulu door.e goviMduDu ❘  
+kuMdani shreeveMkaTaadri goviMduDu  
+g.oMdiM dos.e nasurala goviMduDu ‖
+

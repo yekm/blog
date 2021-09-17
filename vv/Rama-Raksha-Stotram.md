@@ -1966,3 +1966,377 @@ shreeraama jayaraama jayajayaraama ❘
 
 శ్రీరామ జయరామ జయజయరామ ❘  
 
+### English
+
+#### śrī rāma rakśhā stotram
+
+oṃ asya śrī rāmarakśhā stotramantrasya   
+budhakauśika ṛśhiḥ  
+śrī sītārāma chandrodevatā  
+anuśhṭup Chandaḥ  
+sītā śaktiḥ  
+śrīmad hanumān kīlakam  
+śrīrāmacandra prītyarthe rāmarakśhā stotrajape viniyogaḥ ‖
+
+dhyānam  
+dhyāyedājānubāhuṃ dhṛtaśara dhanuśhaṃ baddha padmāsanasthaṃ  
+pītaṃ vāsovasānaṃ navakamala daldasparthi netraṃ prasannam ❘  
+vāmāṅkārūḍha sītāmukha kamalamilallochanaṃ nīradābhaṃ  
+nānālaṅkāra dīptaṃ dadhatamuru jaṭāmaṇḍalaṃ rāmachandram ‖
+
+stotram  
+charitaṃ raghunāthasya śatakoṭi pravistaram ❘  
+ekaikamakśharaṃ puṃsāṃ mahāpātaka nāśanam 
+‖ 1 ‖
+
+dhyātvā nīlotpala śyāmaṃ rāmaṃ rājīvalochanam ❘  
+jānakī lakśhmaṇopetaṃ jaṭāmukuṭa maṇḍitam 
+‖ 2 ‖
+
+sāsitūṇa dhanurbāṇa pāṇiṃ naktaṃ charāntakam ❘  
+svalīlayā jagattrātu māvirbhūtamajaṃ vibhum 
+‖ 3 ‖
+
+rāmarakśhāṃ paṭhetprājJṇaḥ pāpaghnīṃ sarvakāmadām ❘  
+śiro me rāghavaḥ pātu phālaṃ daśarathātmajaḥ 
+‖ 4 ‖
+
+kausalyeyo dṛśaupātu viśvāmitrapriyaḥ śṛtī ❘  
+ghrāṇaṃ pātu makhatrātā mukhaṃ saumitrivatsalaḥ 
+‖ 5 ‖
+
+jihvāṃ vidyānidhiḥ pātu kaṇṭhaṃ bharatavanditaḥ ❘  
+skandhau divyāyudhaḥ pātu bhujau bhagneśakārmukaḥ 
+‖ 6 ‖
+
+karau sītāpatiḥ pātu hṛdayaṃ jāmadagnyajit ❘  
+madhyaṃ pātu kharadhvaṃsī nābhiṃ jāmbavadāśrayaḥ 
+‖ 7 ‖
+
+sugrīveśaḥ kaṭiṃ pātu sakthinī hanumat-prabhuḥ ❘  
+ūrū raghūttamaḥ pātu rakśhaḥkula vināśakṛt 
+‖ 8 ‖
+
+jānunī setukṛt-pātu jaṅghe daśamukhāntakaḥ ❘  
+pādau vibhīśhaṇaśrīdaḥ pātu rāmoakhilaṃ vapuḥ 
+‖ 9 ‖
+
+etāṃ rāmabalopetāṃ rakśhāṃ yaḥ sukṛtī paṭhet ❘  
+sa chirāyuḥ sukhī putrī vijayī vinayī bhavet 
+‖ 10 ‖
+
+pātālda-bhūtala-vyoma-chāriṇa-śchadma-chāriṇaḥ ❘  
+na draśhṭumapi śaktāste rakśhitaṃ rāmanāmabhiḥ 
+‖ 11 ‖
+
+rāmeti rāmabhadreti rāmachandreti vā smaran ❘  
+naro na lipyate pāpairbhuktiṃ muktiṃ cha vindati 
+‖ 12 ‖
+
+jagajjaitraika mantreṇa rāmanāmnābhi rakśhitam ❘  
+yaḥ kaṇṭhe dhārayettasya karasthāḥ sarvasiddhayaḥ 
+‖ 13 ‖
+
+vajrapañjara nāmedaṃ yo rāmakavachaṃ smaret ❘  
+avyāhatājJṇaḥ sarvatra labhate jayamaṅgaldam 
+‖ 14 ‖
+
+ādiśhṭavān-yathā svapne rāmarakśhāmimāṃ haraḥ ❘  
+tathā likhitavān-prātaḥ prabuddhau budhakauśikaḥ 
+‖ 15 ‖
+
+ārāmaḥ kalpavṛkśhāṇāṃ virāmaḥ sakalāpadām ❘  
+abhirāma-strilokānāṃ rāmaḥ śrīmān sa naḥ prabhuḥ 
+‖ 16 ‖
+
+taruṇau rūpasampannau sukumārau mahābalau ❘  
+puṇḍarīka viśālākśhau chīrakṛśhṇājināmbarau 
+‖ 17 ‖
+
+phalamūlāśinau dāntau tāpasau brahmachāriṇau ❘  
+putrau daśarathasyaitau bhrātarau rāmalakśhmaṇau 
+‖ 18 ‖
+
+śaraṇyau sarvasattvānāṃ śreśhṭhau sarvadhanuśhmatām ❘  
+rakśhaḥkula nihantārau trāyetāṃ no raghūttamau 
+‖ 19 ‖
+
+ātta sajya dhanuśhā viśhuspṛśā vakśhayāśuga niśhaṅga saṅginau ❘  
+rakśhaṇāya mama rāmalakśhaṇāvagrataḥ pathi sadaiva gacChatāṃ 
+‖ 20 ‖
+
+sannaddhaḥ kavachī khaḍgī chāpabāṇadharo yuvā ❘  
+gacChan manorathānnaścha (manorathoasmākaṃ) rāmaḥ pātu sa lakśhmaṇaḥ 
+‖ 21 ‖
+
+rāmo dāśarathi śśūro lakśhmaṇānucharo balī ❘  
+kākutsaḥ puruśhaḥ pūrṇaḥ kausalyeyo raghūttamaḥ 
+‖ 22 ‖
+
+vedāntavedyo yajJṇeśaḥ purāṇa puruśhottamaḥ ❘  
+jānakīvallabhaḥ śrīmānaprameya parākramaḥ 
+‖ 23 ‖
+
+ityetāni japennityaṃ madbhaktaḥ śraddhayānvitaḥ ❘  
+aśvamedhādhikaṃ puṇyaṃ samprāpnoti na saṃśayaḥ 
+‖ 24 ‖
+
+rāmaṃ dūrvādalda śyāmaṃ padmākśhaṃ pītavāsasam ❘  
+stuvanti nābhi-rdivyai-rnate saṃsāriṇo narāḥ 
+‖ 25 ‖
+
+rāmaṃ lakśhmaṇa pūrvajaṃ raghuvaraṃ sītāpatiṃ sundaram  
+kākutsthaṃ karuṇārṇavaṃ guṇanidhiṃ viprapriyaṃ dhārmikam ❘  
+rājendraṃ satyasandhaṃ daśarathatanayaṃ śyāmalaṃ śāntamūrtim  
+vande lokābhirāmaṃ raghukula tilakaṃ rāghavaṃ rāvaṇārim 
+‖ 26 ‖
+
+rāmāya rāmabhadrāya rāmachandrāya vedhase ❘  
+raghunāthāya nāthāya sītāyāḥ pataye namaḥ 
+‖ 27 ‖
+
+śrīrāma rāma raghunandana rāma rāma  
+śrīrāma rāma bharatāgraja rāma rāma ❘  
+śrīrāma rāma raṇakarkaśa rāma rāma  
+śrīrāma rāma śaraṇaṃ bhava rāma rāma 
+‖ 28 ‖
+
+śrīrāma chandra charaṇau manasā smarāmi  
+śrīrāma chandra charaṇau vachasā gṛhṇāmi ❘  
+śrīrāma chandra charaṇau śirasā namāmi  
+śrīrāma chandra charaṇau śaraṇaṃ prapadye 
+‖ 29 ‖
+
+mātā rāmo mat-pitā rāmachandraḥ  
+svāmī rāmo mat-sakhā rāmachandraḥ ❘  
+sarvasvaṃ me rāmachandro dayālduḥ  
+nānyaṃ jāne naiva na jāne 
+‖ 30 ‖
+
+dakśhiṇe lakśhmaṇo yasya vāme cha (tu) janakātmajā ❘  
+purato mārutiryasya taṃ vande raghunandanam 
+‖ 31 ‖
+
+lokābhirāmaṃ raṇaraṅgadhīraṃ  
+rājīvanetraṃ raghuvaṃśanātham ❘  
+kāruṇyarūpaṃ karuṇākaraṃ taṃ  
+śrīrāmachandraṃ śaraṇyaṃ prapadye 
+‖ 32 ‖
+
+manojavaṃ māruta tulya vegaṃ  
+jitendriyaṃ buddhimatāṃ variśhṭam ❘  
+vātātmajaṃ vānarayūtha mukhyaṃ  
+śrīrāmadūtaṃ śaraṇaṃ prapadye 
+‖ 33 ‖
+
+kūjantaṃ rāmarāmeti madhuraṃ madhurākśharam ❘  
+āruhyakavitā śākhāṃ vande vālmīki kokilam 
+‖ 34 ‖
+
+āpadāmapahartāraṃ dātāraṃ sarvasampadām ❘  
+lokābhirāmaṃ śrīrāmaṃ bhūyobhūyo namāmyahaṃ 
+‖ 35 ‖
+
+bharjanaṃ bhavabījānāmarjanaṃ sukhasampadām ❘  
+tarjanaṃ yamadūtānāṃ rāma rāmeti garjanam 
+‖ 36 ‖
+
+rāmo rājamaṇiḥ sadā vijayate rāmaṃ rameśaṃ bhaje  
+rāmeṇābhihatā niśācharachamū rāmāya tasmai namaḥ ❘  
+rāmānnāsti parāyaṇaṃ parataraṃ rāmasya dāsosmyahaṃ  
+rāme chittalayaḥ sadā bhavatu me bho rāma māmuddhara 
+‖ 37 ‖
+
+śrīrāma rāma rāmeti rame rāme manorame ❘  
+sahasranāma tattulyaṃ rāma nāma varānane 
+‖ 38 ‖
+
+iti śrībudhakauśikamuni virachitaṃ śrīrāma rakśhāstotraṃ sampūrṇaṃ ❘  
+śrīrāma jayarāma jayajayarāma ❘  
+### PlainEnglish
+
+#### shree raama rakshhaa stotram
+
+oM asya shree raamarakshhaa stotramaMtrasya   
+budhakaushika RRishhiH  
+shree seetaaraama chaMdrodevataa  
+anushhTup ChaMdaH  
+seetaa shaktiH  
+shreemad hanumaan keelakam  
+shreeraamacaMdra preetyarthe raamarakshhaa stotrajape viniyogaH ‖
+
+dhyaanam  
+dhyaayedaajaanubaahuM dhRRitashara dhanushhaM baddha padmaasanasthaM  
+peetaM vaasovasaanaM navakamala daldasparthi netraM prasannam ❘  
+vaamaaMkaarooDha seetaamukha kamalamilallochanaM neeradaabhaM  
+naanaalaMkaara deeptaM dadhatamuru jaTaamaMDalaM raamachaMdram ‖
+
+stotram  
+charitaM raghunaathasya shatakoTi pravistaram ❘  
+ekaikamakshharaM puMsaaM mahaapaataka naashanam 
+‖ 1 ‖
+
+dhyaatvaa neelotpala shyaamaM raamaM raajeevalochanam ❘  
+jaanakee lakshhmaNopetaM jaTaamukuTa maMDitam 
+‖ 2 ‖
+
+saasitooNa dhanurbaaNa paaNiM naktaM charaaMtakam ❘  
+svaleelayaa jagattraatu maavirbhootamajaM vibhum 
+‖ 3 ‖
+
+raamarakshhaaM paThetpraajjhNaH paapaghneeM sarvakaamadaam ❘  
+shiro me raaghavaH paatu phaalaM dasharathaatmajaH 
+‖ 4 ‖
+
+kausalyeyo dRRishaupaatu vishvaamitrapriyaH shRRitee ❘  
+ghraaNaM paatu makhatraataa mukhaM saumitrivatsalaH 
+‖ 5 ‖
+
+jihvaaM vidyaanidhiH paatu kaMThaM bharatavaMditaH ❘  
+skaMdhau divyaayudhaH paatu bhujau bhagneshakaarmukaH 
+‖ 6 ‖
+
+karau seetaapatiH paatu hRRidayaM jaamadagnyajit ❘  
+madhyaM paatu kharadhvaMsee naabhiM jaaMbavadaashrayaH 
+‖ 7 ‖
+
+sugreeveshaH kaTiM paatu sakthinee hanumat-prabhuH ❘  
+ooroo raghoottamaH paatu rakshhaHkula vinaashakRRit 
+‖ 8 ‖
+
+jaanunee setukRRit-paatu jaMghe dashamukhaaMtakaH ❘  
+paadau vibheeshhaNashreedaH paatu raamo.akhilaM vapuH 
+‖ 9 ‖
+
+etaaM raamabalopetaaM rakshhaaM yaH sukRRitee paThet ❘  
+sa chiraayuH sukhee putree vijayee vinayee bhavet 
+‖ 10 ‖
+
+paataalda-bhootala-vyoma-chaariNa-shchadma-chaariNaH ❘  
+na drashhTumapi shaktaaste rakshhitaM raamanaamabhiH 
+‖ 11 ‖
+
+raameti raamabhadreti raamachaMdreti vaa smaran ❘  
+naro na lipyate paapairbhuktiM muktiM cha viMdati 
+‖ 12 ‖
+
+jagajjaitraika maMtreNa raamanaamnaabhi rakshhitam ❘  
+yaH kaMThe dhaarayettasya karasthaaH sarvasiddhayaH 
+‖ 13 ‖
+
+vajrapaMjara naamedaM yo raamakavachaM smaret ❘  
+avyaahataajjhNaH sarvatra labhate jayamaMgaldam 
+‖ 14 ‖
+
+aadishhTavaan-yathaa svapne raamarakshhaamimaaM haraH ❘  
+tathaa likhitavaan-praataH prabuddhau budhakaushikaH 
+‖ 15 ‖
+
+aaraamaH kalpavRRikshhaaNaaM viraamaH sakalaapadaam ❘  
+abhiraama-strilokaanaaM raamaH shreemaan sa naH prabhuH 
+‖ 16 ‖
+
+taruNau roopasaMpannau sukumaarau mahaabalau ❘  
+puMDareeka vishaalaakshhau cheerakRRishhNaajinaaMbarau 
+‖ 17 ‖
+
+phalamoolaashinau daaMtau taapasau brahmachaariNau ❘  
+putrau dasharathasyaitau bhraatarau raamalakshhmaNau 
+‖ 18 ‖
+
+sharaNyau sarvasattvaanaaM shreshhThau sarvadhanushhmataam ❘  
+rakshhaHkula nihaMtaarau traayetaaM no raghoottamau 
+‖ 19 ‖
+
+aatta sajya dhanushhaa vishhuspRRishaa vakshhayaashuga nishhaMga saMginau ❘  
+rakshhaNaaya mama raamalakshhaNaavagrataH pathi sadaiva gacChataaM 
+‖ 20 ‖
+
+sannaddhaH kavachee khaDgee chaapabaaNadharo yuvaa ❘  
+gacChan manorathaannashcha (manoratho.asmaakaM) raamaH paatu sa lakshhmaNaH 
+‖ 21 ‖
+
+raamo daasharathi shshooro lakshhmaNaanucharo balee ❘  
+kaakutsaH purushhaH poorNaH kausalyeyo raghoottamaH 
+‖ 22 ‖
+
+vedaaMtavedyo yajjhNeshaH puraaNa purushhottamaH ❘  
+jaanakeevallabhaH shreemaanaprameya paraakramaH 
+‖ 23 ‖
+
+ityetaani japennityaM madbhaktaH shraddhayaanvitaH ❘  
+ashvamedhaadhikaM puNyaM saMpraapnoti na saMshayaH 
+‖ 24 ‖
+
+raamaM doorvaadalda shyaamaM padmaakshhaM peetavaasasam ❘  
+stuvaMti naabhi-rdivyai-rnate saMsaariNo naraaH 
+‖ 25 ‖
+
+raamaM lakshhmaNa poorvajaM raghuvaraM seetaapatiM suMdaram  
+kaakutsthaM karuNaarNavaM guNanidhiM viprapriyaM dhaarmikam ❘  
+raajeMdraM satyasaMdhaM dasharathatanayaM shyaamalaM shaaMtamoortim  
+vaMde lokaabhiraamaM raghukula tilakaM raaghavaM raavaNaarim 
+‖ 26 ‖
+
+raamaaya raamabhadraaya raamachaMdraaya vedhase ❘  
+raghunaathaaya naathaaya seetaayaaH pataye namaH 
+‖ 27 ‖
+
+shreeraama raama raghunaMdana raama raama  
+shreeraama raama bharataagraja raama raama ❘  
+shreeraama raama raNakarkasha raama raama  
+shreeraama raama sharaNaM bhava raama raama 
+‖ 28 ‖
+
+shreeraama chaMdra charaNau manasaa smaraami  
+shreeraama chaMdra charaNau vachasaa gRRihNaami ❘  
+shreeraama chaMdra charaNau shirasaa namaami  
+shreeraama chaMdra charaNau sharaNaM prapadye 
+‖ 29 ‖
+
+maataa raamo mat-pitaa raamachaMdraH  
+svaamee raamo mat-sakhaa raamachaMdraH ❘  
+sarvasvaM me raamachaMdro dayaalduH  
+naanyaM jaane naiva na jaane 
+‖ 30 ‖
+
+dakshhiNe lakshhmaNo yasya vaame cha (tu) janakaatmajaa ❘  
+purato maarutiryasya taM vaMde raghunaMdanam 
+‖ 31 ‖
+
+lokaabhiraamaM raNaraMgadheeraM  
+raajeevanetraM raghuvaMshanaatham ❘  
+kaaruNyaroopaM karuNaakaraM taM  
+shreeraamachaMdraM sharaNyaM prapadye 
+‖ 32 ‖
+
+manojavaM maaruta tulya vegaM  
+jiteMdriyaM buddhimataaM varishhTam ❘  
+vaataatmajaM vaanarayootha mukhyaM  
+shreeraamadootaM sharaNaM prapadye 
+‖ 33 ‖
+
+koojaMtaM raamaraameti madhuraM madhuraakshharam ❘  
+aaruhyakavitaa shaakhaaM vaMde vaalmeeki kokilam 
+‖ 34 ‖
+
+aapadaamapahartaaraM daataaraM sarvasaMpadaam ❘  
+lokaabhiraamaM shreeraamaM bhooyobhooyo namaamyahaM 
+‖ 35 ‖
+
+bharjanaM bhavabeejaanaamarjanaM sukhasaMpadaam ❘  
+tarjanaM yamadootaanaaM raama raameti garjanam 
+‖ 36 ‖
+
+raamo raajamaNiH sadaa vijayate raamaM rameshaM bhaje  
+raameNaabhihataa nishaacharachamoo raamaaya tasmai namaH ❘  
+raamaannaasti paraayaNaM parataraM raamasya daasosmyahaM  
+raame chittalayaH sadaa bhavatu me bho raama maamuddhara 
+‖ 37 ‖
+
+shreeraama raama raameti rame raame manorame ❘  
+sahasranaama tattulyaM raama naama varaanane 
+‖ 38 ‖
+
+iti shreebudhakaushikamuni virachitaM shreeraama rakshhaastotraM saMpoorNaM ❘  
+shreeraama jayaraama jayajayaraama ❘  

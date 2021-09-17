@@ -276,3 +276,43 @@ dariceraa g.oMtayu b.odduledu ‖
 తిరువేంకటగిరి దేవుడైనహరి  
 దరిచేరా గొంతయు బొద్దులేదు ‖  
 
+### English
+
+#### annamayya kīrtana gāline poya
+
+gāline poya galakālamu   
+tālimiki gontayu bodduledu ‖
+
+aḍusu corane paṭṭe naṭuniṭu gāllu   
+guḍugukonane paṭṭe galakālamu ❘  
+oḍaliki jīvuni koḍayaḍainahari   
+daḍavagā gontayu bodduledu ‖
+
+kalaci cindane paṭṭe gaḍavaga niñcaga baṭṭe kaluśhadehapubādha galakālamu ❘  
+talaposi tanapāli daivamaina hari   
+dalacagā gontayu bodduledu ❘  
+śiramu muḍuvabaṭṭe cikkudiyyaga baṭṭe   
+garimala gapaṭāla galakālamu ❘  
+tiruveṅkaṭagiri devuḍainahari   
+daricerā gontayu bodduledu ‖
+
+### PlainEnglish
+
+#### annamayya keertana gaaline poya
+
+gaaline poya galakaalamu   
+taalimiki g.oMtayu b.odduledu ‖
+
+aDusu c.orane paTT.e naTuniTu gaallu   
+guDuguk.onane paTT.e galakaalamu ❘  
+.oDaliki jeevuni k.oDayaDainahari   
+daDavagaa g.oMtayu b.odduledu ‖
+
+kalaci ciMdane paTT.e gaDavaga niMcaga baTT.e kalushhadehapubaadha galakaalamu ❘  
+talaposi tanapaali daivamaina hari   
+dalacagaa g.oMtayu b.odduledu ❘  
+shiramu muDuvabaTT.e cikkudiyyaga baTT.e   
+garimala gapaTaala galakaalamu ❘  
+tiruveMkaTagiri devuDainahari   
+dariceraa g.oMtayu b.odduledu ‖
+

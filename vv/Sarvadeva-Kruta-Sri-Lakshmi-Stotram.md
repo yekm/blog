@@ -705,3 +705,111 @@ harshhaanaMdakaraM shaashvaddharma mokshha suhRRitpadam‖
 
 ‖ ఇతి సర్వ దేవ కృత లక్ష్మీ స్తోత్రం సంపూర్ణం ‖  
 
+### English
+
+#### sarvadeva kṛta śrī lakśhmī stotram
+
+kśhamasva bhagavatyamba kśhamā śīle parātpare❘  
+śuddha satva svarūpeca kopādi pari varjite‖
+
+upame sarva sādhvīnāṃ devīnāṃ deva pūjite❘  
+tvayā vinā jagatsarvaṃ mṛta tulyañca niśhphalam❘  
+sarva sampatsvarūpātvaṃ sarveśhāṃ sarva rūpiṇī❘  
+rāseśvaryadhi devītvaṃ tvatkalāḥ sarvayośhitaḥ‖
+
+kailāse pārvatī tvañca kśhīrodhe sindhu kanyakā❘  
+svargeca svarga lakśhmī stvaṃ martya lakśhmīśca bhūtale‖
+
+vaikuṇṭheca mahālakśhmīḥ devadevī sarasvatī❘  
+gaṅgāca tulasītvañca sāvitrī brahma lokataḥ‖
+
+kṛśhṇa prāṇādhi devītvaṃ goloke rādhikā svayam❘  
+rāse rāseśvarī tvañca bṛndā bṛndāvane vane‖
+
+kṛśhṇa priyā tvaṃ bhāṇḍīre candrā candana kānane❘  
+virajā campaka vane śata śṛṅgeca sundarī❘  
+padmāvatī padma vane mālatī mālatī vane❘  
+kunda dantī kundavane suśīlā ketakī vane‖
+
+kadamba mālā tvaṃ devī kadamba kānane2pica❘  
+rājalakśhmīḥ rāja gehe gṛhalakśhmī rgṛhe gṛhe‖
+
+ityuktvā devatāssarvāḥ munayo manavastathā❘  
+rūrūdurna mravadanāḥ śuśhka kaṇṭhośhṭha tālukāḥ‖
+
+iti lakśhmī stavaṃ puṇyaṃ sarvadevaiḥ kṛtaṃ śubham❘  
+yaḥ paṭhetprātarutthāya savaisarvaṃ labheddhruvam‖
+
+abhāryo labhate bhāryāṃ vinītāṃ susutāṃ satīm❘  
+suśīlāṃ sundarīṃ ramyāmati supriyavādinīm‖
+
+putra pautra vatīṃ śuddhāṃ kulajāṃ komalāṃ varām❘  
+aputro labhate putraṃ vaiśhṇavaṃ cirajīvinam‖
+
+paramaiśvarya yuktañca vidyāvantaṃ yaśasvinam❘  
+bhraśhṭarājyo labhedrājyaṃ bhraśhṭa śrīrlabhete śriyam‖
+
+hata bandhurlabhedbandhuṃ dhana bhraśhṭo dhanaṃ labhet‖
+
+kīrti hīno labhetkīrtiṃ pratiśhṭhāñca labheddhruvam‖
+
+sarva maṅgaḻadaṃ stotraṃ śoka santāpa nāśanam❘  
+harśhānandakaraṃ śāśvaddharma mokśha suhṛtpadam‖
+
+
+‖ iti sarva deva kṛta lakśhmī stotraṃ sampūrṇaṃ ‖
+
+### PlainEnglish
+
+#### sarvadeva kRRita shree lakshhmee stotram
+
+kshhamasva bhagavatyaMba kshhamaa sheele paraatpare❘  
+shuddha satva svaroopeca kopaadi pari varjite‖
+
+upame sarva saadhveenaaM deveenaaM deva poojite❘  
+tvayaa vinaa jagatsarvaM mRRita tulyaMca nishhphalam❘  
+sarva saMpatsvaroopaatvaM sarveshhaaM sarva roopiNee❘  
+raaseshvaryadhi deveetvaM tvatkalaaH sarvayoshhitaH‖
+
+kailaase paarvatee tvaMca kshheerodhe siMdhu kanyakaa❘  
+svargeca svarga lakshhmee stvaM martya lakshhmeeshca bhootale‖
+
+vaikuMTheca mahaalakshhmeeH devadevee sarasvatee❘  
+gaMgaaca tulaseetvaMca saavitree brahma lokataH‖
+
+kRRishhNa praaNaadhi deveetvaM goloke raadhikaa svayam❘  
+raase raaseshvaree tvaMca bRRiMdaa bRRiMdaavane vane‖
+
+kRRishhNa priyaa tvaM bhaaMDeere caMdraa caMdana kaanane❘  
+virajaa caMpaka vane shata shRRiMgeca suMdaree❘  
+padmaavatee padma vane maalatee maalatee vane❘  
+kuMda daMtee kuMdavane susheelaa ketakee vane‖
+
+kadaMba maalaa tvaM devee kadaMba kaanane2pica❘  
+raajalakshhmeeH raaja gehe gRRihalakshhmee rgRRihe gRRihe‖
+
+ityuktvaa devataassarvaaH munayo manavastathaa❘  
+rooroodurna mravadanaaH shushhka kaMThoshhTha taalukaaH‖
+
+iti lakshhmee stavaM puNyaM sarvadevaiH kRRitaM shubham❘  
+yaH paThetpraatarutthaaya savaisarvaM labheddhruvam‖
+
+abhaaryo labhate bhaaryaaM vineetaaM susutaaM sateem❘  
+susheelaaM suMdareeM ramyaamati supriyavaadineem‖
+
+putra pautra vateeM shuddhaaM kulajaaM komalaaM varaam❘  
+aputro labhate putraM vaishhNavaM cirajeevinam‖
+
+paramaishvarya yuktaMca vidyaavaMtaM yashasvinam❘  
+bhrashhTaraajyo labhedraajyaM bhrashhTa shreerlabhete shriyam‖
+
+hata baMdhurlabhedbaMdhuM dhana bhrashhTo dhanaM labhet‖
+
+keerti heeno labhetkeertiM pratishhThaaMca labheddhruvam‖
+
+sarva maMgaLadaM stotraM shoka saMtaapa naashanam❘  
+harshhaanaMdakaraM shaashvaddharma mokshha suhRRitpadam‖
+
+
+‖ iti sarva deva kRRita lakshhmee stotraM saMpoorNaM ‖
+

@@ -302,3 +302,47 @@ namo namohari namo namo ‖
 నమో నమోహరి నమో నమో ‖  
 
 
+### English
+
+#### annamayya kīrtana garuḍa gamana garuḍadhvaja
+
+garuḍa gamana garuḍadhvaja   
+narahari namonamo namo ‖
+
+kamalāpati kamalanābhā   
+kamalaja janmakāraṇika ❘  
+kamalanayana kamalāptakula   
+namonamo hari namo namo ‖
+
+jaladhi bandhana jaladhiśayana   
+jalanidhi madhya jantukala ❘  
+jaladhijāmāta jaladhigambhīra   
+haladhara namo hari namo ‖
+
+ghanadivyarūpa ghanamahimāṅka   
+ghanaghanā ghanakāya varṇa ❘  
+anagha śrīveṅkaṭādhipatehaṃ   
+namo namohari namo namo ‖
+
+### PlainEnglish
+
+#### annamayya keertana garuDa gamana garuDadhvaja
+
+garuDa gamana garuDadhvaja   
+narahari namonamo namo ‖
+
+kamalaapati kamalanaabhaa   
+kamalaja janmakaaraNika ❘  
+kamalanayana kamalaaptakula   
+namonamo hari namo namo ‖
+
+jaladhi baMdhana jaladhishayana   
+jalanidhi madhya jaMtukala ❘  
+jaladhijaamaata jaladhigaMbheera   
+haladhara namo hari namo ‖
+
+ghanadivyaroopa ghanamahimaaMka   
+ghanaghanaa ghanakaaya varNa ❘  
+anagha shreeveMkaTaadhipatehaM   
+namo namohari namo namo ‖
+

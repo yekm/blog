@@ -939,3 +939,187 @@ sarvasiddhikaraM nRReeNaaM sarvapaapapraNaashanam ‖ 21 ‖
 సర్వసిద్ధికరం నౄణాం సర్వపాపప్రణాశనమ్ ‖ 21 ‖  
 
 
+### English
+
+#### sarasvatī stotram
+
+yā kundendu tuśhārahāradhavaḻā yā śubhravastrāvṛtā  
+yā vīṇāvaradaṇḍamaṇḍitakarā yā śvetapadmāsanā ❘  
+yā brahmācyuta śaṅkaraprabhṛtibhirdevaissadā pūjitā  
+sā māṃ pātu sarasvatī bhagavatī niśśeśhajāḍyāpahā 
+‖ 1 ‖
+
+dorbhiryuktā caturbhiḥ sphaṭikamaṇinibhai rakśhamālāndadhānā  
+hastenaikena padmaṃ sitamapica śukaṃ pustakaṃ cāpareṇa ❘  
+bhāsā kundenduśaṅkhasphaṭikamaṇinibhā bhāsamānāzsamānā  
+sā me vāgdevateyaṃ nivasatu vadane sarvadā suprasannā 
+‖ 2 ‖
+
+surāsuraissevitapādapaṅkajā kare virājatkamanīyapustakā ❘  
+viriñcipatnī kamalāsanasthitā sarasvatī nṛtyatu vāci me sadā 
+‖ 3 ‖
+
+sarasvatī sarasijakesaraprabhā tapasvinī sitakamalāsanapriyā ❘  
+ghanastanī kamalavilolalocanā manasvinī bhavatu varaprasādinī 
+‖ 4 ‖
+
+sarasvati namastubhyaṃ varade kāmarūpiṇi ❘  
+vidyārambhaṃ kariśhyāmi siddhirbhavatu me sadā 
+‖ 5 ‖
+
+sarasvati namastubhyaṃ sarvadevi namo namaḥ ❘  
+śāntarūpe śaśidhare sarvayoge namo namaḥ 
+‖ 6 ‖
+
+nityānande nirādhāre niśhkaḻāyai namo namaḥ ❘  
+vidyādhare viśālākśhi śuddhaGYāne namo namaḥ 
+‖ 7 ‖
+
+śuddhasphaṭikarūpāyai sūkśhmarūpe namo namaḥ ❘  
+śabdabrahmi caturhaste sarvasiddhyai namo namaḥ 
+‖ 8 ‖
+
+muktālaṅkṛta sarvāṅgyai mūlādhāre namo namaḥ ❘  
+mūlamantrasvarūpāyai mūlaśaktyai namo namaḥ 
+‖ 9 ‖
+
+manonmani mahābhoge vāgīśvari namo namaḥ ❘  
+vāgmyai varadahastāyai varadāyai namo namaḥ 
+‖ 10 ‖
+
+vedāyai vedarūpāyai vedāntāyai namo namaḥ ❘  
+guṇadośhavivarjinyai guṇadīptyai namo namaḥ 
+‖ 11 ‖
+
+sarvaGYāne sadānande sarvarūpe namo namaḥ ❘  
+sampannāyai kumāryai ca sarvaGYe te namo namaḥ 
+‖ 12 ‖
+
+yogānārya umādevyai yogānande namo namaḥ ❘  
+divyaGYāna trinetrāyai divyamūrtyai namo namaḥ 
+‖ 13 ‖
+
+ardhacandrajaṭādhāri candrabimbe namo namaḥ ❘  
+candrādityajaṭādhāri candrabimbe namo namaḥ 
+‖ 14 ‖
+
+aṇurūpe mahārūpe viśvarūpe namo namaḥ ❘  
+aṇimādyaśhṭasiddhāyai ānandāyai namo namaḥ 
+‖ 15 ‖
+
+GYāna viGYāna rūpāyai GYānamūrte namo namaḥ ❘  
+nānāśāstra svarūpāyai nānārūpe namo namaḥ 
+‖ 16 ‖
+
+padmajā padmavaṃśā ca padmarūpe namo namaḥ ❘  
+parameśhṭhyai parāmūrtyai namaste pāpanāśinī 
+‖ 17 ‖
+
+mahādevyai mahākāḻyai mahālakśhmyai namo namaḥ ❘  
+brahmaviśhṇuśivāyai ca brahmanāryai namo namaḥ 
+‖ 18 ‖
+
+kamalākarapuśhpā ca kāmarūpe namo namaḥ ❘  
+kapālikarmadīptāyai karmadāyai namo namaḥ 
+‖ 19 ‖
+
+sāyaṃ prātaḥ paṭhennityaṃ śhaṇmāsātsiddhirucyate ❘  
+coravyāghrabhayaṃ nāsti paṭhatāṃ śṛṇvatāmapi 
+‖ 20 ‖
+
+itthaṃ sarasvatī stotramagastyamuni vācakam ❘  
+sarvasiddhikaraṃ nRRīṇāṃ sarvapāpapraṇāśanam 
+‖ 21 ‖
+
+### PlainEnglish
+
+#### sarasvatee stotram
+
+yaa kuMdeMdu tushhaarahaaradhavaLaa yaa shubhravastraavRRitaa  
+yaa veeNaavaradaMDamaMDitakaraa yaa shvetapadmaasanaa ❘  
+yaa brahmaacyuta shaMkaraprabhRRitibhirdevaissadaa poojitaa  
+saa maaM paatu sarasvatee bhagavatee nishsheshhajaaDyaapahaa 
+‖ 1 ‖
+
+dorbhiryuktaa caturbhiH sphaTikamaNinibhai rakshhamaalaaMdadhaanaa  
+hastenaikena padmaM sitamapica shukaM pustakaM caapareNa ❘  
+bhaasaa kuMdeMdushaMkhasphaTikamaNinibhaa bhaasamaanaazsamaanaa  
+saa me vaagdevateyaM nivasatu vadane sarvadaa suprasannaa 
+‖ 2 ‖
+
+suraasuraissevitapaadapaMkajaa kare viraajatkamaneeyapustakaa ❘  
+viriMcipatnee kamalaasanasthitaa sarasvatee nRRityatu vaaci me sadaa 
+‖ 3 ‖
+
+sarasvatee sarasijakesaraprabhaa tapasvinee sitakamalaasanapriyaa ❘  
+ghanastanee kamalavilolalocanaa manasvinee bhavatu varaprasaadinee 
+‖ 4 ‖
+
+sarasvati namastubhyaM varade kaamaroopiNi ❘  
+vidyaaraMbhaM karishhyaami siddhirbhavatu me sadaa 
+‖ 5 ‖
+
+sarasvati namastubhyaM sarvadevi namo namaH ❘  
+shaaMtaroope shashidhare sarvayoge namo namaH 
+‖ 6 ‖
+
+nityaanaMde niraadhaare nishhkaLaayai namo namaH ❘  
+vidyaadhare vishaalaakshhi shuddhagnyaane namo namaH 
+‖ 7 ‖
+
+shuddhasphaTikaroopaayai sookshhmaroope namo namaH ❘  
+shabdabrahmi caturhaste sarvasiddhyai namo namaH 
+‖ 8 ‖
+
+muktaalaMkRRita sarvaaMgyai moolaadhaare namo namaH ❘  
+moolamaMtrasvaroopaayai moolashaktyai namo namaH 
+‖ 9 ‖
+
+manonmani mahaabhoge vaageeshvari namo namaH ❘  
+vaagmyai varadahastaayai varadaayai namo namaH 
+‖ 10 ‖
+
+vedaayai vedaroopaayai vedaaMtaayai namo namaH ❘  
+guNadoshhavivarjinyai guNadeeptyai namo namaH 
+‖ 11 ‖
+
+sarvagnyaane sadaanaMde sarvaroope namo namaH ❘  
+saMpannaayai kumaaryai ca sarvagnye te namo namaH 
+‖ 12 ‖
+
+yogaanaarya umaadevyai yogaanaMde namo namaH ❘  
+divyagnyaana trinetraayai divyamoortyai namo namaH 
+‖ 13 ‖
+
+ardhacaMdrajaTaadhaari caMdrabiMbe namo namaH ❘  
+caMdraadityajaTaadhaari caMdrabiMbe namo namaH 
+‖ 14 ‖
+
+aNuroope mahaaroope vishvaroope namo namaH ❘  
+aNimaadyashhTasiddhaayai aanaMdaayai namo namaH 
+‖ 15 ‖
+
+gnyaana vignyaana roopaayai gnyaanamoorte namo namaH ❘  
+naanaashaastra svaroopaayai naanaaroope namo namaH 
+‖ 16 ‖
+
+padmajaa padmavaMshaa ca padmaroope namo namaH ❘  
+parameshhThyai paraamoortyai namaste paapanaashinee 
+‖ 17 ‖
+
+mahaadevyai mahaakaaLyai mahaalakshhmyai namo namaH ❘  
+brahmavishhNushivaayai ca brahmanaaryai namo namaH 
+‖ 18 ‖
+
+kamalaakarapushhpaa ca kaamaroope namo namaH ❘  
+kapaalikarmadeeptaayai karmadaayai namo namaH 
+‖ 19 ‖
+
+saayaM praataH paThennityaM shhaNmaasaatsiddhirucyate ❘  
+coravyaaghrabhayaM naasti paThataaM shRRiNvataamapi 
+‖ 20 ‖
+
+itthaM sarasvatee stotramagastyamuni vaacakam ❘  
+sarvasiddhikaraM nRReeNaaM sarvapaapapraNaashanam 
+‖ 21 ‖
+

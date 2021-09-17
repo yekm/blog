@@ -770,3 +770,161 @@ nishhkeelanca tathaa kRRitvaa paThitavyaM samaahitaiH ‖16‖
 
 ‖ ఇతి శ్రీ భగవతీ కీలక స్తోత్రం సమాప్తం ‖  
 
+### English
+
+#### devī mahātmyam kīlaka stotram
+
+asya śrī kīlaka stotra mahā mantrasya ❘  
+śiva ṛśhiḥ ❘  
+anuśhṭup Chandaḥ ❘  
+mahāsarasvatī devatā ❘  
+mantrodita devyo bījaṃ ❘  
+navārṇo mantraśakti|śrī sapta śatī mantra statvaṃ srī jagadambā prītyarthe saptaśatī pāṭhāṅgatvaena jape viniyogaḥ ❘  
+oṃ namaścaṇḍikāyai  
+mārkaṇḍeya uvāca  
+oṃ viśuddha GYānadehāya trivedī divyacakśhuśhe ❘  
+śreyaḥ prāpti nimittāya namaḥ somārtha dhāriṇe  
+‖1‖
+
+sarvameta dvijānīyānmantrāṇāpi kīlakaṃ ❘  
+soapi kśhemamavāpnoti satataṃ jāpya tatparaḥ 
+‖2‖
+
+siddhyantuccāṭanādīni karmāṇi sakalānyapi ❘  
+etena stuvatāṃ devīṃ stotravṛndena bhaktitaḥ   
+‖3‖
+
+na mantro nauśhadhaṃ tasya na kiñci dapi vidhyate ❘  
+vinā jāpyam na siddhyettu sarva muccāṭanādikam 
+‖4‖
+
+samagrāṇyapi setsyanti lokaśaGYkā mimāṃ haraḥ ❘  
+kṛtvā nimantrayāmāsa sarva meva midaṃ śubham 
+‖5‖
+
+stotraṃvai caṇḍikāyāstu tacca guhyaṃ cakāra saḥ ❘  
+samāpnoti sapuṇyena tāṃ yathāvannimantraṇāṃ  
+‖6‖
+
+sopi'kśhema mavāpnoti sarva meva na saṃśayaḥ ❘  
+kṛśhṇāyāṃ vā caturdaśyāṃ aśhṭamyāṃ vā samāhitaḥ
+‖6‖
+
+dadāti pratigṛhṇāti nānya thaiśhā prasīdati ❘  
+itthaṃ rūpeṇa kīlena mahādevena kīlitam❘  
+‖8‖
+
+yo niśhkīlāṃ vidhāyaināṃ caṇḍīṃ japati nitya śaḥ ❘  
+sa siddhaḥ sa gaṇaḥ soatha gandharvo jāyate dhruvam 
+‖9‖
+
+na caivā pāṭavaṃ tasya bhayaṃ kvāpi na jāyate ❘  
+nāpa mṛtyu vaśaṃ yāti mṛteca mokśhamāpnuyāt
+‖10‖
+
+GYātvāprārabhya kurvīta hyakurvāṇo vinaśyati ❘  
+tato GYātvaiva sampūrnaṃ idaṃ prārabhyate budhaiḥ 
+‖11‖
+
+saubhāgyādica yatkiñcid dṛśyate lalanājane ❘  
+tatsarvaṃ tatprasādena tena japyamidaṃ śubhaṃ  
+‖12‖
+
+śanaistu japyamāneasmin stotre sampattiruccakaiḥ❘  
+bhavatyeva samagrāpi tataḥ prārabhyamevatat       
+‖13‖
+
+aiśvaryaṃ tatprasādena saubhāgyārogyamevacaḥ ❘  
+śatruhāniḥ paro mokśhaḥ stūyate sāna kiṃ janai    
+‖14‖
+
+caṇdikāṃ hṛdayenāpi yaḥ smaret satataṃ naraḥ ❘  
+hṛdyaṃ kāmamavāpnoti hṛdi devī sadā vaset   
+‖15‖
+
+agratoamuṃ mahādeva kṛtaṃ kīlakavāraṇam ❘  
+niśhkīlañca tathā kṛtvā paṭhitavyaṃ samāhitaiḥ     
+‖16‖
+
+
+‖ iti śrī bhagavatī kīlaka stotraṃ samāptaṃ ‖
+
+### PlainEnglish
+
+#### devee mahaatmyam keelaka stotram
+
+asya shree keelaka stotra mahaa mantrasya ❘  
+shiva RRishhiH ❘  
+anushhTup ChaMdaH ❘  
+mahaasarasvatee devataa ❘  
+maMtrodita devyo beejaM ❘  
+navaarNo maMtrashakti|shree sapta shatee maMtra statvaM sree jagadaMbaa preetyarthe saptashatee paaThaaMgatvaena jape viniyogaH ❘  
+oM namashcaNDikaayai  
+maarkaNDeya uvaaca  
+oM vishuddha gnyaanadehaaya trivedee divyacakshhushhe ❘  
+shreyaH praapti nimittaaya namaH somaartha dhaariNe  
+‖1‖
+
+sarvameta dvijaaneeyaanmantraaNaapi keelakaM ❘  
+so.api kshhemamavaapnoti satataM jaapya tatparaH 
+‖2‖
+
+siddhyantuccaaTanaadeeni karmaaNi sakalaanyapi ❘  
+etena stuvataaM deveeM stotravRRiMdena bhaktitaH   
+‖3‖
+
+na mantro naushhadhaM tasya na kinci dapi vidhyate ❘  
+vinaa jaapyam na siddhyettu sarva muccaaTanaadikam 
+‖4‖
+
+samagraaNyapi setsyanti lokashagnykaa mimaaM haraH ❘  
+kRRitvaa nimantrayaamaasa sarva meva midaM shubham 
+‖5‖
+
+stotraMvai caNDikaayaastu tacca guhyaM cakaara saH ❘  
+samaapnoti sapuNyena taaM yathaavannimantraNaaM  
+‖6‖
+
+sopi.akshhema mavaapnoti sarva meva na saMshayaH ❘  
+kRRishhNaayaaM vaa caturdashyaaM ashhTamyaaM vaa samaahitaH
+‖6‖
+
+dadaati pratigRRihNaati naanya thaishhaa praseedati ❘  
+itthaM roopeNa keelena mahaadevena keelitam❘  
+‖8‖
+
+yo nishhkeelaaM vidhaayainaaM caNDeeM japati nitya shaH ❘  
+sa siddhaH sa gaNaH so.atha gandharvo jaayate dhruvam 
+‖9‖
+
+na caivaa paaTavaM tasya bhayaM kvaapi na jaayate ❘  
+naapa mRRityu vashaM yaati mRRiteca mokshhamaapnuyaat
+‖10‖
+
+gnyaatvaapraarabhya kurveeta hyakurvaaNo vinashyati ❘  
+tato gnyaatvaiva sampoornaM idaM praarabhyate budhaiH 
+‖11‖
+
+saubhaagyaadica yatkincid dRRishyate lalanaajane ❘  
+tatsarvaM tatprasaadena tena japyamidaM shubhaM  
+‖12‖
+
+shanaistu japyamaane.asmin stotre sampattiruccakaiH❘  
+bhavatyeva samagraapi tataH praarabhyamevatat       
+‖13‖
+
+aishvaryaM tatprasaadena saubhaagyaarogyamevacaH ❘  
+shatruhaaniH paro mokshhaH stooyate saana kiM janai    
+‖14‖
+
+caNdikaaM hRRidayenaapi yaH smaret satataM naraH ❘  
+hRRidyaM kaamamavaapnoti hRRidi devee sadaa vaset   
+‖15‖
+
+agrato.amuM mahaadeva kRRitaM keelakavaaraNam ❘  
+nishhkeelanca tathaa kRRitvaa paThitavyaM samaahitaiH     
+‖16‖
+
+
+‖ iti shree bhagavatee keelaka stotraM samaaptaM ‖
+

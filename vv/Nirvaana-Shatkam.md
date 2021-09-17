@@ -497,3 +497,87 @@ shivohaM shivohaM, shivohaM shivohaM, shivohaM shivohaM
 
 శివోహం శివోహం, శివోహం శివోహం, శివోహం శివోహం  
 
+### English
+
+#### nirvāṇa śhaṭkam
+
+śivohaṃ śivohaṃ, śivohaṃ śivohaṃ, śivohaṃ śivohaṃ  
+mano budhyahaṅkāra cittāni nāhaṃ  
+na ca śrotra jihvā na ca ghrāṇanetraṃ ❘  
+na ca vyoma bhūmir-na tejo na vāyuḥ  
+cidānanda rūpaḥ śivohaṃ śivohaṃ 
+‖ 1 ‖
+
+ahaṃ prāṇa saṃGYo na vaipañca vāyuḥ  
+na vā saptadhātur-na vā pañca kośāḥ ❘  
+navākpāṇi pādau na copastha pāyū  
+cidānanda rūpaḥ śivohaṃ śivohaṃ 
+‖ 2 ‖
+
+na me dveśharāgau na me lobhamoho  
+mado naiva me naiva mātsaryabhāvaḥ ❘  
+na dharmo na cārdho na kāmo na mokśhaḥ  
+cidānanda rūpaḥ śivohaṃ śivohaṃ 
+‖ 3 ‖
+
+na puṇyaṃ na pāpaṃ na saukhyaṃ na duḥkhaṃ  
+na mantro na tīrdhaṃ na vedā na yaGYaḥ ❘  
+ahaṃ bhojanaṃ naiva bhojyaṃ na bhoktā  
+cidānanda rūpaḥ śivohaṃ śivohaṃ 
+‖ 4 ‖
+
+ahaṃ nirvikalpo nirākāra rūpo  
+vibhūtvācca sarvatra sarvendriyāṇām ❘  
+na vā bandhanaṃ naiva mukti na bandhaḥ ❘  
+cidānanda rūpaḥ śivohaṃ śivohaṃ 
+‖ 5 ‖
+
+na mṛtyur-na śaṅkā na me jāti bhedaḥ  
+pitā naiva me naiva mātā na janma ❘  
+na bandhur-na mitraṃ gururnaiva śiśhyaḥ  
+cidānanda rūpaḥ śivohaṃ śivohaṃ 
+‖ 6 ‖
+
+śivohaṃ śivohaṃ, śivohaṃ śivohaṃ, śivohaṃ śivohaṃ  
+### PlainEnglish
+
+#### nirvaaNa shhaTkam
+
+shivohaM shivohaM, shivohaM shivohaM, shivohaM shivohaM  
+mano budhyahaMkaara cittaani naahaM  
+na ca shrotra jihvaa na ca ghraaNanetraM ❘  
+na ca vyoma bhoomir-na tejo na vaayuH  
+cidaanaMda roopaH shivohaM shivohaM 
+‖ 1 ‖
+
+ahaM praaNa saMgnyo na vaipaMca vaayuH  
+na vaa saptadhaatur-na vaa paMca koshaaH ❘  
+navaakpaaNi paadau na copastha paayoo  
+cidaanaMda roopaH shivohaM shivohaM 
+‖ 2 ‖
+
+na me dveshharaagau na me lobhamoho  
+mado naiva me naiva maatsaryabhaavaH ❘  
+na dharmo na caardho na kaamo na mokshhaH  
+cidaanaMda roopaH shivohaM shivohaM 
+‖ 3 ‖
+
+na puNyaM na paapaM na saukhyaM na duHkhaM  
+na mantro na teerdhaM na vedaa na yagnyaH ❘  
+ahaM bhojanaM naiva bhojyaM na bhoktaa  
+cidaanaMda roopaH shivohaM shivohaM 
+‖ 4 ‖
+
+ahaM nirvikalpo niraakaara roopo  
+vibhootvaacca sarvatra sarveMdriyaaNaam ❘  
+na vaa bandhanaM naiva mukti na baMdhaH ❘  
+cidaanaMda roopaH shivohaM shivohaM 
+‖ 5 ‖
+
+na mRRityur-na shaMkaa na me jaati bhedaH  
+pitaa naiva me naiva maataa na janma ❘  
+na baMdhur-na mitraM gururnaiva shishhyaH  
+cidaanaMda roopaH shivohaM shivohaM 
+‖ 6 ‖
+
+shivohaM shivohaM, shivohaM shivohaM, shivohaM shivohaM  

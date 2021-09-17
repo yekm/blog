@@ -302,3 +302,47 @@ ninnu nannu n.eMchukuMTe neeke t.eliyunayyaa ‖
 నిన్ను నన్ను నెంచుకుంటే నీకే తెలియునయ్యా ‖  
 
 
+### English
+
+#### annamayya kīrtana sarvāntarātmuḍavu
+
+sarvāntarātmuḍavu śaraṇāgatuḍa nenu ❘  
+sarvāparādhinaiti chālujālunayyā ‖
+
+vūrakunnajīvuniki vokkokka svatantramichchi ❘  
+koreṭiyaparādhālu konni vesi ❘  
+nerakuṇṭe narakamu nerichite svargamaṇṭū ❘  
+dūruvesevintekāka dośhamevvaridayyā ‖
+
+manasu chūḍavalasi māyalu nīve kappi ❘  
+janulaku viśhayālu chavuluchūpi ❘  
+kanugoṇṭe mokśhamichchi kānakuṇṭe karmamichchi ❘  
+ghanamu sesevindu kartalevvarayyā ‖
+
+vunnāru prāṇulellā nokkanīgarbhamulone ❘  
+kannakanna bhramatale kalpiñchi ❘  
+yinniṭā śrīveṅkaṭeśa yelitivi mammu niṭṭe ❘  
+ninnu nannu neñchukuṇṭe nīke teliyunayyā ‖
+
+### PlainEnglish
+
+#### annamayya keertana sarvaaMtaraatmuDavu
+
+sarvaaMtaraatmuDavu sharaNaagatuDa nenu ❘  
+sarvaaparaadhinaiti chaalujaalunayyaa ‖
+
+voorakunnajeevuniki v.okk.okka svataMtramichchi ❘  
+koreTiyaparaadhaalu k.onni vesi ❘  
+nerakuMTe narakamu nerichite svargamaMToo ❘  
+dooruveseviMtekaaka doshham.evvaridayyaa ‖
+
+manasu chooDavalasi maayalu neeve kappi ❘  
+janulaku vishhayaalu chavuluchoopi ❘  
+kanug.oMTe mokshhamichchi kaanakuMT.e karmamichchi ❘  
+ghanamu seseviMdu kartal.evvarayyaa ‖
+
+vunnaaru praaNul.ellaa n.okkaneegarbhamulone ❘  
+kannakanna bhramatale kalpiMchi ❘  
+yinniTaa shreeveMkaTesha yelitivi mammu niTT.e ❘  
+ninnu nannu n.eMchukuMTe neeke t.eliyunayyaa ‖
+

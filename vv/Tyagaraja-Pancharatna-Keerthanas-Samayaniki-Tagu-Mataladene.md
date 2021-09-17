@@ -679,3 +679,81 @@ saadhiMc.ene o manasaa.. saadhiMc.ene
 శ్రీ త్యాగరాజ నుతుడు చెంత రాకనే  
 సాధించెనే ఓ మనసా౥ సాధించెనే  
 
+### English
+
+#### tyāgarāja pañcharatna kīrtana samayāniki tagu māṭalāḍene
+
+kūrpu: śrī tyāgarājācāryulu   
+rāgaṃ: ārabhi  
+tāḻaṃ: ādi  
+sādhiñcene o manasā  
+bodhiñcina sanmārgavasanamula boṅku jesi tā baṭṭinapaṭṭu   
+sādhiñcene o manasā  
+samayāniki tagu māṭalāḍene   
+devakī vasudevula negiñcinaṭu  
+samayāniki tagu māṭalāḍene  
+raṅgeśuḍu sadgaṅgā janakuḍu saṅgīta sāmpradāyakuḍu   
+samayāniki tagu māṭalāḍene  
+gopī jana manoradha mosaṅga lekane geliyu jese vāḍu   
+samayāniki tagu māṭalāḍene  
+sārāsāruḍu sanaka sanandana sanmuni sevyuḍu sakalādhāruḍu   
+samayāniki tagu māṭalāḍene  
+vanitala sadā sokka jeyucunu mrokka jese   
+paramātmuḍaniyu gāka yaśoda tanayuḍañcu   
+mudambunanu muddu beṭṭa navvucuṇḍu hari   
+samayāniki tagu māṭalāḍene  
+parama bhakta vatsaluḍu suguṇa pārāvāruṇḍājanma mana ghūḍi   
+kali bādhalu dīrcu vāḍanucune hṛdambujamuna jūcu cuṇḍaga   
+samayāniki tagu māṭalāḍene  
+hare rāmacandra raghukuleśa mṛdu subhāśa śeśha śayana  
+para nāri sodarāja virāja turagarāja rājanuta nirāmaya pāghana   
+sarasīruha daḻākśha yanucu veḍukonna nannu tā brovakanu   
+samayāniki tagu māṭalāḍene  
+śrī veṅkaṭeśa suprakāśa sarvonnata sajjana mānasa niketana   
+kanakāmbara dhara lasan makuṭa kuṇḍala virājita hare yanucu ne   
+pogaḍagā tyāgarāja geyuḍu mānavendruḍaina rāmacandruḍu   
+samayāniki tagu māṭalāḍene  
+sadbhaktula naḍata liṭlanene amarikagā nā pūja konene  
+aluga vaddanane vimukhulato jera bokumanene   
+veta galigina tāḻukommanane damaśamādi sukha dāyakuḍagu   
+śrī tyāgarāja nutuḍu centa rākane  
+sādhiñcene o manasā.. sādhiñcene   
+### PlainEnglish
+
+#### tyaagaraaja pancharatna keertana samayaaniki tagu maaTalaaD.en.e
+
+koorpu: shree tyaagaraajaacaaryulu   
+raagaM: aarabhi  
+taaLaM: aadi  
+saadhiMc.ene o manasaa  
+bodhiMcina sanmaargavasanamula b.oMku jesi taa baTTinapaTTu   
+saadhiMc.ene o manasaa  
+samayaaniki tagu maaTalaaD.ene   
+devakee vasudevula negiMcinaTu  
+samayaaniki tagu maaTalaaD.ene  
+raMgeshuDu sadgaMgaa janakuDu saMgeeta saaMpradaayakuDu   
+samayaaniki tagu maaTalaaD.ene  
+gopee jana manoradha m.osaMga lekane geliyu jese vaaDu   
+samayaaniki tagu maaTalaaD.ene  
+saaraasaaruDu sanaka sanaMdana sanmuni sevyuDu sakalaadhaaruDu   
+samayaaniki tagu maaTalaaD.ene  
+vanitala sadaa s.okka jeyucunu mr.okka jese   
+paramaatmuDaniyu gaaka yashoda tanayuDaMcu   
+mudaMbunanu muddu b.eTTa navvucuMDu hari   
+samayaaniki tagu maaTalaaD.ene  
+parama bhakta vatsaluDu suguNa paaraavaaruMDaajanma mana ghooDi   
+kali baadhalu deercu vaaDanucune hRRidaMbujamuna joocu cuMDaga   
+samayaaniki tagu maaTalaaD.ene  
+hare raamacaMdra raghukulesha mRRidu subhaasha sheshha shayana  
+para naari sodaraaja viraaja turagaraaja raajanuta niraamaya paaghana   
+saraseeruha daLaakshha yanucu veDuk.onna nannu taa brovakanu   
+samayaaniki tagu maaTalaaD.ene  
+shree veMkaTesha suprakaasha sarvonnata sajjana maanasa niketana   
+kanakaaMbara dhara lasan makuTa kuMDala viraajita hare yanucu ne   
+p.ogaDagaa tyaagaraaja geyuDu maanaveMdruDaina raamacaMdruDu   
+samayaaniki tagu maaTalaaD.ene  
+sadbhaktula naData liTlan.ene amarikagaa naa pooja k.on.ene  
+aluga vaddanane vimukhulato jera bokuman.ene   
+v.eta galigina taaLuk.ommanane damashamaadi sukha daayakuDagu   
+shree tyaagaraaja nutuDu c.eMta raakane  
+saadhiMc.ene o manasaa.. saadhiMc.ene   

@@ -7101,3 +7101,1307 @@ melina pati niMda seya k.ennaDu sumatee ‖ 108 ‖
 మేలిన పతి నింద సేయ కెన్నడు సుమతీ ‖ 108 ‖  
 
 
+### English
+
+#### sumatī śatakam
+
+śrī rāmuni dayachetanu  
+nārūḍhiga sakala janulu naurā yanagā  
+dhārāḻamaina nītulu  
+norūraga javulu puṭṭa nuḍiveda sumatī 
+‖ 1 ‖
+
+akkaraku rāni chuṭṭamu,  
+mrokkina varamīni velpu, moharamuna dā  
+nekkina bārani gurramu  
+grakkuna viḍavaṅgavalayu gadarā sumatī 
+‖ 2 ‖
+
+aḍigina jītambiyyani  
+miḍimelapu doranu golchi miḍukuṭa kaṇṭen  
+vaḍigala yeddula gaṭṭuka  
+maḍi dunnuku bratuka vachchu mahilo sumatī 
+‖ 3 ‖
+
+aḍiyāsa koluvu goluvaku,  
+guḍi maṇiyamu seyaboku, kujanula toḍan  
+viḍuvaka kūrimi seyaku,  
+maḍavini doḍarakoṇṭi narugaku sumatī 
+‖ 4 ‖
+
+adharamu gadaliyu, gadalaka  
+madhuramulagu bhāśha luḍugi mauna vratuḍau  
+adhikāra roga pūrita  
+badhirāndhaka śavamu jūḍa bāpamu sumatī 
+‖ 5 ‖
+
+appu koni cheyu vibhavamu,  
+muppuna bṛāyampuṭālu, mūrkhuni tapamun,  
+dapparayani nṛpu rājyamu  
+depparamai mīda gīḍu dechchura sumatī 
+‖ 6 ‖
+
+appichchuvāḍu, vaidyuḍu  
+neppuḍu neḍategaka pāru nerunu, dvijuḍun  
+joppaḍina yūra nuṇḍumu  
+choppaḍakunnaṭṭi yūru chorakumu sumatī 
+‖ 7 ‖
+
+alluni mañchitanambu,  
+gollani sāhitya vidya, komali nijamun,  
+bolluna dañchina biyyamu,  
+dellani kākulunu levu teliyumu sumatī 
+‖ 8 ‖
+
+ākonna kūḍe yamṛtamu,  
+tākoñchaka nichchuvāṅḍe dāta dharitrin,  
+sokorchuvāḍe manujuḍu,  
+tekuva galavāḍe vaṃśa tilakuḍu sumatī 
+‖ 9 ‖
+
+ākali yuḍugani kaḍupunu,  
+vekaṭiyagu lañja paḍupu viḍuvani bratukun,  
+brākonna nūti yudakamu,  
+mekala pāḍiyunu rota medini sumatī 
+‖ 10 ‖
+
+ichchunade vidya, raṇamuna  
+jochchunade magatanambu, sukavīśvarulun  
+mechchunade nerchu, vaduku  
+vachchunade kīḍu summu vasudhanu sumatī 
+‖ 11 ‖
+
+immuga jaduvani norunu,  
+nammā yani bilichi yanna maḍugani norun,  
+dammula biluvani norunu  
+gummari manu dravvinaṭṭi guṇṭara sumatī 
+‖ 12 ‖
+
+uḍumuṇḍade nūreṇḍlunu,  
+baḍiyuṇḍade permi bāmu padinūreṇḍlun,  
+maḍuvuna gokkera yuṇḍade,  
+kaḍu nila buruśhārtha paruḍu gāvale sumatī 
+‖ 13 ‖
+
+uttamaguṇamulu nīchuna  
+ketteRaguna galuga nerchu; neyyeḍalaṃ dā  
+nettichchi karagi posina  
+nittaḍi baṅgāramagune yilalo sumatī? 
+‖ 14 ‖
+
+udakamu drāveḍu hayamunu,  
+madamuna nuppoṅguchuṇḍu mattebhambun,  
+modavu kaḍa nunna vṛśhabhamu,  
+jaduvani yānīchu gaḍaku janakura sumatī 
+‖ 15 ‖
+
+upakāriki nupakāramu  
+viparītamu gādu seya vivarimpaṅgā;  
+napakāriki nupakāramu  
+nepamennaka seyuvāḍu nerpari sumatī 
+‖ 16 ‖
+
+upamimpa modalu tiyyana  
+kapaṭaṃ beḍaneḍanu jeRaku kai vaḍine po  
+nepamulu vedakunu gaḍapaṭa  
+gapaṭapu durjāti pondu gadarā sumatī 
+‖ 17 ‖
+
+eppaṭi keyyadi prastuta  
+mappaṭikā māṭalāḍi, yanyula manamul  
+noppiñchaka, tā novvaka,  
+tappiñchuka tiruguvāḍu dhanyuḍu sumatī 
+‖ 18 ‖
+
+eppuḍu dappulu vedakeḍu  
+nappuruśhuni golvagūḍa dadi yeṭlannan  
+sarpambu paḍaga nīḍanu  
+gappa vasiñchina vidhambu gadarā sumatī 
+‖ 19 ‖
+
+eppuḍu sampada kaligina  
+nappuḍu bandhuvulu vattu radi yeṭlannan  
+teppaluga jeRuvu niṇḍina  
+gappalu padivelu cheru gadarā sumatī 
+‖ 20 ‖
+
+eRakumī kasugāyalu,  
+dūRakumī bandhujanula dośhamu summī,  
+pāRakumī raṇamanduna,  
+mīRakumī guruvu nāGYa medini sumatī 
+‖ 21 ‖
+
+oka yūriki noka karaṇamu,  
+noka tīrpariyaina gāka, nogi daRuchainan,  
+gakavikalu gāka yuṇḍune  
+sakalambunu goṭṭuvaḍaka sahajamu sumatī 
+‖ 22 ‖
+
+oru nātma dalachu sati viḍu,  
+maRumāṭalu paluku satula mannimpakumī,  
+veRa peRugani bhaṭunelaku,  
+taRachuga sati gavaya boku, tagadura sumatī 
+‖ 23 ‖
+
+ollani sati nollani pati,  
+nollani chelikāni viḍuva nollani vāḍe  
+gollaṇḍu, kāka dharalo  
+gollaṇḍunu gollaḍaune guṇamuna sumatī 
+‖ 24 ‖
+
+oḍala baṇḍlunu vachchunu,  
+oḍalu nābaṇḍlamīda noppuga vachchun,  
+oḍalu baṇḍlunu valane  
+vāḍambaḍu galimi lemi vasudhanu sumatī 
+‖ 25 ‖
+
+kaḍu balavantuḍainanu  
+buḍamini brāyampuṭāli buṭṭina yiṇṭan  
+daḍavuṇḍa nichcheneniyu  
+baḍupuga naṅgaḍiki dāne bampuṭa sumatī 
+‖ 26 ‖
+
+kanakapu siṃhāsanamuna  
+śunakamu gūrchuṇḍabeṭṭi śubha lagnamunaṃ  
+donaraga baṭṭamu gaṭṭina  
+venukaṭi guṇamela mānu vinarā sumatī 
+‖ 27 ‖
+
+kappaku noragālainanu,  
+sarpamunaku rogamaina, sati tuluvainan,  
+muppuna daridruḍainanu,  
+tappadu maRi duḥkha maguṭa tathyamu sumatī 
+‖ 28 ‖
+
+kamalamulu nīṭa bāsina  
+kamalāptuni raśmi soki kamalina bhaṅgin  
+tama tama nelavulu dappina  
+tama mitrulu śatrulauṭa tathyamu sumatī 
+‖ 29 ‖
+
+karaṇamu garaṇamu nammina  
+maraṇāntaka maunu gāni manaleḍu sumī,  
+karaṇamu dana sari karaṇamu  
+maRi nammaka marma mīka manavale sumatī 
+‖ 30 ‖
+
+karaṇamula nanusarimpaka  
+virasambuna dinna tiṇḍi vikaṭiñchu jumī  
+yirusuna kandena beṭṭaka  
+parameśvaru baṇḍi yaina bāradu sumatī 
+‖ 31 ‖
+
+karaṇamu sādaiyunnanu,  
+gari mada muḍiginanu, bāmu gaRavaka yunnan,  
+dhara delu mīṭakunnanu,  
+gara maruduga lekka gonaru gadarā sumatī 
+‖ 32 ‖
+
+kasugāya gaRachi chūchina  
+masalaka pasa yogaru rāka madhurambagunā,  
+pasa galugu yuvatuluṇḍaga  
+pasi bālala bonduvāḍu paśuvura sumatī 
+‖ 33 ‖
+
+kavi kāni vāni vrātayu,  
+navarasa bhāvamulu leni nātula valapun,  
+davili chanu pandi neyani  
+vividhāyudha kauśalambu vṛdharā sumatī 
+‖ 34 ‖
+
+kādu sumī dussaṅgati,  
+podusumī "kīrti" kānta pondina pidapan,  
+vādu sumī yappichchuṭa,  
+ledu sumī satula valapu leśamu sumatī 
+‖ 35 ‖
+
+kāmukuḍu danisi viḍichina  
+komali baraviṭuḍu gavaya goruṭa yellan  
+bremamuna jeRaku pippiki  
+chīmalu vesa mūginaṭlu siddhamu sumatī 
+‖ 36 ‖
+
+kāraṇamu leni nagavunu,  
+beraṇamu leni lema, pṛthivī sthalilo  
+būraṇamu leni būreyu,  
+vīraṇamu leni peṇḍli vṛdharā sumatī 
+‖ 37 ‖
+
+kulakānta toḍa neppuḍu  
+galahimpaku, vaṭṭi tappu ghaṭiyimpakumī,  
+kalakaṇṭhi kaṇṭa kannī  
+rolikina siri yiṇṭa nuṇḍa nolladu sumatī 
+‖ 38 ‖
+
+kūrimi gala dinamulalo  
+neramu lennaḍunu galuga neravu maRi yā  
+kūrimi virasambainanu  
+neramule tochu chuṇḍu nikkamu sumatī 
+‖ 39 ‖
+
+koñchepu naru saṅgatiche  
+nañchitamuga gīḍu vachchu nadi yeṭlannan  
+giñchittu nalli kuṭṭina  
+mañchamunaku jeṭu vachchu mahilo sumatī 
+‖ 40 ‖
+
+kokkokamella jadivina,  
+chakkanivāḍaina, rāja chandruṇḍainan,  
+mikkili rokkamu liyyaka,  
+chikkadurā vārakānta siddhamu sumatī 
+‖ 41 ‖
+
+koRa gāni koḍuku buṭṭina  
+koRa gāmiye kādu, taṇḍri guṇamula jeRachun  
+cheRaku tuda vennu buṭṭina  
+jeRakuna tīpella jeRachu siddhamu sumatī 
+‖ 42 ‖
+
+komali viśvāsambunu,  
+bāmulato jelimi, yanya bhāmala valapun,  
+vemula tiyyadanambunu,  
+bhūmīśula nammikalunu boṅkura sumatī 
+‖ 43 ‖
+
+gaḍana gala magani jūchina  
+naḍugaḍuguna maḍugu liḍudu rativalu damalo,  
+gaḍa nuḍugu magani jūchina  
+naḍa pīnugu vachche nañchu naguduru sumatī 
+‖ 44 ‖
+
+chintimpaku kaḍachina pani,  
+kintulu valaturani namma kentayu madilo,  
+nantaḥpura kāntalato  
+mantanamula mānu midiye matamura sumatī 
+‖ 45 ‖
+
+chīmalu peṭṭina puṭṭalu  
+pāmula kiravainayaṭlu pāmaruḍu dagan  
+hemambu gūḍa beṭṭina  
+bhūmīśula pāla jeru bhuvilo sumatī 
+‖ 46 ‖
+
+chuṭṭamulu gāni vāralu  
+chuṭṭamulamu nīkaṭañchu sompu dalirpan  
+neṭṭukoni yāśrayinturu  
+gaṭṭiga dravyambu galuga gadarā sumatī 
+‖ 47 ‖
+
+chetulaku doḍavu dānamu,  
+bhūtalanāthulaku doḍavu boṅkami dharalo,  
+nītiye toḍavevvāriki,  
+nātiki mānambu toḍavu nayamuga sumatī 
+‖ 48 ‖
+
+taḍa vorvaka, yoḍa lorvaka,  
+kaḍu vegaṃ baḍichi paḍina gāryaṃ bagune,  
+taḍa vorchina, noḍa lorchina,  
+jeḍipoyina kāryamella jekuRu sumatī 
+‖ 49 ‖
+
+tana kopame tana śatruvu,  
+tana śāntame tanaku rakśha, daya chuṭṭambau  
+tana santośhame svargamu,  
+tana duḥkhame naraka maṇḍru tathyamu sumatī 
+‖ 50 ‖
+
+tana yūri tapasi tapamunu,  
+tana putruni vidya pempu, dana sati rūpun,  
+dana peraṭi cheṭṭu mandunu,  
+manasuna varṇimpareṭṭi manujulu sumatī 
+‖ 51 ‖
+
+tana kalimi yindra bhogamu,  
+tana lemiye svargaloka dāridryambun,  
+dana chāvu jala praḻayamu,  
+tanu valachina yadiye rambha tathyamu sumatī 
+‖ 52 ‖
+
+tana vāru leni choṭanu,  
+janamiñchuka leni choṭa, jagaḍamu choṭan,  
+anumānamaina choṭanu,  
+manujunakunu niluva dagadu mahilo sumatī 
+‖ 53 ‖
+
+tamalamu veyani norunu,  
+vimatulato chelimi chesi vetabaḍu telivin,  
+gamalamulu leni kolakunu,  
+himadhāmuḍu leni rātri hīnamu sumatī 
+‖ 54 ‖
+
+talanuṇḍu viśhamu phaṇikini,  
+velayaṅgā doka nuṇḍu vṛśchikamunakun,  
+tala toka yanaka yuṇḍunu  
+khalunaku niluvella viśhamu gadarā sumatī 
+‖ 55 ‖
+
+talapoḍugu dhanamu posina  
+velayāliki nijamu ledu vivarimpaṅgā  
+dala daḍivi bāsa jesina  
+velayālini nammarādu vinarā sumatī 
+‖ 56 ‖
+
+tala māsina, nolu māsina,  
+valuvalu māsinanu brāṇa vallabhunainan  
+gulakāntalaina roturu  
+tilakimpaga bhūmilona diramuga sumatī 
+‖ 57 ‖
+
+tānu bhujimpani yarthamu  
+mānava pati jeru gonta maRi bhūgatamau  
+gānala nīgalu gūrchina  
+teniya yoru jerunaṭlu tiramuga sumatī 
+‖ 58 ‖
+
+daggaRa koṇḍemu seppeḍu  
+preggaḍa palukulaku rāju priyuḍai maRi dā  
+neggu braja kāchariñchuṭa  
+boggulakai kalpataruvu boḍuchuṭa sumatī 
+‖ 59 ‖
+
+dhanapati sakhuḍai yuṇḍina  
+nenayaṅgā śivuḍu bhikśhamettaga valasen,  
+dana vāri kenta galigina  
+dana bhāgyame tanaku gāka tathyamu sumatī 
+‖ 60 ‖
+
+dhīrulaku jeyu meladi  
+sārambagu nārikeḻa salilamu bhaṅgin  
+gauravamunu maRi mīdaṭa  
+bhūri sukhāvahamu nagunu bhuvilo sumatī 
+‖ 61 ‖
+
+naḍuvakumī teruvokkaṭa,  
+guḍuvakumī śatru niṇṭa gūrimi toḍan,  
+muḍuvakumī paradhanamula,  
+nuḍuvakumī yorula manasu novvaga sumatī 
+‖ 62 ‖
+
+nammaku suṅkari, jūdari,  
+nammaku mogasāla vāni, naṭu velayālin,  
+nammaku maṅgaḍi vānini,  
+nammaku mī vāma hastu navanini sumatī 
+‖ 63 ‖
+
+nayamuna bāluṃ drāvaru,  
+bhayamunanu viśhammunaina bhakśhinturugā,  
+nayamenta dośhakāriyo,  
+bhayame jūpaṅga valayu bāguga sumatī 
+‖ 64 ‖
+
+narapatulu meRa dappina,  
+diramoppaga vidhava yiṇṭa dīrpari yainan,  
+garaṇamu vaidikuḍainanu,  
+maraṇāntaka maunugāni mānadu sumatī 
+‖ 65 ‖
+
+navarasa bhāvālaṅkṛta  
+kavitā gośhṭiyunu, madhura gānambunu dā  
+naviveki kenta jeppina  
+jeviṭiki śaṅkhūdinaṭlu siddhamu sumatī 
+‖ 66 ‖
+
+navvakumī sabha lopala,  
+navvakumī talli, daṇḍri, nāthula toḍan,  
+navvakumī parasatito,  
+navvakumī vipravarula nayamidi sumatī 
+‖ 67 ‖
+
+nīre prāṇādhāramu  
+nore rasabharitamaina nuḍuvula kellan  
+nāriye narulaku ratnamu  
+chīraye śṛṅgāramaṇḍru siddhamu sumatī 
+‖ 68 ‖
+
+pagavala devvari toḍanu,  
+vagavaṅgā valadu lemi vachchina pidapan,  
+dega nāḍa valadu sabhalanu  
+maguvaku manasiyya valadu mahilo sumatī 
+‖ 69 ‖
+
+patikaḍaku, dannu gūrina  
+satikaḍakunu, velpu kaḍaku, sadguru kaḍakun,  
+sutukaḍaku rittachetula  
+matimantulu chanaru nīti mārgamu sumatī 
+‖ 70 ‖
+
+panicheyuneḍala dāsiyu,  
+nanubhavamuna rambha, mantri yālochanalan,  
+danabhukti yeḍala dalliyu,  
+nan dana kulakānta yuṇḍu nagurā sumatī 
+‖ 71 ‖
+
+paranārī sodaruḍai,  
+paradhanamula kāsapaḍaka, parulaku hituḍai,  
+parulu danu bogaḍa negaḍaka,  
+paru laligina naluga nataḍu paramuḍu sumatī 
+‖ 72 ‖
+
+parasati kūṭami goraku,  
+paradhanamula kāsapaḍaku, baruneñchakumī,  
+sarigāni gośhṭi seyaku,  
+siricheḍi chuṭṭambu kaḍaku jeraku sumatī 
+‖ 73 ‖
+
+parasatula gośhṭhi nuṇḍina  
+puruśhuḍu gāṅgeyuḍaina bhuvi ninda paḍun,  
+barasati suśīlayainanu  
+barusaṅgati nunna ninda pālagu sumatī 
+‖ 74 ‖
+
+parulaku niśhṭamu seppaku,  
+porugiṇḍlaku banulu leka povaku mepuḍun,  
+baru gadisina sati gavayaku,  
+meRigiyu birusaina hayamu lekkaku sumatī 
+‖ 75 ‖
+
+parvamula satula gavayaku,  
+murvīśvaru karuṇa nammi yubbaku madilo,  
+garvimpa nāli bempaku,  
+nirvahaṇamu leni choṭa niluvaku sumatī 
+‖ 76 ‖
+
+palu domi seyu viḍiyamu,  
+talagaḍigina nāṭi nidra, taruṇulayeḍalan  
+bola yaluka nāṭi kūṭami  
+vela yintani chepparādu vinarā sumatī 
+‖ 77 ‖
+
+pāṭeRugani pati koluvunu,  
+gūṭambuna keRukapaḍani komali ratiyun,  
+beṭetta jeyu chelimiyu,  
+neṭiki nedurīdinaṭṭu lennaga sumatī 
+‖ 78 ‖
+
+pālanu galasina jalamunu  
+pāla vidhambunane yuṇḍu barikimpaṅgā  
+pāla chavi jeRachu gāvuna  
+pālasuḍagu vāni pondu valadura sumatī 
+‖ 79 ‖
+
+pālasunakaina yāpada  
+jālimbaḍi tīrpa dagadu sarvaGYunakun  
+telagni baḍaga baṭṭina  
+meleRugune mīṭu gāka medini sumatī 
+‖ 80 ‖
+
+piluvani panulaku bovuṭa,  
+galayani sati gatiyu, rāju gānani koluvuṃ,  
+biluvani peraṇṭambunu,  
+valuvani chelimiyunu jeya valadura sumatī 
+‖ 81 ‖
+
+putrotsāhamu taṇḍriki  
+putruḍu janmiñchinapuḍe puṭṭadu, janulā  
+putruni kanugoni bogaḍaga  
+putrotsāhambu nāḍu pondura sumatī 
+‖ 82 ‖
+
+purikini prāṇamu gomaṭi,  
+varikini prāṇambu nīru vasumati lonan,  
+garikini prāṇamu toṇḍamu,  
+sirikini prāṇambu maguva siddhamu sumatī 
+‖ 83 ‖
+
+puli pālu dechchi yichchina,  
+nalavaḍagā guṇḍe gosi yaRache niḍinan,  
+dalapoḍugu dhanamu bosina,  
+velayāliki gūrmi ledu vinarā sumatī 
+‖ 84 ‖
+
+peṭṭina dinamula lopala  
+naṭṭaḍavulanaina vachchu nānārthamulun,  
+beṭṭani dinamula ganakapu  
+gaṭṭekkina nemi ledu gadarā sumatī 
+‖ 85 ‖
+
+poruguna bagavāḍuṇḍina,  
+niravondaka vrātakāḍe yelika yainan,  
+dhara gāpu koṇḍemāḍina,  
+garaṇālaku braduku ledu gadarā sumatī 
+‖ 86 ‖
+
+baṅgāru kuduva beṭṭaku,  
+saṅgaramuna bāRipoku sarasuḍavaite,  
+naṅgaḍi vechchamu vāḍaku,  
+veṅgalito jelimi valadu vinarā sumatī 
+‖ 87 ‖
+
+balavantuḍa nākemani  
+paluvurato nigrahiñchi palukuṭa melā,  
+balavanta maina sarpamu  
+chali chīmala cheta jikki chāvade sumatī 
+‖ 88 ‖
+
+madinokani valachi yuṇḍaga  
+madicheḍi yoka krūra viṭuḍu mānaka tirugun  
+badi chiluka pilli paṭṭina  
+jaduvune yāpañjaramuna jagatini sumatī 
+‖ 89 ‖
+
+maṇḍala pati samukhambuna  
+meṇḍaina pradhāni leka melaguṭa yellan  
+goṇḍanta madapu ṭenugu  
+toṇḍamu lekuṇḍinaṭlu dochura sumatī 
+‖ 90 ‖
+
+mantrigalavāni rājyamu  
+tantramu seḍakuṇḍa niluchu daRachuga dharalo  
+mantri vihīnuni rājyamu  
+jantrapu gīlūḍinaṭlu jarugadu sumatī 
+‖ 91 ‖
+
+māṭaku brāṇamu satyamu,  
+koṭaku brāṇambu subhaṭa koṭi, dharitrin^^  
+boṭiki brāṇamu mānamu,  
+chīṭiki brāṇambu vrālu siddhamu sumatī 
+‖ 92 ‖
+
+mānadhanu ḍātmadhṛti cheḍi  
+hīnuṇḍagu vāni nāśrayiñchuṭa yellan^^  
+māneḍu jalamula lopala  
+nenugu meyi dāchinaṭṭu leRugumu sumatī 
+‖ 93 ‖
+
+meleñchani mālinyuni,  
+mālanu, mogasālevāni, maṅgali hitugā  
+nelina narapati rājyamu  
+nela galasi povugāni negaḍadu sumatī 
+‖ 94 ‖
+
+rāpommani piluvani yā  
+bhūpāluni golva bhukti muktulu galave  
+dīpambu leni yiṇṭanu  
+jepuna kīllāḍinaṭlu siddhamu sumatī 
+‖ 95 ‖
+
+rūpiñchi paliki boṅkaku,  
+prāpagu chuṭṭambu neggu palukaku madilo,  
+gopiñchu rāju golvaku,  
+pāpapu deśambu soRaku padilamu sumatī 
+‖ 96 ‖
+
+lāvigalavāni kaṇṭenu  
+bhāvimpaga nītiparuḍu balavantuṇḍau  
+grānambanta gajambunu  
+māvaṭivāḍekkinaṭlu mahilo sumatī 
+‖ 97 ‖
+
+vaRadaina chenu dunnaku,  
+kaRavainanu bandhujanula kaḍa kegakumī,  
+parulaku marmamu cheppaku,  
+pirikiki daḻavāyi tanamu peṭṭaku sumatī 
+‖ 98 ‖
+
+varipaṇṭa leni yūrunu,  
+dora yuṇḍani yūru, toḍu dorakani teruvun,  
+dharanu pati leni gṛhamunu  
+narayaṅgā rudrabhūmi yanadagu sumatī 
+‖ 99 ‖
+
+vinadagu nevvaru jeppina  
+vininantane vega paḍaka vivarimpa dagun  
+kani kalla nijamu delisina  
+manujuḍe po nīti paruḍu mahilo sumatī 
+‖ 100 ‖
+
+vīḍemu seyani norunu,  
+jeḍela yadharāmṛtambu seyani norun,  
+pāḍaṅgarāni norunu  
+būḍida kiravaina pāḍu bondara sumatī 
+‖ 101 ‖
+
+velayāli valana gūrimi  
+galagadu, maRi galigeneni kaḍateRadugā,  
+baluvuru naḍacheḍu teruvuna  
+molavadu puvu, molicheneni podaladu sumatī 
+‖ 102 ‖
+
+velayālu cheyu bāsalu,  
+velayaga mogasāla bondu velamala chelimin,  
+galalona ganna kalimiyu  
+vilasitamuga nammarādu vinarā sumatī 
+‖ 103 ‖
+
+vesarapu jāti gānī,  
+vīsamu dā jeyanaṭṭi vīriḍi gānī,  
+dāsi koḍukaina gānī,  
+kāsulu gala vāḍe rāju gadarā sumatī 
+‖ 104 ‖
+
+śubhamula pondani chaduvunu,  
+nabhinayamuga rāgarasamu nandani pāṭal,  
+gubha gubhalu leni kūṭami,  
+sabha mechchani māṭalella jappana sumatī 
+‖ 105 ‖
+
+sarasamu virasamu koRake,  
+paripūrṇa sukhambu ladhika bādhala koRake,  
+peruguṭa viruguṭa koRake,  
+dhara tagguṭa hechchu koRake tathyamu sumatī 
+‖ 106 ‖
+
+siri tā vachchina vachchunu  
+salalitamuga nārikeḻa salilamu bhaṅgin,  
+siri tā boyina bovunu  
+kari mriṅgina velaga paṇḍu karaṇini sumatī 
+‖ 107 ‖
+
+strīla yeḍa vādulāḍaku,  
+bālurato jelimichesi bhāśhimpakumī,  
+melaina guṇamu viḍuvaku,  
+melina pati ninda seya kennaḍu sumatī 
+‖ 108 ‖
+
+### PlainEnglish
+
+#### sumatee shatakam
+
+shree raamuni dayachetanu  
+naarooDhiga sakala janulu nauraa yanagaa  
+dhaaraaLamaina neetulu  
+norooraga javulu puTTa nuDiv.eda sumatee 
+‖ 1 ‖
+
+akkaraku raani chuTTamu,  
+mr.okkina varameeni velpu, m.oharamuna daa  
+n.ekkina baarani gurramu  
+grakkuna viDavaMgavalayu gadaraa sumatee 
+‖ 2 ‖
+
+aDigina jeetaMbiyyani  
+miDimelapu d.oranu g.olchi miDukuTa kaMT.en  
+vaDigala y.eddula gaTTuka  
+maDi dunnuku bratuka vachchu mahilo sumatee 
+‖ 3 ‖
+
+aDiyaasa k.oluvu g.oluvaku,  
+guDi maNiyamu seyaboku, kujanula toDan  
+viDuvaka koorimi seyaku,  
+maDavini doDarak.oMTi narugaku sumatee 
+‖ 4 ‖
+
+adharamu gadaliyu, gadalaka  
+madhuramulagu bhaashha luDugi mauna vratuDau  
+adhikaara roga poorita  
+badhiraaMdhaka shavamu jooDa baapamu sumatee 
+‖ 5 ‖
+
+appu k.oni cheyu vibhavamu,  
+muppuna bRRiaayaMpuTaalu, moorkhuni tapamun,  
+dapparayani nRRipu raajyamu  
+d.epparamai meeda geeDu d.echchura sumatee 
+‖ 6 ‖
+
+appichchuvaaDu, vaidyuDu  
+n.eppuDu n.eDat.egaka paaru nerunu, dvijuDun  
+j.oppaDina yoora nuMDumu  
+ch.oppaDakunnaTTi yooru ch.orakumu sumatee 
+‖ 7 ‖
+
+alluni maMchitanaMbu,  
+g.ollani saahitya vidya, komali nijamun,  
+b.olluna daMchina biyyamu,  
+d.ellani kaakulunu levu t.eliyumu sumatee 
+‖ 8 ‖
+
+aak.onna kooD.e yamRRitamu,  
+taak.oMchaka nichchuvaanD.e daata dharitrin,  
+sokorchuvaaD.e manujuDu,  
+tekuva galavaaD.e vaMsha tilakuDu sumatee 
+‖ 9 ‖
+
+aakali yuDugani kaDupunu,  
+vekaTiyagu laMja paDupu viDuvani bratukun,  
+braak.onna nooti yudakamu,  
+mekala paaDiyunu rota medini sumatee 
+‖ 10 ‖
+
+ichchunade vidya, raNamuna  
+j.ochchunade magatanaMbu, sukaveeshvarulun  
+m.echchunade nerchu, vaduku  
+vachchunade keeDu summu vasudhanu sumatee 
+‖ 11 ‖
+
+immuga jaduvani norunu,  
+nammaa yani bilichi yanna maDugani norun,  
+dammula biluvani norunu  
+gummari manu dravvinaTTi guMTara sumatee 
+‖ 12 ‖
+
+uDumuMDad.e nooreMDlunu,  
+baDiyuMDad.e permi baamu padinooreMDlun,  
+maDuvuna g.okk.era yuMDad.e,  
+kaDu nila burushhaartha paruDu gaaval.e sumatee 
+‖ 13 ‖
+
+uttamaguNamulu neechuna  
+k.ett.eRaguna galuga nerchu; n.eyy.eDalaM daa  
+n.ettichchi karagi posina  
+nittaDi baMgaaramagun.e yilalo sumatee? 
+‖ 14 ‖
+
+udakamu draav.eDu hayamunu,  
+madamuna nupp.oMguchuMDu mattebhaMbun,  
+m.odavu kaDa nunna vRRishhabhamu,  
+jaduvani yaaneechu gaDaku janakura sumatee 
+‖ 15 ‖
+
+upakaariki nupakaaramu  
+vipareetamu gaadu seya vivariMpaMgaa;  
+napakaariki nupakaaramu  
+n.epam.ennaka seyuvaaDu nerpari sumatee 
+‖ 16 ‖
+
+upamiMpa m.odalu tiyyana  
+kapaTaM b.eDan.eDanu j.eRaku kai vaDine po  
+n.epamulu v.edakunu gaDapaTa  
+gapaTapu durjaati p.oMdu gadaraa sumatee 
+‖ 17 ‖
+
+.eppaTi k.eyyadi prastuta  
+mappaTikaa maaTalaaDi, yanyula manamul  
+n.oppiMchaka, taa n.ovvaka,  
+tappiMchuka tiruguvaaDu dhanyuDu sumatee 
+‖ 18 ‖
+
+.eppuDu dappulu v.edak.eDu  
+nappurushhuni g.olvagooDa dadi y.eTlannan  
+sarpaMbu paDaga neeDanu  
+gappa vasiMchina vidhaMbu gadaraa sumatee 
+‖ 19 ‖
+
+.eppuDu saMpada kaligina  
+nappuDu baMdhuvulu vattu radi y.eTlannan  
+t.eppaluga j.eRuvu niMDina  
+gappalu padivelu cheru gadaraa sumatee 
+‖ 20 ‖
+
+eRakumee kasugaayalu,  
+dooRakumee baMdhujanula doshhamu summee,  
+paaRakumee raNamaMduna,  
+meeRakumee guruvu naagnya medini sumatee 
+‖ 21 ‖
+
+.oka yooriki n.oka karaNamu,  
+n.oka teerpariyaina gaaka, n.ogi daRuchainan,  
+gakavikalu gaaka yuMDun.e  
+sakalaMbunu g.oTTuvaDaka sahajamu sumatee 
+‖ 22 ‖
+
+.oru naatma dalachu sati viDu,  
+maRumaaTalu paluku satula manniMpakumee,  
+v.eRa p.eRugani bhaTunelaku,  
+taRachuga sati gavaya boku, tagadura sumatee 
+‖ 23 ‖
+
+.ollani sati n.ollani pati,  
+n.ollani ch.elikaani viDuva n.ollani vaaDe  
+g.ollaMDu, kaaka dharalo  
+g.ollaMDunu g.ollaDaun.e guNamuna sumatee 
+‖ 24 ‖
+
+oDala baMDlunu vachchunu,  
+oDalu naabaMDlameeda n.oppuga vachchun,  
+oDalu baMDlunu valane  
+vaaDaMbaDu galimi lemi vasudhanu sumatee 
+‖ 25 ‖
+
+kaDu balavaMtuDainanu  
+buDamini braayaMpuTaali buTTina yiMTan  
+daDavuMDa nichch.eneniyu  
+baDupuga naMgaDiki daan.e baMpuTa sumatee 
+‖ 26 ‖
+
+kanakapu siMhaasanamuna  
+shunakamu goorchuMDab.eTTi shubha lagnamunaM  
+d.onaraga baTTamu gaTTina  
+v.enukaTi guNamela maanu vinaraa sumatee 
+‖ 27 ‖
+
+kappaku n.oragaalainanu,  
+sarpamunaku rogamaina, sati tuluvainan,  
+muppuna daridruDainanu,  
+tappadu maRi duHkha maguTa tathyamu sumatee 
+‖ 28 ‖
+
+kamalamulu neeTa baasina  
+kamalaaptuni rashmi soki kamalina bhaMgin  
+tama tama n.elavulu dappina  
+tama mitrulu shatrulauTa tathyamu sumatee 
+‖ 29 ‖
+
+karaNamu garaNamu nammina  
+maraNaaMtaka maunu gaani manaleDu sumee,  
+karaNamu dana sari karaNamu  
+maRi nammaka marma meeka manaval.e sumatee 
+‖ 30 ‖
+
+karaNamula nanusariMpaka  
+virasaMbuna dinna tiMDi vikaTiMchu jumee  
+yirusuna kaMd.ena b.eTTaka  
+parameshvaru baMDi yaina baaradu sumatee 
+‖ 31 ‖
+
+karaNamu saadaiyunnanu,  
+gari mada muDiginanu, baamu gaRavaka yunnan,  
+dhara delu meeTakunnanu,  
+gara maruduga l.ekka g.onaru gadaraa sumatee 
+‖ 32 ‖
+
+kasugaaya gaRachi choochina  
+masalaka pasa y.ogaru raaka madhuraMbagunaa,  
+pasa galugu yuvatuluMDaga  
+pasi baalala b.oMduvaaDu pashuvura sumatee 
+‖ 33 ‖
+
+kavi kaani vaani vraatayu,  
+navarasa bhaavamulu leni naatula valapun,  
+davili chanu paMdi neyani  
+vividhaayudha kaushalaMbu vRRidharaa sumatee 
+‖ 34 ‖
+
+kaadu sumee dussaMgati,  
+podusumee "keerti" kaaMta p.oMdina pidapan,  
+vaadu sumee yappichchuTa,  
+ledu sumee satula valapu leshamu sumatee 
+‖ 35 ‖
+
+kaamukuDu danisi viDichina  
+komali baraviTuDu gavaya goruTa y.ellan  
+bremamuna j.eRaku pippiki  
+cheemalu v.esa mooginaTlu siddhamu sumatee 
+‖ 36 ‖
+
+kaaraNamu leni nagavunu,  
+beraNamu leni lema, pRRithivee sthalilo  
+booraNamu leni boor.eyu,  
+veeraNamu leni p.eMDli vRRidharaa sumatee 
+‖ 37 ‖
+
+kulakaaMta toDa n.eppuDu  
+galahiMpaku, vaTTi tappu ghaTiyiMpakumee,  
+kalakaMThi kaMTa kannee  
+r.olikina siri yiMTa nuMDa n.olladu sumatee 
+‖ 38 ‖
+
+koorimi gala dinamulalo  
+neramu l.ennaDunu galuga neravu maRi yaa  
+koorimi virasaMbainanu  
+neramule tochu chuMDu nikkamu sumatee 
+‖ 39 ‖
+
+k.oMch.epu naru saMgatiche  
+naMchitamuga geeDu vachchu nadi y.eTlannan  
+giMchittu nalli kuTTina  
+maMchamunaku jeTu vachchu mahilo sumatee 
+‖ 40 ‖
+
+k.okkokam.ella jadivina,  
+chakkanivaaDaina, raaja chaMdruMDainan,  
+mikkili r.okkamu liyyaka,  
+chikkaduraa vaarakaaMta siddhamu sumatee 
+‖ 41 ‖
+
+k.oRa gaani k.oDuku buTTina  
+k.oRa gaamiy.e kaadu, taMDri guNamula j.eRachun  
+ch.eRaku tuda v.ennu buTTina  
+j.eRakuna teep.ella j.eRachu siddhamu sumatee 
+‖ 42 ‖
+
+komali vishvaasaMbunu,  
+baamulato j.elimi, yanya bhaamala valapun,  
+vemula tiyyadanaMbunu,  
+bhoomeeshula nammikalunu b.oMkura sumatee 
+‖ 43 ‖
+
+gaDana gala magani joochina  
+naDugaDuguna maDugu liDudu rativalu damalo,  
+gaDa nuDugu magani joochina  
+naDa peenugu vachch.e naMchu naguduru sumatee 
+‖ 44 ‖
+
+chiMtiMpaku kaDachina pani,  
+kiMtulu valaturani namma k.eMtayu madilo,  
+naMtaHpura kaaMtalato  
+maMtanamula maanu midiy.e matamura sumatee 
+‖ 45 ‖
+
+cheemalu p.eTTina puTTalu  
+paamula kiravainayaTlu paamaruDu dagan  
+hemaMbu gooDa b.eTTina  
+bhoomeeshula paala jeru bhuvilo sumatee 
+‖ 46 ‖
+
+chuTTamulu gaani vaaralu  
+chuTTamulamu neekaTaMchu s.oMpu dalirpan  
+n.eTTuk.oni yaashrayiMturu  
+gaTTiga dravyaMbu galuga gadaraa sumatee 
+‖ 47 ‖
+
+chetulaku d.oDavu daanamu,  
+bhootalanaathulaku d.oDavu b.oMkami dharalo,  
+neetiy.e t.oDav.evvaariki,  
+naatiki maanaMbu t.oDavu nayamuga sumatee 
+‖ 48 ‖
+
+taDa vorvaka, y.oDa lorvaka,  
+kaDu vegaM baDichi paDina gaaryaM bagune,  
+taDa vorchina, n.oDa lorchina,  
+j.eDipoyina kaaryam.ella jekuRu sumatee 
+‖ 49 ‖
+
+tana kopam.e tana shatruvu,  
+tana shaaMtam.e tanaku rakshha, daya chuTTaMbau  
+tana saMtoshham.e svargamu,  
+tana duHkham.e naraka maMDru tathyamu sumatee 
+‖ 50 ‖
+
+tana yoori tapasi tapamunu,  
+tana putruni vidya p.eMpu, dana sati roopun,  
+dana p.eraTi ch.eTTu maMdunu,  
+manasuna varNiMpar.eTTi manujulu sumatee 
+‖ 51 ‖
+
+tana kalimi yiMdra bhogamu,  
+tana lemiy.e svargaloka daaridryaMbun,  
+dana chaavu jala praLayamu,  
+tanu valachina yadiy.e raMbha tathyamu sumatee 
+‖ 52 ‖
+
+tana vaaru leni choTanu,  
+janamiMchuka leni choTa, jagaDamu choTan,  
+anumaanamaina choTanu,  
+manujunakunu niluva dagadu mahilo sumatee 
+‖ 53 ‖
+
+tamalamu veyani norunu,  
+vimatulato ch.elimi chesi v.etabaDu t.elivin,  
+gamalamulu leni k.olakunu,  
+himadhaamuDu leni raatri heenamu sumatee 
+‖ 54 ‖
+
+talanuMDu vishhamu phaNikini,  
+v.elayaMgaa doka nuMDu vRRishchikamunakun,  
+tala toka yanaka yuMDunu  
+khalunaku niluv.ella vishhamu gadaraa sumatee 
+‖ 55 ‖
+
+talap.oDugu dhanamu posina  
+v.elayaaliki nijamu ledu vivariMpaMgaa  
+dala daDivi baasa jesina  
+v.elayaalini nammaraadu vinaraa sumatee 
+‖ 56 ‖
+
+tala maasina, n.olu maasina,  
+valuvalu maasinanu braaNa vallabhunainan  
+gulakaaMtalaina roturu  
+tilakiMpaga bhoomilona diramuga sumatee 
+‖ 57 ‖
+
+taanu bhujiMpani yarthamu  
+maanava pati jeru g.oMta maRi bhoogatamau  
+gaanala neegalu goorchina  
+teniya y.oru jerunaTlu tiramuga sumatee 
+‖ 58 ‖
+
+daggaRa k.oMD.emu s.epp.eDu  
+pr.eggaDa palukulaku raaju priyuDai maRi daa  
+n.eggu braja kaachariMchuTa  
+b.oggulakai kalpataruvu b.oDuchuTa sumatee 
+‖ 59 ‖
+
+dhanapati sakhuDai yuMDina  
+n.enayaMgaa shivuDu bhikshham.ettaga valas.en,  
+dana vaari k.eMta galigina  
+dana bhaagyam.e tanaku gaaka tathyamu sumatee 
+‖ 60 ‖
+
+dheerulaku jeyu meladi  
+saaraMbagu naarikeLa salilamu bhaMgin  
+gauravamunu maRi meedaTa  
+bhoori sukhaavahamu nagunu bhuvilo sumatee 
+‖ 61 ‖
+
+naDuvakumee t.eruv.okkaTa,  
+guDuvakumee shatru niMTa goorimi toDan,  
+muDuvakumee paradhanamula,  
+nuDuvakumee y.orula manasu n.ovvaga sumatee 
+‖ 62 ‖
+
+nammaku suMkari, joodari,  
+nammaku m.ogasaala vaani, naTu v.elayaalin,  
+nammaku maMgaDi vaanini,  
+nammaku mee vaama hastu navanini sumatee 
+‖ 63 ‖
+
+nayamuna baaluM draavaru,  
+bhayamunanu vishhammunaina bhakshhiMturugaa,  
+nayam.eMta doshhakaariy.o,  
+bhayame joopaMga valayu baaguga sumatee 
+‖ 64 ‖
+
+narapatulu meRa dappina,  
+diram.oppaga vidhava yiMTa deerpari yainan,  
+garaNamu vaidikuDainanu,  
+maraNaaMtaka maunugaani maanadu sumatee 
+‖ 65 ‖
+
+navarasa bhaavaalaMkRRita  
+kavitaa goshhTiyunu, madhura gaanaMbunu daa  
+naviveki k.eMta j.eppina  
+j.eviTiki shaMkhoodinaTlu siddhamu sumatee 
+‖ 66 ‖
+
+navvakumee sabha lopala,  
+navvakumee talli, daMDri, naathula toDan,  
+navvakumee parasatito,  
+navvakumee vipravarula nayamidi sumatee 
+‖ 67 ‖
+
+neere praaNaadhaaramu  
+nore rasabharitamaina nuDuvula k.ellan  
+naariy.e narulaku ratnamu  
+cheeray.e shRRiMgaaramaMDru siddhamu sumatee 
+‖ 68 ‖
+
+pagavala d.evvari toDanu,  
+vagavaMgaa valadu lemi vachchina pidapan,  
+d.ega naaDa valadu sabhalanu  
+maguvaku manasiyya valadu mahilo sumatee 
+‖ 69 ‖
+
+patikaDaku, dannu goorina  
+satikaDakunu, velpu kaDaku, sadguru kaDakun,  
+sutukaDaku rittachetula  
+matimaMtulu chanaru neeti maargamu sumatee 
+‖ 70 ‖
+
+panicheyun.eDala daasiyu,  
+nanubhavamuna raMbha, maMtri yaalochanalan,  
+danabhukti y.eDala dalliyu,  
+nan dana kulakaaMta yuMDu naguraa sumatee 
+‖ 71 ‖
+
+paranaaree sodaruDai,  
+paradhanamula kaasapaDaka, parulaku hituDai,  
+parulu danu b.ogaDa n.egaDaka,  
+paru laligina naluga nataDu paramuDu sumatee 
+‖ 72 ‖
+
+parasati kooTami goraku,  
+paradhanamula kaasapaDaku, barun.eMchakumee,  
+sarigaani goshhTi seyaku,  
+sirich.eDi chuTTaMbu kaDaku jeraku sumatee 
+‖ 73 ‖
+
+parasatula goshhThi nuMDina  
+purushhuDu gaaMgeyuDaina bhuvi niMda paDun,  
+barasati susheelayainanu  
+barusaMgati nunna niMda paalagu sumatee 
+‖ 74 ‖
+
+parulaku nishhTamu s.eppaku,  
+p.orugiMDlaku banulu leka povaku m.epuDun,  
+baru gadisina sati gavayaku,  
+m.eRigiyu birusaina hayamu l.ekkaku sumatee 
+‖ 75 ‖
+
+parvamula satula gavayaku,  
+murveeshvaru karuNa nammi yubbaku madilo,  
+garviMpa naali b.eMpaku,  
+nirvahaNamu leni choTa niluvaku sumatee 
+‖ 76 ‖
+
+palu domi seyu viDiyamu,  
+talagaDigina naaTi nidra, taruNulay.eDalan  
+b.ola yaluka naaTi kooTami  
+v.ela yiMtani ch.epparaadu vinaraa sumatee 
+‖ 77 ‖
+
+paaT.eRugani pati k.oluvunu,  
+gooTaMbuna k.eRukapaDani komali ratiyun,  
+beT.etta jeyu ch.elimiyu,  
+neTiki n.edureedinaTTu l.ennaga sumatee 
+‖ 78 ‖
+
+paalanu galasina jalamunu  
+paala vidhaMbunan.e yuMDu barikiMpaMgaa  
+paala chavi j.eRachu gaavuna  
+paalasuDagu vaani p.oMdu valadura sumatee 
+‖ 79 ‖
+
+paalasunakaina yaapada  
+jaaliMbaDi teerpa dagadu sarvagnyunakun  
+telagni baDaga baTTina  
+mel.eRugun.e meeTu gaaka medini sumatee 
+‖ 80 ‖
+
+piluvani panulaku bovuTa,  
+galayani sati gatiyu, raaju gaanani k.oluvuM,  
+biluvani peraMTaMbunu,  
+valuvani ch.elimiyunu jeya valadura sumatee 
+‖ 81 ‖
+
+putrotsaahamu taMDriki  
+putruDu janmiMchinapuD.e puTTadu, janulaa  
+putruni kanug.oni b.ogaDaga  
+putrotsaahaMbu naaDu p.oMdura sumatee 
+‖ 82 ‖
+
+purikini praaNamu gomaTi,  
+varikini praaNaMbu neeru vasumati lonan,  
+garikini praaNamu t.oMDamu,  
+sirikini praaNaMbu maguva siddhamu sumatee 
+‖ 83 ‖
+
+puli paalu d.echchi yichchina,  
+nalavaDagaa guMD.e gosi yaRache niDinan,  
+dalap.oDugu dhanamu bosina,  
+v.elayaaliki goormi ledu vinaraa sumatee 
+‖ 84 ‖
+
+p.eTTina dinamula lopala  
+naTTaDavulanaina vachchu naanaarthamulun,  
+b.eTTani dinamula ganakapu  
+gaTT.ekkina nemi ledu gadaraa sumatee 
+‖ 85 ‖
+
+p.oruguna bagavaaDuMDina,  
+nirav.oMdaka vraatakaaD.e yelika yainan,  
+dhara gaapu k.oMD.emaaDina,  
+garaNaalaku braduku ledu gadaraa sumatee 
+‖ 86 ‖
+
+baMgaaru kuduva b.eTTaku,  
+saMgaramuna baaRipoku sarasuDavaite,  
+naMgaDi v.echchamu vaaDaku,  
+v.eMgalito j.elimi valadu vinaraa sumatee 
+‖ 87 ‖
+
+balavaMtuDa naakemani  
+paluvurato nigrahiMchi palukuTa melaa,  
+balavaMta maina sarpamu  
+chali cheemala cheta jikki chaavad.e sumatee 
+‖ 88 ‖
+
+madin.okani valachi yuMDaga  
+madich.eDi y.oka kroora viTuDu maanaka tirugun  
+badi chiluka pilli paTTina  
+jaduvun.e yaapaMjaramuna jagatini sumatee 
+‖ 89 ‖
+
+maMDala pati samukhaMbuna  
+m.eMDaina pradhaani leka m.elaguTa y.ellan  
+g.oMDaMta madapu Tenugu  
+t.oMDamu lekuMDinaTlu dochura sumatee 
+‖ 90 ‖
+
+maMtrigalavaani raajyamu  
+taMtramu s.eDakuMDa niluchu daRachuga dharalo  
+maMtri viheenuni raajyamu  
+jaMtrapu geelooDinaTlu jarugadu sumatee 
+‖ 91 ‖
+
+maaTaku braaNamu satyamu,  
+koTaku braaNaMbu subhaTa koTi, dharitrin^^  
+boTiki braaNamu maanamu,  
+cheeTiki braaNaMbu vraalu siddhamu sumatee 
+‖ 92 ‖
+
+maanadhanu DaatmadhRRiti ch.eDi  
+heenuMDagu vaani naashrayiMchuTa y.ellan^^  
+maan.eDu jalamula lopala  
+nenugu m.eyi daachinaTTu l.eRugumu sumatee 
+‖ 93 ‖
+
+mel.eMchani maalinyuni,  
+maalanu, m.ogasaal.evaani, maMgali hitugaa  
+nelina narapati raajyamu  
+nela galasi povugaani n.egaDadu sumatee 
+‖ 94 ‖
+
+raap.ommani piluvani yaa  
+bhoopaaluni g.olva bhukti muktulu galave  
+deepaMbu leni yiMTanu  
+jepuna keellaaDinaTlu siddhamu sumatee 
+‖ 95 ‖
+
+roopiMchi paliki b.oMkaku,  
+praapagu chuTTaMbu n.eggu palukaku madilo,  
+gopiMchu raaju g.olvaku,  
+paapapu deshaMbu s.oRaku padilamu sumatee 
+‖ 96 ‖
+
+laavigalavaani kaMT.enu  
+bhaaviMpaga neetiparuDu balavaMtuMDau  
+graanaMbaMta gajaMbunu  
+maavaTivaaD.ekkinaTlu mahilo sumatee 
+‖ 97 ‖
+
+vaRadaina chenu dunnaku,  
+kaRavainanu baMdhujanula kaDa kegakumee,  
+parulaku marmamu ch.eppaku,  
+pirikiki daLavaayi tanamu p.eTTaku sumatee 
+‖ 98 ‖
+
+varipaMTa leni yoorunu,  
+d.ora yuMDani yooru, toDu d.orakani t.eruvun,  
+dharanu pati leni gRRihamunu  
+narayaMgaa rudrabhoomi yanadagu sumatee 
+‖ 99 ‖
+
+vinadagu n.evvaru j.eppina  
+vininaMtan.e vega paDaka vivariMpa dagun  
+kani kalla nijamu d.elisina  
+manujuD.e po neeti paruDu mahilo sumatee 
+‖ 100 ‖
+
+veeD.emu seyani norunu,  
+jeD.ela yadharaamRRitaMbu seyani norun,  
+paaDaMgaraani norunu  
+booDida kiravaina paaDu b.oMdara sumatee 
+‖ 101 ‖
+
+v.elayaali valana goorimi  
+galagadu, maRi galig.eneni kaDateRadugaa,  
+baluvuru naDach.eDu t.eruvuna  
+m.olavadu puvu, m.olich.eneni p.odaladu sumatee 
+‖ 102 ‖
+
+v.elayaalu cheyu baasalu,  
+v.elayaga m.ogasaala b.oMdu v.elamala ch.elimin,  
+galalona ganna kalimiyu  
+vilasitamuga nammaraadu vinaraa sumatee 
+‖ 103 ‖
+
+vesarapu jaati gaanee,  
+veesamu daa jeyanaTTi veeriDi gaanee,  
+daasi k.oDukaina gaanee,  
+kaasulu gala vaaD.e raaju gadaraa sumatee 
+‖ 104 ‖
+
+shubhamula p.oMdani chaduvunu,  
+nabhinayamuga raagarasamu naMdani paaTal,  
+gubha gubhalu leni kooTami,  
+sabha m.echchani maaTal.ella jappana sumatee 
+‖ 105 ‖
+
+sarasamu virasamu k.oRake,  
+paripoorNa sukhaMbu ladhika baadhala k.oRake,  
+p.eruguTa viruguTa k.oRake,  
+dhara tagguTa h.echchu k.oRak.e tathyamu sumatee 
+‖ 106 ‖
+
+siri taa vachchina vachchunu  
+salalitamuga naarikeLa salilamu bhaMgin,  
+siri taa boyina bovunu  
+kari mriMgina v.elaga paMDu karaNini sumatee 
+‖ 107 ‖
+
+streela y.eDa vaadulaaDaku,  
+baalurato j.elimichesi bhaashhiMpakumee,  
+melaina guNamu viDuvaku,  
+melina pati niMda seya k.ennaDu sumatee 
+‖ 108 ‖
+

@@ -289,3 +289,47 @@ v.enn.ela vaMTidi shree veMkaTeshu maMtramu ‖
 నన్నుగావ కలిగె బో నాకు గురు డియ్యగాను  
 వెన్నెల వంటిది శ్రీ వేంకటేశు మంత్రము ‖  
 
+### English
+
+#### annamayya kīrtana anni mantramulu
+
+anni mantramulu ninde āvahiñchenu  
+vennato nāku galige veṅkaṭeśu mantramu ‖
+
+nāraduṇḍu japiyiñche nārāyaṇa mantramu  
+chere prahlāduḍu nārasiṃha mantramu ❘  
+kori vibhīśhaṇuṇḍu chekone rāma mantramu  
+vere nāku galige veṅkaṭeśu mantramu ‖
+
+raṅgagu vāsudeva mantramu dhruvuṇḍu japiyiñche  
+naṅga viṃve kṛśhṇa mantra marjunuṇḍunu ❘  
+muṅgiṭa viśhṇu mantramu mogi śukuḍu paṭhiñche  
+viṅgaḍamai nāku nabbe veṅkaṭeśu mantramu ‖
+
+inni mantramula kella indirā nādhuṇḍe guri   
+pannina didiye para brahma mantramu ❘  
+nannugāva kalige bo nāku guru ḍiyyagānu  
+vennela vaṇṭidi śrī veṅkaṭeśu mantramu ‖
+
+### PlainEnglish
+
+#### annamayya keertana anni maMtramulu
+
+anni maMtramulu niMde aavahiMch.enu  
+v.ennato naaku galig.e veMkaTeshu maMtramu ‖
+
+naaraduMDu japiyiMch.e naaraayaNa maMtramu  
+cher.e prahlaaduDu naarasiMha maMtramu ❘  
+kori vibheeshhaNuMDu chek.on.e raama maMtramu  
+ver.e naaku galig.e veMkaTeshu maMtramu ‖
+
+raMgagu vaasudeva maMtramu dhruvuMDu japiyiMch.e  
+naMga viMv.e kRRishhNa maMtra marjunuMDunu ❘  
+muMgiTa vishhNu maMtramu m.ogi shukuDu paThiMch.e  
+viMgaDamai naaku nabb.e veMkaTeshu maMtramu ‖
+
+inni maMtramula k.ella iMdiraa naadhuMD.e guri   
+pannina didiy.e para brahma maMtramu ❘  
+nannugaava kalig.e bo naaku guru Diyyagaanu  
+v.enn.ela vaMTidi shree veMkaTeshu maMtramu ‖
+

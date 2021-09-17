@@ -679,3 +679,123 @@ shivalokamavaapnoti shivenasaha modate ‖
 విశ్వనాధాష్టకమిదం పుణ్యం యః పఠేః శివ సన్నిధౌ  
 శివలోకమవాప్నోతి శివేనసహ మోదతే ‖  
 
+### English
+
+#### kāśī viśvanāthāśhṭakam
+
+gaṅgā taraṅga ramaṇīya jaṭā kalāpaṃ  
+gaurī nirantara vibhūśhita vāma bhāgaṃ   
+nārāyaṇa priyamanaṅga madāpahāraṃ  
+vārāṇasī purapatiṃ bhaja viśvanādhaṃ 
+‖ 1 ‖
+
+vācāmagocaramaneka guṇa svarūpaṃ  
+vāgīśa viśhṇu sura sevita pāda padmaṃ  
+vāmeṇa vigraha varena kalatravantaṃ  
+vārāṇasī purapatiṃ bhaja viśvanādhaṃ 
+‖ 2 ‖
+
+bhūtādipaṃ bhujaga bhūśhaṇa bhūśhitāṅgaṃ  
+vyāghrāñjināṃ baradharaṃ, jaṭilaṃ, trinetraṃ  
+pāśāṅkuśābhaya varaprada śūlapāṇiṃ  
+vārāṇasī purapatiṃ bhaja viśvanādhaṃ 
+‖ 3 ‖
+
+sītāṃśu śobhita kirīṭa virājamānaṃ  
+bālekśhaṇātala viśośhita pañcabāṇaṃ  
+nāgādhipā racita bāsura karṇa pūraṃ  
+vārāṇasī purapatiṃ bhaja viśvanādhaṃ 
+‖ 4 ‖
+
+pañcānanaṃ durita matta mataṅgajānāṃ   
+nāgāntakaṃ dhanuja puṅgava pannāgānāṃ  
+dāvānalaṃ maraṇa śoka jarāṭavīnāṃ  
+vārāṇasī purapatiṃ bhaja viśvanādhaṃ 
+‖ 5 ‖
+
+tejomayaṃ saguṇa nirguṇamadvitīyaṃ  
+ānanda kandamaparājita maprameyaṃ  
+nāgātmakaṃ sakala niśhkaḻamātma rūpaṃ  
+vārāṇasī purapatiṃ bhaja viśvanādhaṃ 
+‖ 6 ‖
+
+āśāṃ vihāya parihṛtya paraśya nindāṃ  
+pāpe rathiṃ ca sunivārya manassamādhau  
+ādhāya hṛt-kamala madhya gataṃ pareśaṃ  
+vārāṇasī purapatiṃ bhaja viśvanādhaṃ 
+‖ 7 ‖
+
+rāgādhi dośha rahitaṃ svajanānurāgaṃ  
+vairāgya śānti nilayaṃ girijā sahāyaṃ  
+mādhurya dhairya subhagaṃ garaḻābhirāmaṃ  
+vārāṇasī purapatiṃ bhaja viśvanādhaṃ 
+‖ 8 ‖
+
+vārāṇasī pura pate sthavanaṃ śivasya  
+vyākhyātaṃ aśhṭakamidaṃ paṭhate manuśhya  
+vidyāṃ śriyaṃ vipula saukhyamananta kīrtiṃ  
+samprāpya deva nilaye labhate ca mokśhaṃ ‖
+
+viśvanādhāśhṭakamidaṃ puṇyaṃ yaḥ paṭheḥ śiva sannidhau  
+śivalokamavāpnoti śivenasaha modate ‖
+
+### PlainEnglish
+
+#### kaashee vishvanaathaashhTakam
+
+gaMgaa taraMga ramaNeeya jaTaa kalaapaM  
+gauree niraMtara vibhooshhita vaama bhaagaM   
+naaraayaNa priyamanaMga madaapahaaraM  
+vaaraaNasee purapatiM bhaja vishvanaadhaM 
+‖ 1 ‖
+
+vaacaamagocaramaneka guNa svaroopaM  
+vaageesha vishhNu sura sevita paada padmaM  
+vaameNa vigraha varena kalatravaMtaM  
+vaaraaNasee purapatiM bhaja vishvanaadhaM 
+‖ 2 ‖
+
+bhootaadipaM bhujaga bhooshhaNa bhooshhitaaMgaM  
+vyaaghraaMjinaaM baradharaM, jaTilaM, trinetraM  
+paashaaMkushaabhaya varaprada shoolapaaNiM  
+vaaraaNasee purapatiM bhaja vishvanaadhaM 
+‖ 3 ‖
+
+seetaaMshu shobhita kireeTa viraajamaanaM  
+baalekshhaNaatala vishoshhita paMcabaaNaM  
+naagaadhipaa racita baasura karNa pooraM  
+vaaraaNasee purapatiM bhaja vishvanaadhaM 
+‖ 4 ‖
+
+paMcaananaM durita matta mataMgajaanaaM   
+naagaaMtakaM dhanuja puMgava pannaagaanaaM  
+daavaanalaM maraNa shoka jaraaTaveenaaM  
+vaaraaNasee purapatiM bhaja vishvanaadhaM 
+‖ 5 ‖
+
+tejomayaM saguNa nirguNamadviteeyaM  
+aanaMda kaMdamaparaajita maprameyaM  
+naagaatmakaM sakala nishhkaLamaatma roopaM  
+vaaraaNasee purapatiM bhaja vishvanaadhaM 
+‖ 6 ‖
+
+aashaaM vihaaya parihRRitya parashya niMdaaM  
+paape rathiM ca sunivaarya manassamaadhau  
+aadhaaya hRRit-kamala madhya gataM pareshaM  
+vaaraaNasee purapatiM bhaja vishvanaadhaM 
+‖ 7 ‖
+
+raagaadhi doshha rahitaM svajanaanuraagaM  
+vairaagya shaaMti nilayaM girijaa sahaayaM  
+maadhurya dhairya subhagaM garaLaabhiraamaM  
+vaaraaNasee purapatiM bhaja vishvanaadhaM 
+‖ 8 ‖
+
+vaaraaNasee pura pate sthavanaM shivasya  
+vyaakhyaataM ashhTakamidaM paThate manushhya  
+vidyaaM shriyaM vipula saukhyamanaMta keertiM  
+saMpraapya deva nilaye labhate ca mokshhaM ‖
+
+vishvanaadhaashhTakamidaM puNyaM yaH paTheH shiva sannidhau  
+shivalokamavaapnoti shivenasaha modate ‖
+

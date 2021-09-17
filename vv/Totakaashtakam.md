@@ -588,3 +588,107 @@ bhava shankara deshika me sharaNam ‖ 8 ‖
 భవ శంకర దేశిక మే శరణమ్ ‖ 8 ‖  
 
 
+### English
+
+#### toṭakāśhṭakam
+
+viditākhila śāstra sudhā jaladhe  
+mahitopaniśhat-kathitārtha nidhe ❘  
+hṛdaye kalaye vimalaṃ charaṇaṃ  
+bhava śaṅkara deśika me śaraṇam 
+‖ 1 ‖
+
+karuṇā varuṇālaya pālaya māṃ   
+bhavasāgara duḥkha vidūna hṛdam ❘  
+rachayākhila darśana tattvavidaṃ   
+bhava śaṅkara deśika me śaraṇam 
+‖ 2 ‖
+
+bhavatā janatā suhitā bhavitā   
+nijabodha vichāraṇa chārumate ❘  
+kalayeśvara jīva viveka vidaṃ   
+bhava śaṅkara deśika me śaraṇam 
+‖ 3 ‖
+
+bhava eva bhavāniti me nitarāṃ   
+samajāyata chetasi kautukitā ❘  
+mama vāraya moha mahājaladhiṃ  
+bhava śaṅkara deśika me śaraṇam 
+‖ 4 ‖
+
+sukṛteadhikṛte bahudhā bhavato   
+bhavitā samadarśana lālasatā ❘  
+ati dīnamimaṃ paripālaya māṃ   
+bhava śaṅkara deśika me śaraṇam 
+‖ 5 ‖
+
+jagatīmavituṃ kalitākṛtayo  
+vicharanti mahāmāha sacChalataḥ ❘  
+ahimāṃśurivātra vibhāsi guro   
+bhava śaṅkara deśika me śaraṇam 
+‖ 6 ‖
+
+gurupuṅgava puṅgavaketana te   
+samatāmayatāṃ na hi koapi sudhīḥ ❘  
+śaraṇāgata vatsala tattvanidhe   
+bhava śaṅkara deśika me śaraṇam 
+‖ 7 ‖
+
+viditā na mayā viśadaika kalā  
+na cha kiñchana kāñchanamasti guro ❘  
+dṛtameva vidhehi kṛpāṃ sahajāṃ   
+bhava śaṅkara deśika me śaraṇam 
+‖ 8 ‖
+
+### PlainEnglish
+
+#### toTakaashhTakam
+
+viditaakhila shaastra sudhaa jaladhe  
+mahitopanishhat-kathitaartha nidhe ❘  
+hRRidaye kalaye vimalaM charaNaM  
+bhava shankara deshika me sharaNam 
+‖ 1 ‖
+
+karuNaa varuNaalaya paalaya maaM   
+bhavasaagara duHkha vidoona hRRidam ❘  
+rachayaakhila darshana tattvavidaM   
+bhava shankara deshika me sharaNam 
+‖ 2 ‖
+
+bhavataa janataa suhitaa bhavitaa   
+nijabodha vichaaraNa chaarumate ❘  
+kalayeshvara jeeva viveka vidaM   
+bhava shankara deshika me sharaNam 
+‖ 3 ‖
+
+bhava .eva bhavaaniti m.e nitaraaM   
+samajaayata chetasi kautukitaa ❘  
+mama vaaraya moha mahaajaladhiM  
+bhava shankara deshika me sharaNam 
+‖ 4 ‖
+
+sukRRite.adhikRRite bahudhaa bhavato   
+bhavitaa samadarshana laalasataa ❘  
+ati deenamimaM paripaalaya maaM   
+bhava shankara deshika me sharaNam 
+‖ 5 ‖
+
+jagateemavituM kalitaakRRitayo  
+vicharanti mahaamaaha sacChalataH ❘  
+ahimaaMshurivaatra vibhaasi guro   
+bhava shankara deshika me sharaNam 
+‖ 6 ‖
+
+gurupungava pungavaketana te   
+samataamayataaM na hi ko.api sudheeH ❘  
+sharaNaagata vatsala tattvanidhe   
+bhava shankara deshika me sharaNam 
+‖ 7 ‖
+
+viditaa na mayaa vishadaika kalaa  
+na cha kinchana kaanchanamasti guro ❘  
+dRRitameva vidhehi kRRipaaM sahajaaM   
+bhava shankara deshika me sharaNam 
+‖ 8 ‖
+

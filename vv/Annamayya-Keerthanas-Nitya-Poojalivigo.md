@@ -289,3 +289,47 @@ kramamuto shree v.eMkaTaraayuniki ‖
 అమరిన ఊర్పులే ఆలబట్టములట  
 క్రమముతో శ్రీ వెంకటరాయునికి ‖  
 
+### English
+
+#### annamayya kīrtana nitya pūjalivigo
+
+nitya pūjalivigo nericina noho  ❘  
+pratyakśhamainaṭṭi paramātmuniki nitya pūjalivigo ‖
+
+tanuve guḍiyaṭa talaye śikharamaṭa   
+penu hṛdayame hari pīṭhamaṭa ❘  
+kanugona cūpule ghana dīpamulaṭa   
+tana lopali antaryāmikini ‖
+
+paluke mantramaṭa pādayina nāluke   
+kalakala manu piḍi ghaṇṭayaṭa ❘  
+naluvaina rucule naivedyamulaṭa   
+talapulopalanunna daivamunaku ‖
+
+gamana ceśhṭale aṅgaraṅga gatiyaṭa   
+tami gala jīvuḍe dāsuḍaṭa ❘  
+amarina ūrpule ālabaṭṭamulaṭa   
+kramamuto śrī veṅkaṭarāyuniki ‖
+
+### PlainEnglish
+
+#### annamayya keertana nitya poojalivigo
+
+nitya poojalivigo n.ericina noho  ❘  
+pratyakshhamainaTTi paramaatmuniki nitya poojalivigo ‖
+
+tanuve guDiyaTa talay.e shikharamaTa   
+p.enu hRRidayame hari peeThamaTa ❘  
+kanug.ona coopule ghana deepamulaTa   
+tana lopali aMtaryaamikini ‖
+
+paluke maMtramaTa paadayina naaluke   
+kalakala manu piDi ghaMTayaTa ❘  
+naluvaina rucule naivedyamulaTa   
+talapulopalanunna daivamunaku ‖
+
+gamana ceshhTale aMgaraMga gatiyaTa   
+tami gala jeevuDe daasuDaTa ❘  
+amarina oorpule aalabaTTamulaTa   
+kramamuto shree v.eMkaTaraayuniki ‖
+

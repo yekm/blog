@@ -315,3 +315,49 @@ acyuta yacyuta sharaNanavo manasaa ‖
 అచ్యుతుడు శ్రీవేంకటాద్రి మీదనిదె  
 అచ్యుత యచ్యుత శరణనవో మనసా ‖  
 
+### English
+
+#### annamayya kīrtana bhāvamu lona
+
+rāgaṃ: desākśhi  
+bhāvamulonā bāhyamunandunu ❘  
+govinda govindayani koluvavo manasā ‖
+
+hari yavatāramule yakhila devatalu  
+hari lonive brahmāṇḍambulu ❘  
+hari nāmamule anni mantramulu   
+hari hari hari hari yanavo manasā ‖
+
+viśhṇuni mahimale vihita karmamulu  
+viśhṇuni pogaḍeḍi vedambulu ❘  
+viśhṇuḍokkaḍe viśvāntarātmuḍu  
+viśhṇuvu viśhṇuvani vedakavo manasā ‖
+
+acyutuḍitaḍe ādiyu nantyamu  
+acyutuḍe yasurāntakuḍu ❘  
+acyutuḍu śrīveṅkaṭādri mīdanide  
+acyuta yacyuta śaraṇanavo manasā ‖
+
+### PlainEnglish
+
+#### annamayya keertana bhaavamu lona
+
+raagaM: desaakshhi  
+bhaavamulonaa baahyamunaMdunu ❘  
+goviMda goviMdayani k.oluvavo manasaa ‖
+
+hari yavataaramule yakhila devatalu  
+hari lonive brahmaaMDaMbulu ❘  
+hari naamamule anni maMtramulu   
+hari hari hari hari yanavo manasaa ‖
+
+vishhNuni mahimale vihita karmamulu  
+vishhNuni p.ogaD.eDi vedaMbulu ❘  
+vishhNuD.okkaDe vishvaaMtaraatmuDu  
+vishhNuvu vishhNuvani v.edakavo manasaa ‖
+
+acyutuDitaDe aadiyu naMtyamu  
+acyutuDe yasuraaMtakuDu ❘  
+acyutuDu shreeveMkaTaadri meedanid.e  
+acyuta yacyuta sharaNanavo manasaa ‖
+

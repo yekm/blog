@@ -289,3 +289,47 @@ matilonabaayanimanuvaMsharaamaa ‖
 వితతమహిమలశ్రీవేంకటాద్రిరామా  
 మతిలోనబాయనిమనువంశరామా ‖  
 
+### English
+
+#### annamayya kīrtana jaya jaya rāmā
+
+jaya jaya rāmā samaravijaya rāmā ❘  
+bhayahara nijabhaktapārīṇa rāmā ‖
+
+jaladhibandhiñcina saumitrirāmā  
+selavilluviracinasītārāmā ❘  
+alasugrīvunelināyodhyarāmā  
+kaligi yaGYamugācekausalyarāmā ‖
+
+arirāvaṇāntaka ādityakularāmā  
+gurumaunulanu gānekodaṇḍarāmā ❘  
+dhara nahalyapāliṭidaśaratharāmā  
+harurāṇinutulalokābhirāmā ‖
+
+atipratāpamula māyāmṛgāntaka rāmā  
+sutakuśalavapriya suguṇa rāmā ❘  
+vitatamahimalaśrīveṅkaṭādrirāmā  
+matilonabāyanimanuvaṃśarāmā ‖
+
+### PlainEnglish
+
+#### annamayya keertana jaya jaya raamaa
+
+jaya jaya raamaa samaravijaya raamaa ❘  
+bhayahara nijabhaktapaareeNa raamaa ‖
+
+jaladhibaMdhiMcina saumitriraamaa  
+s.elavilluviracinaseetaaraamaa ❘  
+alasugreevunelinaayodhyaraamaa  
+kaligi yagnyamugaacekausalyaraamaa ‖
+
+ariraavaNaaMtaka aadityakularaamaa  
+gurumaunulanu gaanekodaMDaraamaa ❘  
+dhara nahalyapaaliTidasharatharaamaa  
+haruraaNinutulalokaabhiraamaa ‖
+
+atiprataapamula maayaamRRigaaMtaka raamaa  
+sutakushalavapriya suguNa raamaa ❘  
+vitatamahimalashreeveMkaTaadriraamaa  
+matilonabaayanimanuvaMsharaamaa ‖
+

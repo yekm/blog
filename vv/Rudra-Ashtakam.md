@@ -367,3 +367,59 @@ jaraajanma duHkhaughataatapyamaanaM prabhopaahi apannameesha praseeda! ‖
 నజానామి యోగం జపం నైవ పూజాం నతో హం సదా సర్వదా దేవ తుభ్యం ❘  
 జరాజన్మ దుఃఖౌఘతాతప్యమానం ప్రభోపాహి అపన్నమీశ ప్రసీద! ‖  
 
+### English
+
+#### rudrāśhṭakam
+
+namāmīśa mīśāna nirvāṇarūpaṃ vibhuṃ vyāpakaṃ brahmaveda svarūpaṃ ❘  
+nijaṃ nirguṇaṃ nirvikalpaṃ nirīhaṃ chadākāśa mākāśavāsaṃ bhajehaṃ ‖
+
+nirākāra moṅkāra mūlaṃ turīyaṃ giriGYāna gotīta mīśaṃ girīśaṃ ❘  
+karāḻaṃ mahākālakālaṃ kṛpālaṃ guṇāgāra saṃsārasāraṃ nato haṃ ‖
+
+tuśhārādri saṅkāśa gauraṃ gambhīraṃ manobhūtakoṭi prabhā śrīśarīraṃ ❘  
+sphuranmauḻikallolinī chārugāṅgaṃ lastphālabālendu bhūśhaṃ maheśaṃ ‖
+
+chalatkuṇḍalaṃ bhrū sunetraṃ viśālaṃ prasannānanaṃ nīlakaṇṭhaṃ dayāḻuṃ ❘  
+mṛgādhīśa charmāmbaraṃ muṇḍamālaṃ priyaṃ śaṅkaraṃ sarvanāthaṃ bhajāmi ‖
+
+prachaṇḍaṃ prakṛśhṭaṃ pragalbhaṃ pareśaṃ akhaṇḍaṃ ajaṃ bhānukoṭi prakāśaṃ ❘  
+trayī śūla nirmūlanaṃ śūlapāṇiṃ bhajehaṃ bhavānīpatiṃ bhāvagamyaṃ ‖
+
+kaḻātīta kaḻyāṇa kalpāntarī sadā sajjanānandadātā purārī ❘  
+chidānanda sandoha mohāpakārī prasīda prasīda prabho manmadhārī ‖
+
+na yāvad umānātha pādāravindaṃ bhajantīha loke pare vā nārāṇāṃ ❘  
+na tāvatsukhaṃ śānti santāpanāśaṃ prasīda prabho sarvabhūtādhivāsa ‖
+
+najānāmi yogaṃ japaṃ naiva pūjāṃ nato haṃ sadā sarvadā deva tubhyaṃ ❘  
+jarājanma duḥkhaughatātapyamānaṃ prabhopāhi apannamīśa prasīda! ‖
+
+### PlainEnglish
+
+#### rudraashhTakam
+
+namaameesha meeshaana nirvaaNaroopaM vibhuM vyaapakaM brahmaveda svaroopaM ❘  
+nijaM nirguNaM nirvikalpaM nireehaM chadaakaasha maakaashavaasaM bhajehaM ‖
+
+niraakaara moMkaara moolaM tureeyaM girignyaana goteeta meeshaM gireeshaM ❘  
+karaaLaM mahaakaalakaalaM kRRipaalaM guNaagaara saMsaarasaaraM nato haM ‖
+
+tushhaaraadri saMkaasha gauraM gaMbheeraM manobhootakoTi prabhaa shreeshareeraM ❘  
+sphuranmauLikallolinee chaarugaaMgaM lastphaalabaaleMdu bhooshhaM maheshaM ‖
+
+chalatkuMDalaM bhroo sunetraM vishaalaM prasannaananaM neelakaMThaM dayaaLuM ❘  
+mRRigaadheesha charmaaMbaraM muMDamaalaM priyaM shaMkaraM sarvanaathaM bhajaami ‖
+
+prachaMDaM prakRRishhTaM pragalbhaM pareshaM akhaMDaM ajaM bhaanukoTi prakaashaM ❘  
+trayee shoola nirmoolanaM shoolapaaNiM bhajehaM bhavaaneepatiM bhaavagamyaM ‖
+
+kaLaateeta kaLyaaNa kalpaaMtaree sadaa sajjanaanaMdadaataa puraaree ❘  
+chidaanaMda saMdoha mohaapakaaree praseeda praseeda prabho manmadhaaree ‖
+
+na yaavad umaanaatha paadaaraviMdaM bhajaMteeha loke pare vaa naaraaNaaM ❘  
+na taavatsukhaM shaaMti saMtaapanaashaM praseeda prabho sarvabhootaadhivaasa ‖
+
+najaanaami yogaM japaM naiva poojaaM nato haM sadaa sarvadaa deva tubhyaM ❘  
+jaraajanma duHkhaughataatapyamaanaM prabhopaahi apannameesha praseeda! ‖
+

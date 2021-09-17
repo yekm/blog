@@ -601,3 +601,119 @@ evaM shree shaMbhudevasya naamnaamashhTottaraMshatam ‖
 ఏవం శ్రీ శంభుదేవస్య నామ్నామష్టోత్తరంశతమ్ ‖  
 
 
+### English
+
+#### śiva aśhṭottara śata nāma stotram
+
+śivo maheśvaraśśambhuḥ pinākī śaśiśekharaḥ  
+vāmadevo virūpākśhaḥ kapardī nīlalohitaḥ 
+‖ 1 ‖
+
+śaṅkaraśśūlapāṇiścha khaṭvāṅgī viśhṇuvallabhaḥ  
+śipiviśhṭombikānāthaḥ śrīkaṇṭho bhaktavatsalaḥ 
+‖ 2 ‖
+
+bhavaśśarvastrilokeśaḥ śitikaṇṭhaḥ śivapriyaḥ  
+ugraḥ kapālī kāmārī andhakāsurasūdanaḥ 
+‖ 3 ‖
+
+gaṅgādharo lalāṭākśhaḥ kālakālaḥ kṛpānidhiḥ  
+bhīmaḥ paraśuhastaścha mṛgapāṇirjaṭādharaḥ 
+‖ 4 ‖
+
+kailāsavāsī kavachī kaṭhorastripurāntakaḥ  
+vṛśhāṅko vṛśhabhārūḍho bhasmoddhūḻitavigrahaḥ 
+‖ 5 ‖
+
+sāmapriyassvaramayastrayīmūrtiranīśvaraḥ  
+sarvaGYaḥ paramātmā cha somasūryāgnilochanaḥ 
+‖ 6 ‖
+
+haviryaGYamayassomaḥ pañchavaktrassadāśivaḥ  
+viśveśvaro vīrabhadro gaṇanāthaḥ prajāpatiḥ 
+‖ 7 ‖
+
+hiraṇyaretaḥ durdharśhaḥ girīśo giriśonaghaḥ  
+bhujaṅgabhūśhaṇo bhargo giridhanvī giripriyaḥ 
+‖ 8 ‖
+
+kṛttivāsaḥ purārātirbhagavān pramathādhipaḥ  
+mṛtyuñjayassūkśhmatanurjagadvyāpī jagadguruḥ 
+‖ 9 ‖
+
+vyomakeśo mahāsenajanakaśchāruvikramaḥ  
+rudro bhūtapatiḥ sthāṇurahirbhudhno digambaraḥ 
+‖ 10 ‖
+
+aśhṭamūrtiranekātmā sāttvikaśśuddhavigrahaḥ  
+śāśvataḥ khaṇḍaparaśurajaḥ pāśavimochakaḥ 
+‖ 11 ‖
+
+mṛḍaḥ paśupatirdevo mahādevoavyayo hariḥ  
+pūśhadantabhidavyagro dakśhādhvaraharo haraḥ 
+‖ 12 ‖
+
+bhaganetrabhidavyakto sahasrākśhassahasrapāt  
+apavargapradoanantastārakaḥ parameśvaraḥ 
+‖ 13 ‖
+
+evaṃ śrī śambhudevasya nāmnāmaśhṭottaraṃśatam ‖
+
+### PlainEnglish
+
+#### shiva ashhTottara shata naama stotram
+
+shivo maheshvarashshaMbhuH pinaakee shashishekharaH  
+vaamadevo viroopaakshhaH kapardee neelalohitaH 
+‖ 1 ‖
+
+shaMkarashshoolapaaNishcha khaTvaaMgee vishhNuvallabhaH  
+shipivishhToMbikaanaathaH shreekaMTho bhaktavatsalaH 
+‖ 2 ‖
+
+bhavashsharvastrilokeshaH shitikaMThaH shivapriyaH  
+ugraH kapaalee kaamaaree aMdhakaasurasoodanaH 
+‖ 3 ‖
+
+gaMgaadharo lalaaTaakshhaH kaalakaalaH kRRipaanidhiH  
+bheemaH parashuhastashcha mRRigapaaNirjaTaadharaH 
+‖ 4 ‖
+
+kailaasavaasee kavachee kaThorastripuraaMtakaH  
+vRRishhaaMko vRRishhabhaarooDho bhasmoddhooLitavigrahaH 
+‖ 5 ‖
+
+saamapriyassvaramayastrayeemoortiraneeshvaraH  
+sarvagnyaH paramaatmaa cha somasooryaagnilochanaH 
+‖ 6 ‖
+
+haviryagnyamayassomaH paMchavaktrassadaashivaH  
+vishveshvaro veerabhadro gaNanaathaH prajaapatiH 
+‖ 7 ‖
+
+hiraNyaretaH durdharshhaH gireesho girishonaghaH  
+bhujaMgabhooshhaNo bhargo giridhanvee giripriyaH 
+‖ 8 ‖
+
+kRRittivaasaH puraaraatirbhagavaan pramathaadhipaH  
+mRRityuMjayassookshhmatanurjagadvyaapee jagadguruH 
+‖ 9 ‖
+
+vyomakesho mahaasenajanakashchaaruvikramaH  
+rudro bhootapatiH sthaaNurahirbhudhno digaMbaraH 
+‖ 10 ‖
+
+ashhTamoortiranekaatmaa saattvikashshuddhavigrahaH  
+shaashvataH khaMDaparashurajaH paashavimochakaH 
+‖ 11 ‖
+
+mRRiDaH pashupatirdevo mahaadevo.avyayo hariH  
+pooshhadaMtabhidavyagro dakshhaadhvaraharo haraH 
+‖ 12 ‖
+
+bhaganetrabhidavyakto sahasraakshhassahasrapaat  
+apavargaprado.anaMtastaarakaH parameshvaraH 
+‖ 13 ‖
+
+evaM shree shaMbhudevasya naamnaamashhTottaraMshatam ‖
+

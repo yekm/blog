@@ -1511,3 +1511,277 @@ its shree sarasvatyashhTottara shatanaamaavaLeessamaptaa ‖
 
 ఇత్స్ శ్రీ సరస్వత్యష్టోత్తర శతనామావళీస్సమప్తా ‖  
 
+### English
+
+#### sarasvatī aśhṭottara śata nāmāvaḻi
+
+oṃ śrī sarasvatyai namaḥ  
+oṃ mahābhadrāyai namaḥ  
+oṃ mahamāyāyai namaḥ    
+oṃ varapradāyai namaḥ  
+oṃ śrīpradāyai namaḥ  
+oṃ padmanilayāyai namaḥ  
+oṃ padmākśhyai namaḥ  
+oṃ padmavaktrāyai namaḥ  
+oṃ śivānujāyai namaḥ  
+oṃ pustakabhṛte namaḥ  
+oṃ GYānamudrāyai namaḥ 
+‖10 ‖
+
+oṃ ramāyai namaḥ  
+oṃ parāyai namaḥ  
+oṃ kāmarūpiṇyai namaḥ  
+oṃ mahā vidyāyai namaḥ  
+oṃ mahāpātaka nāśinyai namaḥ  
+oṃ mahāśrayāyai namaḥ  
+oṃ mālinyai  namaḥ  
+oṃ mahābhogāyai namaḥ  
+oṃ mahābhujāyai namaḥ  
+oṃ mahābhāgyāyai namaḥ 
+‖ 20 ‖
+
+oṃ mahotsāhāyai namaḥ  
+oṃ divyāṅgāyai namaḥ  
+oṃ suravanditāyai namaḥ  
+oṃ mahākāḻyai namaḥ  
+oṃ mahākārāyai namaḥ  
+oṃ mahāpāśāyai namaḥ  
+oṃ mahāṅkuśāyai namaḥ  
+oṃ pītāyai namaḥ    
+oṃ vimalāyai namaḥ  
+oṃ viśvāyai namaḥ 
+‖ 30 ‖
+
+oṃ vidyunmālāyai namaḥ  
+oṃ vaiśhṇavyai namaḥ  
+oṃ candrikāyai namaḥ  
+oṃ candravadanāyai namaḥ  
+oṃ candralekhāvibhūśhitāyai namaḥ  
+oṃ sāvitryai namaḥ  
+oṃ surasāyai namaḥ  
+oṃ devyai namaḥ  
+oṃ divyālaṅkāra bhūśhitāyai namaḥ  
+oṃ vāgdevyai namaḥ 
+‖ 40 ‖
+
+oṃ vasudhāyai namaḥ  
+oṃ tīvrāyai namaḥ  
+oṃ mahābhadrāyai namaḥ  
+oṃ mahābalāyai namaḥ  
+oṃ bhogadāyai namaḥ  
+oṃ bhāratyai namaḥ  
+oṃ bhāmāyai namaḥ  
+oṃ govindāyai namaḥ  
+oṃ gomatyai namaḥ  
+oṃ śivāyai namaḥ 
+‖ 50 ‖
+
+oṃ jaṭilāyai namaḥ  
+oṃ vindhyavāsinyai namaḥ    
+oṃ vindhyācala virājitāyai namaḥ  
+oṃ caṇḍikāyai namaḥ  
+oṃ vaiśhṇavyai namaḥ  
+oṃ brāhmyai namaḥ  
+oṃ brahmaGYānaikasādhanāyai namaḥ  
+oṃ saudāminyai namaḥ  
+oṃ sudhāmūrtaye namaḥ  
+oṃ subhadrāyai namaḥ 
+‖ 60 ‖
+
+oṃ surapūjitāyai namaḥ  
+oṃ suvāsinyai namaḥ  
+oṃ sunāsāyai namaḥ  
+oṃ vinidrāyai namaḥ  
+oṃ padmalocanāyai namaḥ  
+oṃ vidyārūpāyai namaḥ  
+oṃ viśālākśhyai namaḥ  
+oṃ brahmājāyāyai namaḥ  
+oṃ mahāphalāyai namaḥ  
+oṃ trayīmūrtaye namaḥ 
+‖ 70 ‖
+
+oṃ trikālaGYāyai namaḥ  
+oṃ triguṇāyai namaḥ  
+oṃ śāstrarūpiṇyai namaḥ  
+oṃ śumbhāsura pramathinyai namaḥ  
+oṃ śubhadāyai namaḥ  
+oṃ sarvātmikāyai namaḥ  
+oṃ rakta bījanihantryai namaḥ  
+oṃ cāmuṇḍāyai namaḥ  
+oṃ ambikāyai namaḥ  
+oṃ muṇḍakāya praharaṇāyai namaḥ 
+‖ 80 ‖
+
+oṃ dhūmralocanamardinyai namaḥ  
+oṃ sarvadevastutāyai namaḥ  
+oṃ saumyāyai namaḥ  
+oṃ surāsura namaskṛtāyai namaḥ    
+oṃ kāḻarātryai namaḥ  
+oṃ kaḻādharāyai namaḥ  
+oṃ rūpasaubhāgyadāyinyai namaḥ  
+oṃ vāgdevyai namaḥ     
+oṃ varārohāyai namaḥ  
+oṃ vārāhyai namaḥ 
+‖ 90 ‖
+
+oṃ vārijāsanāyai namaḥ  
+oṃ citrāmbarāyai namaḥ  
+oṃ citragandhāyai namaḥ  
+oṃ citramālya vibhūśhitāyai namaḥ  
+oṃ kāntāyai namaḥ  
+oṃ kāmapradāyai namaḥ  
+oṃ vandyāyai namaḥ  
+oṃ vidyādhara supūjitāyai namaḥ    
+oṃ śvetānanāyai namaḥ  
+oṃ nīlabhujāyai namaḥ 
+‖ 100 ‖
+
+oṃ caturvarga phalapradāyai namaḥ  
+oṃ caturānana sāmrājyai namaḥ  
+oṃ rakta madhyāyai namaḥ  
+oṃ nirañjanāyai namaḥ  
+oṃ haṃsāsanāyai namaḥ  
+oṃ nīlañjaṅghāyai namaḥ  
+oṃ śrī pradāyai namaḥ  
+oṃ brahmaviśhṇu śivātmikāyai namaḥ 
+‖ 108 ‖
+
+its śrī sarasvatyaśhṭottara śatanāmāvaḻīssamaptā ‖
+
+### PlainEnglish
+
+#### sarasvatee ashhTottara shata naamaavaLi
+
+oM shree sarasvatyai namaH  
+oM mahaabhadraayai namaH  
+oM mahamaayaayai namaH    
+oM varapradaayai namaH  
+oM shreepradaayai namaH  
+oM padmanilayaayai namaH  
+oM padmaakshhyai namaH  
+oM padmavaktraayai namaH  
+oM shivaanujaayai namaH  
+oM pustakabhRRite namaH  
+oM gnyaanamudraayai namaH 
+‖10 ‖
+
+oM ramaayai namaH  
+oM paraayai namaH  
+oM kaamaroopiNyai namaH  
+oM mahaa vidyaayai namaH  
+oM mahaapaataka naashinyai namaH  
+oM mahaashrayaayai namaH  
+oM maalinyai  namaH  
+oM mahaabhogaayai namaH  
+oM mahaabhujaayai namaH  
+oM mahaabhaagyaayai namaH 
+‖ 20 ‖
+
+oM mahotsaahaayai namaH  
+oM divyaaMgaayai namaH  
+oM suravaMditaayai namaH  
+oM mahaakaaLyai namaH  
+oM mahaakaaraayai namaH  
+oM mahaapaashaayai namaH  
+oM mahaaMkushaayai namaH  
+oM peetaayai namaH    
+oM vimalaayai namaH  
+oM vishvaayai namaH 
+‖ 30 ‖
+
+oM vidyunmaalaayai namaH  
+oM vaishhNavyai namaH  
+oM caMdrikaayai namaH  
+oM caMdravadanaayai namaH  
+oM caMdralekhaavibhooshhitaayai namaH  
+oM saavitryai namaH  
+oM surasaayai namaH  
+oM devyai namaH  
+oM divyaalaMkaara bhooshhitaayai namaH  
+oM vaagdevyai namaH 
+‖ 40 ‖
+
+oM vasudhaayai namaH  
+oM teevraayai namaH  
+oM mahaabhadraayai namaH  
+oM mahaabalaayai namaH  
+oM bhogadaayai namaH  
+oM bhaaratyai namaH  
+oM bhaamaayai namaH  
+oM goviMdaayai namaH  
+oM gomatyai namaH  
+oM shivaayai namaH 
+‖ 50 ‖
+
+oM jaTilaayai namaH  
+oM viMdhyavaasinyai namaH    
+oM viMdhyaacala viraajitaayai namaH  
+oM caMDikaayai namaH  
+oM vaishhNavyai namaH  
+oM braahmyai namaH  
+oM brahmagnyaanaikasaadhanaayai namaH  
+oM saudaaminyai namaH  
+oM sudhaamoortaye namaH  
+oM subhadraayai namaH 
+‖ 60 ‖
+
+oM surapoojitaayai namaH  
+oM suvaasinyai namaH  
+oM sunaasaayai namaH  
+oM vinidraayai namaH  
+oM padmalocanaayai namaH  
+oM vidyaaroopaayai namaH  
+oM vishaalaakshhyai namaH  
+oM brahmaajaayaayai namaH  
+oM mahaaphalaayai namaH  
+oM trayeemoortaye namaH 
+‖ 70 ‖
+
+oM trikaalagnyaayai namaH  
+oM triguNaayai namaH  
+oM shaastraroopiNyai namaH  
+oM shuMbhaasura pramathinyai namaH  
+oM shubhadaayai namaH  
+oM sarvaatmikaayai namaH  
+oM rakta beejanihaMtryai namaH  
+oM caamuMDaayai namaH  
+oM aMbikaayai namaH  
+oM muMDakaaya praharaNaayai namaH 
+‖ 80 ‖
+
+oM dhoomralocanamardinyai namaH  
+oM sarvadevastutaayai namaH  
+oM saumyaayai namaH  
+oM suraasura namaskRRitaayai namaH    
+oM kaaLaraatryai namaH  
+oM kaLaadharaayai namaH  
+oM roopasaubhaagyadaayinyai namaH  
+oM vaagdevyai namaH     
+oM varaarohaayai namaH  
+oM vaaraahyai namaH 
+‖ 90 ‖
+
+oM vaarijaasanaayai namaH  
+oM citraaMbaraayai namaH  
+oM citragaMdhaayai namaH  
+oM citramaalya vibhooshhitaayai namaH  
+oM kaaMtaayai namaH  
+oM kaamapradaayai namaH  
+oM vaMdyaayai namaH  
+oM vidyaadhara supoojitaayai namaH    
+oM shvetaananaayai namaH  
+oM neelabhujaayai namaH 
+‖ 100 ‖
+
+oM caturvarga phalapradaayai namaH  
+oM caturaanana saamraajyai namaH  
+oM rakta madhyaayai namaH  
+oM niraMjanaayai namaH  
+oM haMsaasanaayai namaH  
+oM neelaMjaMghaayai namaH  
+oM shree pradaayai namaH  
+oM brahmavishhNu shivaatmikaayai namaH 
+‖ 108 ‖
+
+its shree sarasvatyashhTottara shatanaamaavaLeessamaptaa ‖
+

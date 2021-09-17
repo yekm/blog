@@ -1251,3 +1251,243 @@ caamuNDeti tato l.oke khyaataa devee bhavishhyasi ‖25‖
  **ఆహుతి  
 ** ఓం క్లీం జయంతీ సాంగాయై సశక్తికాయై సపరివారాయై సవాహనాయై కాళీ చాముండా దేవ్యై కర్పూర బీజాధిష్ఠాయై మహాహుతిం సమర్పయామి నమః స్వాహా ‖  
 
+### English
+
+#### devī mahātmyam durgā saptaśati saptamoadhyāyaḥ
+
+caṇḍamuṇḍa vadho nāma saptamodhyāyaḥ ‖
+
+dhyānaṃ  
+dhyāyeṃ ratna pīṭhe śukakala paṭhitaṃ śruṇvatīṃ śyāmalāṅgīṃ❘  
+nyastaikāṅghriṃ saroje śaśi śakala dharāṃ vallakīṃ  vāda yantīṃ  
+kahalārābaddha mālāṃ niyamita vilasachcholikāṃ rakta vastrāṃ❘  
+mātaṅgīṃ śaṅkha pātrāṃ madhura madhumadāṃ chitrakodbhāsi bhālāṃ❘  
+ṛśhiruvāca❘  
+āGYaptāste tatodaityāścaṇḍamuṇḍapurogamāḥ❘  
+caturaṅgabalopetā yayurabhyudyatāyudhāḥ
+‖1‖
+
+dadṛśuste tato devīmīśhaddhāsāṃ vyavasthitām❘  
+siṃhasyopari śailendraśṛṅge mahatikāñcane
+‖2‖
+
+tedṛśhṭvātāṃsamādātumudyamaṃ ñcakrurudyatāḥ  
+ākṛśhṭacāpāsidharāstathā'nye tatsamīpagāḥ
+‖3‖
+
+tataḥ kopaṃ cakāroccairambhikā tānarīnprati❘  
+kopena cāsyā vadanaṃ maśhīvarṇamabhūttadā
+‖4‖
+
+bhrukuṭīkuṭilāttasyā lalāṭaphalakāddrutam❘  
+kāḻī karāḻa vadanā viniśhkrāntāsipāśinī   
+‖5‖
+
+vicitrakhaṭvāṅgadharā naramālāvibhūśhaṇā❘  
+dvīpicarmaparīdhānā śuśhkamāṃsātibhairavā
+‖6‖
+
+ativistāravadanā jihvālalanabhīśhaṇā❘  
+nimagnāraktanayanā nādāpūritadiṅmukhā   
+‖6‖
+
+sā vegenābhipatitā ghūtayantī mahāsurān❘  
+sainye tatra surārīṇāmabhakśhayata tadbalam   
+‖8‖
+
+pārśhṇigrāhāṅkuśagrāhayodhaghaṇṭāsamanvitān❘  
+samādāyaikahastena mukhe cikśhepa vāraṇān   
+‖9‖
+
+tathaiva yodhaṃ turagai rathaṃ sārathinā saha❘  
+nikśhipya vaktre daśanaiścarvayatyatibhairavaṃ   
+‖10‖
+
+ekaṃ jagrāha keśeśhu grīvāyāmatha cāparaṃ❘  
+pādenākramyacaivānyamurasānyamapothayat   
+‖11‖
+
+tairmuktānica śastrāṇi mahāstrāṇi tathāsuraiḥ❘  
+mukhena jagrāha ruśhā daśanairmathitānyapi
+‖12‖
+
+balināṃ tadbalaṃ sarvamasurāṇāṃ durātmanāṃ  
+mamardābhakśhayaccānyānanyāṃścātāḍayattathā     
+‖13‖
+
+asinā nihatāḥ kecitkecitkhaṭvāṅgatāḍitāḥ❘  
+jagmurvināśamasurā dantāgrābhihatāstathā     
+‖14‖
+
+kśhaṇena tadbhalaṃ sarva masurāṇāṃ nipātitaṃ❘  
+dṛśhṭvā caṇḍoabhidudrāva tāṃ kāḻīmatibhīśhaṇāṃ   
+‖15‖
+
+śaravarśhairmahābhīmairbhīmākśhīṃ tāṃ mahāsuraḥ❘  
+Chādayāmāsa cakraiśca muṇḍaḥ kśhiptaiḥ sahasraśaḥ   
+‖16‖
+
+tānicakrāṇyanekāni viśamānāni tanmukham❘  
+babhuryathārkabimbāni subahūni ghanodaraṃ     
+‖17‖
+
+tato jahāsātiruśhā bhīmaṃ bhairavanādinī❘  
+kāḻī karāḻavadanā durdarśaśanojjvalā   
+‖18‖
+
+utthāya ca mahāsiṃhaṃ devī caṇḍamadhāvata❘  
+gṛhītvā cāsya keśeśhu śirastenāsinācChinat     
+‖19‖
+
+atha muṇḍoabhyadhāvattāṃ dṛśhṭvā caṇḍaṃ nipātitam❘  
+tamapyapāta yadbhamau sā khaḍgābhihataṃruśhā     
+‖20‖
+
+hataśeśhaṃ tataḥ sainyaṃ dṛśhṭvā caṇḍaṃ nipātitam❘  
+muṇḍañca sumahāvīryaṃ diśo bheje bhayāturam   
+‖21‖
+
+śiraścaṇḍasya kāḻī ca gṛhītvā muṇḍa meva ca❘  
+prāha pracaṇḍāṭṭahāsamiśramabhyetya caṇḍikām     
+‖22‖
+
+mayā tavā tropahṛtau caṇḍamuṇḍau mahāpaśū❘  
+yuddhayaGYe svayaṃ śumbhaṃ niśumbhaṃ cahaniśhyasi   
+‖23‖
+
+ṛśhiruvāca‖
+
+tāvānītau tato dṛśhṭvā caṇḍa muṇḍau mahāsurau❘  
+uvāca kāḻīṃ kaḻyāṇī lalitaṃ caṇḍikā vacaḥ     
+‖24‖
+
+yasmāccaṇḍaṃ ca muṇḍaṃ ca gṛhītvā tvamupāgatā❘  
+cāmuṇḍeti tato loke khyātā devī bhaviśhyasi     
+‖25‖
+
+
+‖ jaya jaya  śrī mārkaṇḍeya purāṇe sāvarnike manvantare devi mahatmye caṇḍamuṇḍa vadho nāma saptamodhyāya samāptaṃ ‖
+
+āhuti  
+oṃ klīṃ jayantī sāṅgāyai saśaktikāyai saparivārāyai savāhanāyai kāḻī chāmuṇḍā devyai karpūra bījādhiśhṭhāyai mahāhutiṃ samarpayāmi namaḥ svāhā ‖
+
+### PlainEnglish
+
+#### devee mahaatmyam durgaa saptashati saptamo.adhyaayaH
+
+caNDamuNDa vadho naama saptamodhyaayaH ‖
+
+dhyaanaM  
+dhyaayeM ratna peeThe shukakala paThitaM shruNvateeM shyaamalaaMgeeM❘  
+nyastaikaaMghriM saroje shashi shakala dharaaM vallakeeM  vaada yanteeM  
+kahalaaraabaddha maalaaM niyamita vilasachcholikaaM rakta vastraaM❘  
+maataMgeeM shaMkha paatraaM madhura madhumadaaM chitrakodbhaasi bhaalaaM❘  
+RRishhiruvaaca❘  
+aagnyaptaaste tatodaityaashcaNDamuNDapurogamaaH❘  
+caturangabalopetaa yayurabhyudyataayudhaaH
+‖1‖
+
+dadRRishuste tato deveemeeshhaddhaasaaM vyavasthitaam❘  
+siMhasyopari shailendrashRRinge mahatikaancane
+‖2‖
+
+tedRRishhTvaataaMsamaadaatumudyamaM ncakrurudyataaH  
+aakRRishhTacaapaasidharaastathaa.anye tatsameepagaaH
+‖3‖
+
+tataH kopaM cakaaroccairambhikaa taanareenprati❘  
+kopena caasyaa vadanaM mashheevarNamabhoottadaa
+‖4‖
+
+bhrukuTeekuTilaattasyaa lalaaTaphalakaaddrutam❘  
+kaaLee karaaLa vadanaa vinishhkraantaasipaashinee   
+‖5‖
+
+vicitrakhaTvaangadharaa naramaalaavibhooshhaNaa❘  
+dveepicarmapareedhaanaa shushhkamaaMsaatibhairavaa
+‖6‖
+
+ativistaaravadanaa jihvaalalanabheeshhaNaa❘  
+nimagnaaraktanayanaa naadaapooritadinmukhaa   
+‖6‖
+
+saa vegenaabhipatitaa ghootayantee mahaasuraan❘  
+sainye tatra suraareeNaamabhakshhayata tadbalam   
+‖8‖
+
+paarshhNigraahaankushagraahayodhaghaNTaasamanvitaan❘  
+samaadaayaikahastena mukhe cikshhepa vaaraNaan   
+‖9‖
+
+tathaiva yodhaM turagai rathaM saarathinaa saha❘  
+nikshhipya vaktre dashanaishcarvayatyatibhairavaM   
+‖10‖
+
+ekaM jagraaha kesheshhu greevaayaamatha caaparaM❘  
+paadenaakramyacaivaanyamurasaanyamapothayat   
+‖11‖
+
+tairmuktaanica shastraaNi mahaastraaNi tathaasuraiH❘  
+mukhena jagraaha rushhaa dashanairmathitaanyapi
+‖12‖
+
+balinaaM tadbalaM sarvamasuraaNaaM duraatmanaaM  
+mamardaabhakshhayaccaanyaananyaaMshcaataaDayattathaa     
+‖13‖
+
+asinaa nihataaH kecitkecitkhaTvaangataaDitaaH❘  
+jagmurvinaashamasuraa dantaagraabhihataastathaa     
+‖14‖
+
+kshhaNena tadbhalaM sarva masuraaNaaM nipaatitaM❘  
+dRRishhTvaa caNDo.abhidudraava taaM kaaLeematibheeshhaNaaM   
+‖15‖
+
+sharavarshhairmahaabheemairbheemaakshheeM taaM mahaasuraH❘  
+Chaadayaamaasa cakraishca muNDaH kshhiptaiH sahasrashaH   
+‖16‖
+
+taanicakraaNyanekaani vishamaanaani tanmukham❘  
+babhuryathaarkabimbaani subahooni ghanodaraM     
+‖17‖
+
+tato jahaasaatirushhaa bheemaM bhairavanaadinee❘  
+kaaLee karaaLavadanaa durdarshashanojjvalaa   
+‖18‖
+
+utthaaya ca mahaasiMhaM devee caNDamadhaavata❘  
+gRRiheetvaa caasya kesheshhu shirastenaasinaacChinat     
+‖19‖
+
+atha muNDo.abhyadhaavattaaM dRRishhTvaa caNDaM nipaatitam❘  
+tamapyapaata yadbhamau saa khaDgaabhihataMrushhaa     
+‖20‖
+
+hatasheshhaM tataH sainyaM dRRishhTvaa caNDaM nipaatitam❘  
+muNDaMca sumahaaveeryaM disho bheje bhayaaturam   
+‖21‖
+
+shirashcaNDasya kaaLee ca gRRiheetvaa muNDa meva ca❘  
+praaha pracaNDaaTTahaasamishramabhyetya caNDikaam     
+‖22‖
+
+mayaa tavaa tropahRRitau caNDamuNDau mahaapashoo❘  
+yuddhayagnye svayaM shumbhaM nishumbhaM cahanishhyasi   
+‖23‖
+
+RRishhiruvaaca‖
+
+taavaaneetau tato dRRishhTvaa caNDa muNDau mahaasurau❘  
+uvaaca kaaLeeM kaLyaaNee lalitaM caNDikaa vacaH     
+‖24‖
+
+yasmaaccaNDaM ca muNDaM ca gRRiheetvaa tvamupaagataa❘  
+caamuNDeti tato l.oke khyaataa devee bhavishhyasi     
+‖25‖
+
+
+‖ jaya jaya  shree maarkaNDeya puraaNe saavarnike manvantare devi mahatmye caNDamuNDa vadho naama saptamodhyaaya samaaptaM ‖
+
+aahuti  
+oM kleeM jayaMtee saaMgaayai sashaktikaayai saparivaaraayai savaahanaayai kaaLee chaamuMDaa devyai karpoora beejaadhishhThaayai mahaahutiM samarpayaami namaH svaahaa ‖
+

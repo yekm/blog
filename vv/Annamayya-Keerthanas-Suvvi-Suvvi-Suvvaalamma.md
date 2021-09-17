@@ -289,3 +289,47 @@ alamelmaMga naaMchaarammakalukalu teer.e ‖
 కలిజారె వేంకటపతి మీరె  
 అలమేల్మంగ నాంచారమ్మకలుకలు తీరె ‖  
 
+### English
+
+#### annamayya kīrtana suvvi suvvi suvvālamma
+
+suvvi suvvi suvvālammā  
+navvuchu devaki nandanu ganiye ‖
+
+śaśi voḍache alasambulu gadache  
+diśa devatala digullu viḍache ‖
+
+kāviri virase kaṃsuḍu ginise  
+vāviri puvvula vānalu gurise ‖
+
+gati sese aṭu gāḍida gūse  
+kutilakuḍichi janakuḍu noru mūse ‖
+
+gaguru poḍiche lokamu vidhi viḍiche  
+mogulu guriyaga yamunapai nadache ‖
+
+kalijāre veṅkaṭapati mīre  
+alamelmaṅga nāñchārammakalukalu tīre ‖
+
+### PlainEnglish
+
+#### annamayya keertana suvvi suvvi suvvaalamma
+
+suvvi suvvi suvvaalammaa  
+navvuchu devaki naMdanu ganiy.e ‖
+
+shashi v.oDach.e alasaMbulu gadach.e  
+disha devatala digullu viDach.e ‖
+
+kaaviri viras.e kaMsuDu ginis.e  
+vaaviri puvvula vaanalu guris.e ‖
+
+gati ses.e aTu gaaDida goos.e  
+kutilakuDichi janakuDu noru moos.e ‖
+
+gaguru p.oDich.e lokamu vidhi viDich.e  
+m.ogulu guriyaga yamunapai nadach.e ‖
+
+kalijaar.e veMkaTapati meer.e  
+alamelmaMga naaMchaarammakalukalu teer.e ‖
+

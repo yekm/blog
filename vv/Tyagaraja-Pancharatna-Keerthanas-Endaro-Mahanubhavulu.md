@@ -809,3 +809,101 @@ aMdarikee vaMdanamu-l.eMdaro mahaanubhaavulu
 నిజ దాసులైనన వారెందరో మహానుభావులు  
 అందరికీ వందనము-లెందరో మహానుభావులు  
 
+### English
+
+#### tyāgarāja pañcharatna kīrtana endaro mahānubhāvulu
+
+kūrpu: śrī tyāgarājācāryulu   
+rāgaṃ: śrī   
+tāḻaṃ: ādi  
+endaro mahānubhāvulu andarikī vandanamulu   
+candurū varṇuni anda candamunu hṛdayāravundamuna   
+jūci brahmānandamanubhaviñcu vārendaro mahānubhāvulu  
+sāmagāna lola manasija lāvaṇya   
+dhanya murdhanyulendaro mahānubhāvulu  
+mānasavana cara vara sañcāramu neripi mūrti bāguga pogaḍane   
+vārendaro mahānubhāvulu   
+saraguna pādamulaku svāntamanu sarojamunu samarpaṇamu  
+seyuvārendaro mahānubhāvulu  
+patita pāvanuḍane parātparuni guriñci   
+paramārdhamagu nija mārgamutonu bāḍucunu   
+sallāpamuto svara layādi rāgamula deliyu   
+vārendaro mahānubhāvulu  
+hariguṇa maṇimaya saramulu gaḻamuna   
+śhobhillu bhakta koṭulilalo telivito celimito   
+karuṇa galgi jagamellanu sudhā dṛśhṭice   
+brocuvārendaro mahānubhāvulu  
+hoyalu mīra naḍalu galggu sarasuni   
+sadā kanula jūcucunu pulaka śarīrulai   
+ānanda payodhi nimagnulai mudambunanu yaśamu   
+galavārendaro mahānubhāvulu  
+parama bhāgavata mauni vara śaśi vibhākara sanaka sanandana   
+digīśa sura kimpuruśha kanaka kaśipu suta nārada tumburu   
+pavanasūnu bālacandra dhara śuka sarojabhava bhūsuravarulu   
+parama pāvanulu ghanulu śāśvatulu kamala bhava sukhamu   
+sadānubhavulu gāka endaro mahānubhāvulu  
+nī menu nāma vaibhavambulanu   
+nī parākrama dhairyamula śānta mānasamu nīvulanu   
+vacana satyamunu raghuvara nīyeḍa sadbhaktiyu janiñcakanu   
+durmatamulanu kalga jesinaṭṭi nīmadi neriṅgi   
+santasambunanu guṇa bhajanānanda kīrtanamu jeyu   
+vārendaro mahānubhāvulu  
+bhāgavata rāmāyaṇa gītādi śṛti śāstra purāṇapu marmamulanu   
+śivādi sanmatamula gūḍhamulan   
+muppadi mukkoṭi surāntaraṅgamula bhāvambulanerigi   
+bhāva rāga layādi saukhyamuce cirāyuvulgaligi   
+niravadhi sukhātmulai tyāgarāptulaina   
+vārendaro mahānubhāvulu  
+prema muppiri gonu veḻa nāmamunu dalacevāru   
+rāmabhaktuḍaina tyāgarājanutuni   
+nija dāsulainana vārendaro mahānubhāvulu  
+andarikī vandanamu-lendaro mahānubhāvulu   
+### PlainEnglish
+
+#### tyaagaraaja pancharatna keertana .eMdaro mahaanubhaavulu
+
+koorpu: shree tyaagaraajaacaaryulu   
+raagaM: shree   
+taaLaM: aadi  
+.eMdaro mahaanubhaavulu aMdarikee vaMdanamulu   
+caMduroo varNuni aMda caMdamunu hRRidayaaravuMdamuna   
+jooci brahmaanaMdamanubhaviMcu vaar.eMdaro mahaanubhaavulu  
+saamagaana lola manasija laavaNya   
+dhanya murdhanyul.eMdaro mahaanubhaavulu  
+maanasavana cara vara saMcaaramu n.eripi moorti baaguga p.ogaDane   
+vaar.eMdaro mahaanubhaavulu   
+saraguna paadamulaku svaaMtamanu sarojamunu samarpaNamu  
+seyuvaar.eMdaro mahaanubhaavulu  
+patita paavanuDane paraatparuni guriMci   
+paramaardhamagu nija maargamutonu baaDucunu   
+sallaapamuto svara layaadi raagamula d.eliyu   
+vaar.eMdaro mahaanubhaavulu  
+hariguNa maNimaya saramulu gaLamuna   
+shhobhillu bhakta koTulilalo t.elivito c.elimito   
+karuNa galgi jagam.ellanu sudhaa dRRishhTice   
+brocuvaar.eMdaro mahaanubhaavulu  
+h.oyalu meera naDalu galggu sarasuni   
+sadaa kanula joocucunu pulaka shareerulai   
+aanaMda payodhi nimagnulai mudaMbunanu yashamu   
+galavaar.eMdaro mahaanubhaavulu  
+parama bhaagavata mauni vara shashi vibhaakara sanaka sanaMdana   
+digeesha sura kiMpurushha kanaka kashipu suta naarada tuMburu   
+pavanasoonu baalacaMdra dhara shuka sarojabhava bhoosuravarulu   
+parama paavanulu ghanulu shaashvatulu kamala bhava sukhamu   
+sadaanubhavulu gaaka .eMdaro mahaanubhaavulu  
+nee menu naama vaibhavaMbulanu   
+nee paraakrama dhairyamula shaaMta maanasamu neevulanu   
+vacana satyamunu raghuvara neey.eDa sadbhaktiyu janiMcakanu   
+durmatamulanu kalga jesinaTTi neemadi n.eriMgi   
+saMtasaMbunanu guNa bhajanaanaMda keertanamu jeyu   
+vaar.eMdaro mahaanubhaavulu  
+bhaagavata raamaayaNa geetaadi shRRiti shaastra puraaNapu marmamulanu   
+shivaadi sanmatamula gooDhamulan   
+muppadi mukkoTi suraaMtaraMgamula bhaavaMbulan.erigi   
+bhaava raaga layaadi saukhyamuce ciraayuvulgaligi   
+niravadhi sukhaatmulai tyaagaraaptulaina   
+vaar.eMdaro mahaanubhaavulu  
+prema muppiri g.onu veLa naamamunu dalacevaaru   
+raamabhaktuDaina tyaagaraajanutuni   
+nija daasulainana vaar.eMdaro mahaanubhaavulu  
+aMdarikee vaMdanamu-l.eMdaro mahaanubhaavulu   

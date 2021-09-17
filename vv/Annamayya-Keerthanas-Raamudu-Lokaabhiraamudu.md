@@ -302,3 +302,47 @@ talak.on.e puNyapaadataluDu vaaDe ‖
 తలకొనె పుణ్యపాదతలుడు వాడే ‖  
 
 
+### English
+
+#### annamayya kīrtana rāmuḍu lokābhirāmuḍu
+
+rāmuḍu lokābhirāmuḍu trailokya  
+dhāmuḍu raṇaraṅga bhīmuḍu vāḍe ‖
+
+varuḍu sītaku, phalādharuḍu mahograpu  
+śaruḍu rākśhasa saṃharuḍu vāḍe ❘  
+sthiruḍu sarvaguṇākaruḍu kodaṇḍa dīkśhā  
+guruḍu sevakaśubhakaruḍu vāḍe ‖
+
+dhīruḍu lokaikavīruḍu sakalā  
+dhāruḍu bhavabandhadūruḍu vāḍe ❘  
+śūruḍu dharmavichāruḍu raghuvaṃśa  
+sāruḍu brahmasākāruḍu vāḍe ‖
+
+baluḍu yinniṭā ravikuluḍu bhāviñcha, ni  
+rmaluḍu niśchaluḍavikaluḍu vāḍe ❘  
+velasi śrī veṅkaṭādri nijanagaramulona  
+talakone puṇyapādataluḍu vāḍe ‖
+
+### PlainEnglish
+
+#### annamayya keertana raamuDu lokaabhiraamuDu
+
+raamuDu lokaabhiraamuDu trailokya  
+dhaamuDu raNaraMga bheemuDu vaaDe ‖
+
+varuDu seetaku, phalaadharuDu mahograpu  
+sharuDu raakshhasa saMharuDu vaaDe ❘  
+sthiruDu sarvaguNaakaruDu kodaMDa deekshhaa  
+guruDu sevakashubhakaruDu vaaDe ‖
+
+dheeruDu lokaikaveeruDu sakalaa  
+dhaaruDu bhavabaMdhadooruDu vaaDe ❘  
+shooruDu dharmavichaaruDu raghuvaMsha  
+saaruDu brahmasaakaaruDu vaaDe ‖
+
+baluDu yinniTaa ravikuluDu bhaaviMcha, ni  
+rmaluDu nishchaluDavikaluDu vaaDe ❘  
+v.elasi shree veMkaTaadri nijanagaramulona  
+talak.on.e puNyapaadataluDu vaaDe ‖
+

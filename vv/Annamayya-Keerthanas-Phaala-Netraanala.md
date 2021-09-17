@@ -302,3 +302,47 @@ kaaraNa prakaTa veMkaTa naarasiMhaa ‖
 కారణ ప్రకట వేంకట నారసింహా ‖  
 
 
+### English
+
+#### annamayya kīrtana phāla netrānala
+
+phālanetrānala prabala vidyullatā   
+keḻī vihāra lakśhmīnārasiṃhā ‖
+
+praḻayamāruta ghora bhastrīkāpūtkāra   
+lalita niśvāsaḍolā rachanayā ❘  
+kūlaśailakumbhinī kumudahita ravigagana-   
+chalana vidhinipuṇa niśchala nārasiṃhā ‖
+
+vivaraghanavadana durvidhahasana niśhṭhyūta-   
+lavadivya paruśha lālāghaṭanayā ❘  
+vividha jantu vrātabhuvana magnaukaraṇa   
+navanavapriya guṇārṇava nārasiṃhā ‖
+
+dāruṇojjvala dhagaddhagita daṃśhṭrānala vi-  
+kāra sphuliṅga saṅgakrīḍayā ❘  
+vairidānava ghoravaṃśa bhasmīkaraṇa-   
+kāraṇa prakaṭa veṅkaṭa nārasiṃhā ‖
+
+### PlainEnglish
+
+#### annamayya keertana phaala netraanala
+
+phaalanetraanala prabala vidyullataa   
+keLee vihaara lakshhmeenaarasiMhaa ‖
+
+praLayamaaruta ghora bhastreekaapootkaara   
+lalita nishvaasaDolaa rachanayaa ❘  
+koolashailakuMbhinee kumudahita ravigagana-   
+chalana vidhinipuNa nishchala naarasiMhaa ‖
+
+vivaraghanavadana durvidhahasana nishhThyoota-   
+lavadivya parushha laalaaghaTanayaa ❘  
+vividha jaMtu vraatabhuvana magnaukaraNa   
+navanavapriya guNaarNava naarasiMhaa ‖
+
+daaruNojjvala dhagaddhagita daMshhTraanala vi-  
+kaara sphuliMga saMgakreeDayaa ❘  
+vairidaanava ghoravaMsha bhasmeekaraNa-   
+kaaraNa prakaTa veMkaTa naarasiMhaa ‖
+

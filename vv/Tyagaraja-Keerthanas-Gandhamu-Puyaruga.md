@@ -419,3 +419,71 @@ raajita tyaagaraaja nutuniki ‖gaMdhamu‖
 రాజిత త్యాగరాజ నుతునికి ‖గంధము‖  
 
 
+### English
+
+#### tyāgarāja kīrtana gandhamu pūyarugā
+
+rāgaṃ: punnāgavarāḻi  
+tāḻaṃ: ādi  
+pallavi:  
+gandhamu puyyarugā pannīru  
+gandhamu puyyarugā  
+anu pallavi:  
+andamayina yadunandanupai  
+kundaradana liravondaga parimaḻa 
+‖gandhamu‖
+
+tilakamu diddarugā kastūri tilakamu diddarugā  
+kalakalamanu mukhakaḻagani sokkucu  
+balukula namṛtamu lolikeḍu svāmiki 
+‖gandhamu‖
+
+celamu gaṭṭarugā baṅgāru celamu gaṭṭarugā  
+mālimito gopālabālulato  
+nāla mepina viśālanayanuniki 
+‖gandhamu‖
+
+hāratulettarugā mutyāla hāratulettarugā  
+nārīmaṇulaku vāramu yauvana  
+vāraka yosageḍu vārijākśhuniki 
+‖gandhamu‖
+
+pūjalu seyarugā manasāra pūjalu seyarugā  
+jājulu mari virajājulu davanamu  
+rājita tyāgarāja nutuniki 
+‖gandhamu‖
+
+### PlainEnglish
+
+#### tyaagaraaja keertana gandhamu pooyarugaa
+
+raagaM: punnaagavaraaLi  
+taaLaM: aadi  
+pallavi:  
+gaMdhamu puyyarugaa panneeru  
+gaMdhamu puyyarugaa  
+anu pallavi:  
+aMdamayina yadunaMdanupai  
+kuMdaradana lirav.oMdaga parimaLa 
+‖gaMdhamu‖
+
+tilakamu diddarugaa kastoori tilakamu diddarugaa  
+kalakalamanu mukhakaLagani s.okkucu  
+balukula namRRitamu l.olik.eDu svaamiki 
+‖gaMdhamu‖
+
+celamu gaTTarugaa baMgaaru celamu gaTTarugaa  
+maalimito gopaalabaalulato  
+naala mepina vishaalanayanuniki 
+‖gaMdhamu‖
+
+haaratul.ettarugaa mutyaala haaratul.ettarugaa  
+naareemaNulaku vaaramu yauvana  
+vaaraka y.osag.eDu vaarijaakshhuniki 
+‖gaMdhamu‖
+
+poojalu seyarugaa manasaara poojalu seyarugaa  
+jaajulu mari virajaajulu davanamu  
+raajita tyaagaraaja nutuniki 
+‖gaMdhamu‖
+

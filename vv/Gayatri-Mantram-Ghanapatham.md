@@ -289,3 +289,39 @@ na_H _pra_ _cho_ dayaa''t pra _cho_ dayaa''nno naH pra _cho_ dayaa''t ❘ _pra_ 
 
 నః_ _ప్ర_ _చో_ దయా''త్ ప్ర _చో_ దయా''న్నో నః ప్ర _చో_ దయా''త్ ❘ _ప్ర_ _చో_ ద _యా_ దితి' ప్ర- _చో_ దయా''త్ |  
 
+### English
+
+#### gāyatri mantraṃ ghanāpāṭham
+
+oṃ bhūrbhuvassuvaḥ tathsa'viturvare''ṇyaṃ bhargo' devasya' dhīmahi ❘  
+dhiyo yo na'ḥ prachodayā''t ‖
+
+tathsa'vitu - ssavitu - stattathsa'viturvare''ṇyaṃ vare''ṇyagṃ savitu stattathsa'viturvare''ṇyam ❘  
+saviturvare''ṇyaṃ vare''ṇyagṃ savitu-ssa'viturvare''ṇyaṃ bhargo bhargo vare''ṇyagṃ savitu-ssa'viturvare''ṇyaṃ bharga'ḥ ❘  
+vare''ṇyaṃ bhargo bhargo vare''ṇyaṃ vare''ṇyaṃ bhargo' devasya' devasya bhargo vare''ṇyaṃ vare''ṇyaṃ bhargo' devasya' ❘  
+bhargo' devasya' devasya bhargo bhargo' devasya' dhīmahi devasya bhargo bhargo' devasya' dhīmahi ❘  
+devasya' dhīmahi dhīmahi devasya' devasya' dhīmahi ❘  
+dhīmahīti' dhīmahi ❘  
+dhiyo yo yo dhiyo yo no' no yo dhiyo dhiyo yona'ḥ ‖
+
+yo no' no yo yona'ḥ prachodayā''tprachodayā''nno yo yona'ḥ prachodayā''t ❘  
+naḥ prachodayā''t prachodayā''nno naḥ prachodayā''t ❘  
+prachodayāditi' pra-chodayā''t ❘  
+### PlainEnglish
+
+#### gaayatri maMtraM ghanaapaaTham
+
+oM bhoorbhuvassuvaH tathsa'viturvare''NyaM bhargo' devasya' dheemahi ❘  
+dhiyo yo na'H prachodayaa''t ‖
+
+tathsa'vitu - ssavitu - stattathsa'viturvare''NyaM vare''NyagM savitu stattathsa'viturvare''Nyam ❘  
+saviturvare''NyaM vare''NyagM savitu-ssa'viturvare''NyaM bhargo bhargo vare''NyagM savitu-ssa'viturvare''NyaM bharga'H ❘  
+vare''NyaM bhargo bhargo vare''NyaM vare''NyaM bhargo' devasya' devasya bhargo vare''NyaM vare''NyaM bhargo' devasya' ❘  
+bhargo' devasya' devasya bhargo bhargo' devasya' dheemahi devasya bhargo bhargo' devasya' dheemahi ❘  
+devasya' dheemahi dheemahi devasya' devasya' dheemahi ❘  
+dheemaheeti' dheemahi ❘  
+dhiyo yo yo dhiyo yo no' no yo dhiyo dhiyo yona'H ‖
+
+yo no' no yo yona'H prachodayaa''tprachodayaa''nno yo yona'H prachodayaa''t ❘  
+naH prachodayaa''t prachodayaa''nno naH prachodayaa''t ❘  
+prachodayaaditi' pra-chodayaa''t ❘  

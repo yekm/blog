@@ -9428,3 +9428,1913 @@ shataavartanametasya purashcaraNamucyate ‖ 231 ‖
 
 ‖ ఇతి కులార్ణవతంత్రొక్తం దకారాది శ్రీదుర్గాసహస్రనామస్తొత్రం సంపూర్ణమ్ ‖  
 
+### English
+
+#### dakārādi śrī durgā sahasra nāma stotram
+
+śrīgaṇeśāya namaḥ ❘  
+śrīdevyuvāca ❘  
+mama nāmasahasraṃ ca śivapūrvavinirmitam ❘  
+tatpaṭhyatāṃ vidhānena tadā sarvaṃ bhaviśhyati 
+‖ 1 ‖
+
+ityuktvā pārvatī devī śrāvayāmāsa taccatān ❘  
+tadeva nāma sāhasraṃ dakārādi varānane 
+‖ 2 ‖
+
+rogadāridrya daurbhāgyaśokaduḥkhavināśakam ❘  
+sarvāsāṃ pūjitaṃ nāma śrīdurgādevatā matā 
+‖ 3 ‖
+
+nijabījaṃ bhaved bījaṃ mantraṃ kīlakamucyate ❘  
+sarvāśāpūraṇe devi viniyogaḥ prakīrttitaḥ 
+‖ 4 ‖
+
+oṃ asya śrīdakārādidurgāsahasranāmastotrasya ❘  
+śiva ṛśhiḥ, anuśhṭup Chandaḥ,  
+śrīdurgādevatā, duṃ bījaṃ, duṃ kīlakaṃ,  
+duḥkhadāridryarogaśokanivṛttipūrvakaṃ  
+caturvargaphalaprāptyarthe pāṭhe viniyogaḥ ❘  
+dhyānam  
+oṃ vidyuddāmasamaprabhāṃ mṛgapatiskandhasthitāṃ bhīśhaṇāṃ   
+kanyābhiḥ karavālakheṭavilasaddhastābhirāsevitām ❘  
+hastaiścakragadāsikheṭaviśikhāṃścāpaṃ guṇaṃ tarjanīṃ   
+bibhrāṇāmanalātmikāṃ śaśidharāṃ durgāṃ trinetrāṃ bhaje ‖
+
+duṃ durgā durgatiharā durgācalanivāsinī ❘  
+durgamārgānusañcārā durgamārganivāsinī 
+‖ 1 ‖
+
+durgamārgapraviśhṭā ca durgamārgapraveśinī ❘  
+durgamārgakṛtāvāsā durgamārgajayapriyā 
+‖ 2 ‖
+
+durgamārgagṛhītārcā durgamārgasthitātmikā ❘  
+durgamārgastutiparā durgamārgasmṛtiparā 
+‖ 3 ‖
+
+drugamārgasadāsthālī durgamārgaratipriyā ❘  
+durgamārgasthalasthānā durgamārgavilāsinī 
+‖ 4 ‖
+
+durgamārgatyaktavastrā durgamārgapravartinī ❘  
+durgāsuranihantrī na durgāsuraniśhūdinī
+‖ 5 ‖
+
+durgāsarahara dūtī durgāsuravināśinī ❘  
+durgāsuravadhonmattā durgāsuravadhotsukā 
+‖ 6 ‖
+
+durgāsuravadhotsāhā durgāsuravadhodyatā ❘  
+durgāsuravadhaprepsurdugāsuramakhāntakṛt 
+‖ 7 ‖
+
+durgāsuradhvaṃsatośhā durgadānavadāriṇī ❘  
+durgavidrāvaṇakarī durgavidrāvaṇī sadā 
+‖ 8 ‖
+
+durgavikśhobhaṇakarī durgaśīrśhanikṛntinī ❘  
+durgavidhvaṃsanakari durgadaityanikṛntinī 
+‖ 9 ‖
+
+durgadaityaprāṇaharā durgadaityāntakāriṇī ❘  
+durgadaityaharatrātrī durgadaityāsṛgunmadā 
+‖ 1o ‖
+
+durgadaityāśanakarī durgacarmāmbarāvṛtā ❘  
+durgayuddhotsavakarī durgayuddhaviśāradā 
+‖ 11 ‖
+
+durgayuddhāsavaratā durgayuddhavimardinī ❘  
+durgayuddhahāsyaratā durgayuddhāṭṭahāsinī 
+‖ 12 ‖
+
+durgayuddhamahāmattā durgayuddhānusāriṇī ❘  
+durgayuddhotsavotsāhā durgadeśaniśheviṇī 
+‖ 13 ‖
+
+durgadeśavāsaratā durgadeśavilāsinī ❘  
+durgadeśārcanaratā durgadeśajanapriyā 
+‖ 14 ‖
+
+durgamasthānasaṃsthānā durgamadhyānusādhanā ❘  
+durgamā durgamadhyānā durgamātmasvarūpiṇī 
+‖ 15 ‖
+
+durgamāgamasandhānā durgamāgamasaṃstutā ❘  
+durgamāgamadurGYeyā durgamaśrutisammatā 
+‖ 16 ‖
+
+durgamaśrutimānyā ca durgamaśrutipūjitā ❘  
+durgamaśrutisuprītā durgamaśrutiharśhadā 
+‖ 17 ‖
+
+durgamaśrutisaṃsthānā durgamaśrutimānitā ❘  
+durgamācārasantuśhṭā durgamācāratośhitā 
+‖ 18 ‖
+
+durgamācāranirvṛttā durgamācārapūjitā ❘  
+durgamācārakalitā durgamasthānadāyinī 
+‖ 19 ‖
+
+durgamapremaniratā durgamadraviṇapradā ❘  
+durgamāmbujamadhyasthā durgamāmbujavāsinī 
+‖ 2o ‖
+
+durganāḍīmārgagatirdurganāḍīpracāriṇī ❘  
+durganāḍīpadmaratā durganāḍyambujāsthitā 
+‖ 21 ‖
+
+durganāḍīgatāyātā durganāḍīkṛtāspadā ❘  
+durganāḍīrataratā durganāḍīśasaṃstutā 
+‖ 22 ‖
+
+durganāḍīśvararatā durganāḍīśacumbitā ❘  
+durganāḍīśakroḍasthā durganāḍyutthitotsukā 
+‖ 23 ‖
+
+durganāḍyārohaṇā ca durganāḍīniśhevitā ❘  
+daristhānā daristhānavāsinī danujāntakṛt 
+‖ 24 ‖
+
+darīkṛtatapasyā ca darīkṛtaharārcanā ❘  
+darījāpitadiśhṭā ca darīkṛtaratikriyā 
+‖ 25 ‖
+
+darīkṛtaharārhā ca darīkrīḍitaputrikā ❘  
+darīsandarśanaratā darīropitavṛścikā 
+‖ 26 ‖
+
+darīguptikautukāḍhyā darībhramaṇatatparā ❘  
+danujāntakarī dīnā danusantānadāriṇī 
+‖ 27 ‖
+
+danujadhvaṃsinī dūnā danujendravināśinī ❘  
+dānavadhvaṃsinī devī dānavānāṃ bhayaṅkarī 
+‖ 28 ‖
+
+dānavī dānavārādhyā dānavendravarapradā ❘  
+dānavendranihantrī ca dānavadveśhiṇī satī 
+‖ 29 ‖
+
+dānavāripremaratā dānavāriprapūjitā ❘  
+dānavarikṛtārcā ca dānavārivibhūtidā 
+‖ 3o ‖
+
+dānavārimahānandā dānavāriratipriyā ❘  
+dānavāridānaratā dānavārikṛtāspadā 
+‖ 31 ‖
+
+dānavāristutiratā dānavārismṛtipriyā ❘  
+dānavāryāhāraratā dānavāriprabodhinī 
+‖ 32 ‖
+
+dānavāridhṛtapremā duḥkhaśokavimocinī ❘  
+duḥkhahantrī duḥkhadatrī duḥkhanirmūlakāriṇī 
+‖ 33 ‖
+
+duḥkhanirmūlanakarī duḥkhadāryarināśinī ❘  
+duḥkhaharā duḥkhanāśā duḥkhagrāmā durāsadā 
+‖ 34 ‖
+
+duḥkhahīnā duḥkhadhārā draviṇācāradāyinī ❘  
+draviṇotsargasantuśhṭā draviṇatyāgatośhikā 
+‖ 35 ‖
+
+draviṇasparśasantuśhṭā draviṇasparśamānadā ❘  
+draviṇasparśaharśhāḍhyā draviṇasparśatuśhṭidā 
+‖ 36 ‖
+
+draviṇasparśanakarī draviṇasparśanāturā ❘  
+draviṇasparśanotsāhā draviṇasparśasādhikā 
+‖ 37 ‖
+
+draviṇasparśanamatā draviṇasparśaputrikā ❘  
+draviṇasparśarakśhiṇī draviṇastomadāyinī 
+‖ 38 ‖
+
+draviṇakarśhaṇakarī draviṇaughavisarjinī ❘  
+draviṇācaladānāḍhyā draviṇācalavāsinī 
+‖ 39 ‖
+
+dīnamātā dinabandhurdīnavighnavināśinī ❘  
+dīnasevyā dīnasiddhā dīnasādhyā digambarī 
+‖ 4o ‖
+
+dīnagehakṛtānandā dīnagehavilāsinī ❘  
+dīnabhāvapremaratā dīnabhāvavinodinī 
+‖ 41 ‖
+
+dīnamānavacetaḥsthā dīnamānavaharśhadā ❘  
+dīnadainyavighātecChurdīnadraviṇadāyinī 
+‖ 42 ‖
+
+dīnasādhanasantuśhṭā dīnadarśanadāyinī ❘  
+dīnaputrādidātrī ca dīnasampadvidhāyinī 
+‖ 43 ‖
+
+dattātreyadhyānaratā dattātreyaprapūjitā ❘  
+dattātreyarśhisaṃsiddhā dattātreyavibhāvitā 
+‖ 44 ‖
+
+dattātreyakṛtārhā ca dattātreyaprasādhitā ❘  
+dattātreyastutā caiva dattātreyanutā sadā 
+‖ 46 ‖
+
+dattātreyapremaratā dattātreyānumānitā ❘  
+dattātreyasamudgītā dattātreyakuṭumbinī 
+‖ 46 ‖
+
+dattātreyaprāṇatulyā dattātreyaśarīriṇī ❘  
+dattātreyakṛtānandā dattātreyāṃśasambhavā 
+‖ 47 ‖
+
+dattātreyavibhūtisthā dattātreyānusāriṇī ❘  
+dattātreyagītiratā dattātreyadhanapradā 
+‖ 48 ‖
+
+dattātreyaduḥkhaharā dattātreyavarapradā ❘  
+dattātreyaGYānadānī dattātreyabhayāpahā 
+‖ 49 ‖
+
+devakanyā devamānyā devaduḥkhavināśinī ❘  
+devasiddhā devapūjyā devejyā devavanditā 
+‖ 50 ‖
+
+devamānyā devadhanyā devavighnavināśinī ❘  
+devaramyā devaratā devakautukatatparā 
+‖ 51 ‖
+
+devakrīḍā devavrīḍā devavairivināśinī ❘  
+devakāmā devarāmā devadviśhṭavinaśinī 
+‖ 52 ‖
+
+devadevapriyā devī devadānavavanditā ❘  
+devadevaratānandā devadevavarotsukā 
+‖ 53 ‖
+
+devadevapremaratā devadevapriyaṃvadā ❘  
+devadevaprāṇatulyā devadevanitambinī 
+‖ 54 ‖
+
+devadevaratamanā devadevasukhāvahā ❘  
+devadevakroḍarata devadevasukhapradā 
+‖ 55 ‖
+
+devadevamahānandā devadevapracumbitā ❘  
+devadevopabhuktā ca devadevānusevitā 
+‖ 56 ‖
+
+devadevagataprāṇā devadevagatātmikā ❘  
+devadevaharśhadātrī devadevasukhapradā 
+‖ 58 ‖
+
+devadevamahānandā devadevavilāsinī ❘  
+devadevadharmapat^nī devadevamanogatā 
+‖ 59 ‖
+
+devadevavadhūrdevī devadevārcanapriyā ❘  
+devadevāṅgasukhinī devadevāṅgavāsinī 
+‖ 6o ‖
+
+devadevāṅgabhūśhā ca devadevāṅgabhūśhaṇā ❘  
+devadevapriyakarī devadevāpriyāntakṛt 
+‖ 61 ‖
+
+devadevapriyaprāṇā devadevapriyātmikā ❘  
+devadevārcakaprāṇā devadevārcakapriyā 
+‖ 62 ‖
+
+devadevārcakotsāhā devadevārcakāśrayā ❘  
+devadevārcakāvighnā devadevaprasūrapi 
+‖ 63 ‖
+
+devadevasya jananī devadevavidhāyinī ❘  
+devadevasya ramaṇī devadevahradāśrayā 
+‖ 64 ‖
+
+devadeveśhṭadevī ca devatāpasapālinī ❘  
+devatābhāvasantuśhṭā devatābhāvatośhitā 
+‖ 65 ‖
+
+devatābhāvavaradā devatābhāvasiddhidā ❘  
+devatābhāvasaṃsiddhā devatābhāvasambhavā 
+‖ 66 ‖
+
+devatābhāvasukhinī devatābhāvavanditā ❘  
+devatābhāvasuprītā devatābhāvaharśhadā 
+‖ 67 ‖
+
+devatavighnahantrī ca devatādviśhṭanāśinī ❘  
+devatāpūjitapadā devatāprematośhitā 
+‖ 68 ‖
+
+devatāgāranilayā devatāsaukhyadāyinī ❘  
+devatānijabhāvā ca devatāhratamānasā 
+‖ 69 ‖
+
+devatākṛtapādārcā devatāhratabhaktikā ❘  
+devatāgarvamadhyastā devatādevatātanuḥ 
+‖ 7o ‖
+
+duṃ durgāyai namo nāmnī duṃ phaṇmantrasvarūpiṇī ❘  
+dūṃ namo mantrarūpā ca dūṃ namo mūrtikātmikā 
+‖ 71 ‖
+
+dūradarśipriyāduśhṭā duśhṭabhūtaniśhevitā ❘  
+dūradarśipremaratā dūradarśipriyaṃvadā 
+‖ 72 ‖
+
+dūradarśaisiddhidātrī dūradarśipratośhitā ❘  
+dūradarśikaṇṭhasaṃsthā dūradarśipraharśhitā 
+‖ 73 ‖
+
+dūradarśigṛhītārcā duradarhipratarśhitā ❘  
+dūradarśiprāṇatulyā duradarśisukhapradā 
+‖ 74 ‖
+
+duradarśibhrāntiharā dūradarśihradāspadā ❘  
+dūradarśyarividbhāvā dīrghadarśipramodinī 
+‖ 75 ‖
+
+dīrghadarśiprāṇatulyā duradarśivarapradā ❘  
+dīrghadarśiharśhadātrī dīrghadarśipraharśhitā 
+‖ 76 ‖
+
+dīrghadarśimahānandā dīrghadarśigṛhālayā ❘  
+dīrghadarśigṛhītārcā dīrghadarśihratārhaṇā 
+‖ 77 ‖
+
+dayā dānavatī dātrī dayālurdīnavatsalā ❘  
+dayārdrā ca dayāśīlā dayāḍhyā ca dayātmikā 
+‖ 78 ‖
+
+dayāmbudhirdayāsārā dayāsāgarapāragā ❘  
+dayāsindhurdayābhārā dayāvatkaruṇākarī 
+‖ 79 ‖
+
+dayāvadvatsalā devī dayā dānaratā sadā ❘  
+dayāvadbhaktisukhinī dayāvatparitośhitā 
+‖ 8o ‖
+
+dayāvatsnehaniratā dayāvatpratipādikā❘  
+dayāvatprāṇakartrī ca dayāvanmuktidāyinī 
+‖ 81 ‖
+
+dayāvadbhāvasantuśhṭā dayāvatparitośhitā ❘  
+dayāvattāraṇaparā dayāvatsiddhidāyinī 
+‖ 82 ‖
+
+dayāvatputravadbhāvā dayāvatputrarūpiṇī ❘  
+dayāvadehanilayā dayābandhurdayāśrayā 
+‖ 83 ‖
+
+dayāluvātsalyakarī dayālusiddhidāyinī ❘  
+dayāluśaraṇāśaktā dayāludehamandirā 
+‖ 84 ‖
+
+dayālubhaktibhāvasthā dayāluprāṇarūpiṇī ❘  
+dayālusukhadā dambhā dayālupremavarśhiṇī 
+‖ 85 ‖
+
+dayāluvaśagā dīrghā dirghāṅgī dīrghalocanā ❘  
+dīrghanetrā dīrghacakśhurdīrghabāhulatātmikā 
+‖ 86 ‖
+
+dīrghakeśī dīrghamukhī dīrghaghoṇā ca dāruṇā ❘  
+dāruṇāsurahantrī ca dārūṇāsuradāriṇī 
+‖ 87 ‖
+
+dāruṇāhavakartrī ca dāruṇāhavaharśhitā ❘  
+dāruṇāhavahomāḍhyā dāruṇācalanāśinī 
+‖ 88 ‖
+
+dāruṇācāraniratā dāruṇotsavaharśhitā ❘  
+dāruṇodyatarūpā ca dāruṇārinivāriṇī 
+‖ 89 ‖
+
+dāruṇekśhaṇasaṃyuktā doścatuśhkavirājitā ❘  
+daśadośhkā daśabhujā daśabāhuvirājitā 
+‖ 9o ‖
+
+daśāstradhāriṇī devī daśadikkhyātavikramā ❘  
+daśarathārcitapadā dāśarathipriyā sadā 
+‖ 91 ‖
+
+dāśarathiprematuśhṭā dāśarathiratipriyā ❘  
+dāśarathipriyakarī dāśarathipriyaṃvadā 
+‖ 92 ‖
+
+dāśarathīśhṭasandātrī dāśarathīśhṭadevatā ❘  
+dāśarathidveśhināśā dāśarathyānukūlyadā 
+‖ 93 ‖
+
+dāśarathipriyatamā dāśarathiprapūjitā ❘  
+daśānanārisampūjyā daśānanāridevatā 
+‖ 94 ‖
+
+daśānanāripramadā daśānanārijanmabhūḥ ❘  
+daśānanāriratidā daśānanārisevitā 
+‖ 95 ‖
+
+daśānanārisukhadā daśānanārivairihrat^^ ❘  
+daśānanāriśhṭadevī daśagrīvārivanditā 
+‖ 96 ‖
+
+daśagrīvārijananī daśagrīvāribhāvinī   
+daśagrīvārisahitā daśagrīvasabhājitā 
+‖ 97 ‖
+
+daśagrīvāriramaṇī daśagrīvavadhūrapi ❘  
+daśagrīvanāśakartrī daśagrīvavarapradā 
+‖ 98 ‖
+
+daśagrīvapurasthā ca daśagrīvavadhotsukā ❘  
+daśagrīvaprītidātrī daśagrīvavināśinī 
+‖ 99 ‖
+
+daśagrīvāhavakarī daśagrīvānapāyinī ❘  
+daśagrīvapriyā vandyā daśagrīvahratā tathā 
+‖ 1oo ‖
+
+daśagrīvāhitakarī daśagrīveśvarapriyā ❘  
+daśagrīveśvaraprāṇā daśagrīvavarapradā 
+‖ 1o1 ‖
+
+daśagrīveśvararatā daśavarśhīyakanyakā ❘  
+daśavarśhīyabālā ca daśavarśhīyavāsinī 
+‖ 1o2 ‖
+
+daśapāpaharā damyā daśahastavibhūśhitā ❘  
+daśaśastralasaddośhkā daśadikpālavanditā 
+‖ 1o3 ‖
+
+daśāvatārarūpā ca daśāvatārarūpiṇī ❘  
+daśavidyābhinnadevī daśaprāṇasvarūpiṇī 
+‖ 1o4 ‖
+
+daśavidyāsvarūpā ca daśavidyāmayī tathā ❘  
+dṛksvarūpā dṛkpradātrī dṛgrūpā dṛkprakāśinī 
+‖ 1o5 ‖
+
+digantarā digantaḥsthā digambaravilāsinī ❘  
+digambarasamājasthā digambaraprapūjitā 
+‖ 1o6 ‖
+
+digambarasahacarī digambarakṛtāspadā ❘  
+digambarahratācittā digambarakathāpriyā 
+‖ 1o7 ‖
+
+digambaraguṇaratā digambarasvarūpiṇī ❘  
+digambaraśirodhāryā digambarahratāśrayā 
+‖ 1o8 ‖
+
+digambarapremaratā digambararatāturā ❘  
+digambarīsvarūpā ca digambarīgaṇārcitā 
+‖ 1o9 ‖
+
+digambarīgaṇaprāṇā digambarīgaṇapriyā ❘  
+digambarīgaṇārādhyā digambaragaṇeśvarā 
+‖ 11o ‖
+
+digambaragaṇasparśamadirāpānavihvalā ❘  
+digambarīkoṭivṛtā digambarīgaṇāvṛtā 
+‖ 111 ‖
+
+durantā duśhkṛtiharā durdhyeyā duratikramā ❘  
+durantadānavadveśhṭrī durantadanujāntakṛt^^ 
+‖ 112 ‖
+
+durantapāpahantrī ca dastranistārakāriṇī ❘  
+dastramānasasaṃsthānā dastraGYānavivardhinī 
+‖ 113 ‖
+
+dastrasambhogajananī dastrasambhogadāyinī ❘  
+dastrasambhogabhavanā dastravidyāvidhāyinī
+‖ 114 ‖
+
+dastrodvegaharā dastrajananī dastrasundarī ❘  
+dstrabhaktividhāGYānā dastradviśhṭavināśinī 
+‖ 115 ‖
+
+dastrāpakāradamanī dastrasiddhividhāyinī ❘  
+dastratārārādhikā ca dastramātṛprapūjitā 
+‖ 116 ‖
+
+dastradainyaharā caiva dastratātaniśhevitā ❘  
+dastrapitṛśatajyotirdastrakauśaladāyinī 
+‖ 117 ‖
+
+daśaśīrśhārisahitā daśaśīrśhārikāminī ❘  
+daśaśīrśhapurī devī daśaśīrśhasabhājitā 
+‖ 118 ‖
+
+daśaśīrśhārisuprītā daśaśīrśhavadhupriyā ❘  
+daśaśīrśhaśiraś^Chetrī daśaśīrśhanitambinī 
+‖ 119 ‖
+
+daśaśīrśhaharaprāṇā daśaśirśhaharātmikā ❘  
+daśaśirśhaharārādhyā daśaśīrśhārivanditā 
+‖ 12o ‖
+
+daśaśīrśhārisukhadā daśaśīrśhakapālinī ❘  
+daśaśīrśhaGYānadātrī daśaśīrśhārigehinī 
+‖ 121 ‖
+
+daśaśīrśhavadhopāttaśrīrāmacandrarūpatā ❘  
+daśaśīrśharāśhṭradevī daśaśīrśhārisāriṇī 
+‖ 122 ‖
+
+daśaśīrśhabhrātṛtuśhṭā daśaśīrśhavadhūpriyā ❘  
+daśaśīrśhavadhūprāṇā daśaśīrśhavadhūratā 
+‖ 123 ‖
+
+daityagururatā sādhvī daityaguruprapūjitā ❘  
+daityagurūpadeśhṭrī ca daityaguruniśhevitā 
+‖ 124 ‖
+
+daityagurumataprāṇā daityagurutāpanāśinī ❘  
+durantaduḥkhaśamanī durantadamanī tamī 
+‖ 125 ‖
+
+durantaśokaśamanī durantaroganāśinī ❘  
+durantavairidamanī durantadaityanāśinī 
+‖ 126 ‖
+
+durantakaluśhaghnī ca duśhkṛtistomanāśinī ❘  
+durāśayā durādhārā durjayā duśhṭakāminī 
+‖ 127 ‖
+
+darśanīyā ca dṛśyā cā'dṛśyā ca dṛśhṭigocarā ❘  
+dūtīyāgapriyā dutī dūtīyāgakarapriyā 
+‖ 128 ‖
+
+dutīyāgakarānandā dūtīyāgasukhapradā ❘  
+dūtīyāgakarāyātā dutīyāgapramodinī 
+‖ 129 ‖
+
+durvāsaḥpūjitā caiva durvāsomunibhāvitā ❘  
+durvāsoarcitapādā ca durvāsomaunabhāvitā 
+‖ 13o ‖
+
+durvāsomunivandyā ca durvāsomunidevatā ❘  
+durvāsomunimātā ca durvāsomunisiddhidā 
+‖ 131 ‖
+
+durvāsomunibhāvasthā durvāsomunisevitā ❘  
+durvāsomunicittasthā durvāsomunimaṇḍitā 
+‖ 132 ‖
+
+durvāsomunisañcārā durvāsohradayaṅgamā ❘  
+durvāsohradayārādhyā durvāsohratsarojagā 
+‖ 133 ‖
+
+durvāsastāpasārādhyā durvāsastāpasāśrayā ❘  
+durvāsastāpasaratā durvāsastāpaseśvarī 
+‖ 134 ‖
+
+durvāsomunikanyā ca durvāsoadbhutasiddhidā ❘  
+dararātrī daraharā darayuktā darāpahā 
+‖ 135 ‖
+
+daraghnī darahantrī ca darayuktā darāśrayā ❘  
+darasmerā darapāṅgī dayādātrī dayāśrayā 
+‖ 136 ‖
+
+dastrapūjyā dastramātā dastradevī daronmadā ❘  
+dastrasiddhā dastrasaṃsthā dastratāpavimocinī 
+‖ 137 ‖
+
+dastrakśhobhaharā nityā dastralokagatātmikā ❘  
+daityagurvaṅganāvandyā daityagurvaṅganāpriyā 
+‖ 138 ‖
+
+daityagurvaṅganāvandyā daityagurvaṅganotsukā ❘  
+daityagurupriyatamā devaguruniśhevitā 
+‖ 139 ‖
+
+devaguruprasūrūpā devagurukṛtārhaṇā ❘  
+devagurupremayutā devagurvanumānitā 
+‖ 14o ‖
+
+devaguruprabhāvaGYā devagurusukhapradā ❘  
+devaguruGYānadātrī devagurūpramodinī 
+‖ 141 ‖
+
+daityastrīgaṇasampūjyā daityastrīgaṇapūjitā ❘  
+daityastrīgaṇarūpā ca daityastrīcittahāriṇī 
+‖ 142 ‖
+
+devastrīgaṇapūjyā ca devastrīgaṇavanditā ❘  
+devastrīgaṇacittasthā devastrīgaṇabhūśhitā 
+‖ 143 ‖
+
+devastrīgaṇasaṃsiddhā devastrīgaṇatośhitā ❘  
+devastrīgaṇahastasthacārucāmaravījitā 
+‖ 144 ‖
+
+devastrīgaṇahastasthacārugandhavilepitā ❘  
+devāṅganādhṛtādarśadṛśhṭyarthamukhacandramā 
+‖ 145 ‖
+
+devāṅganotsṛśhṭanāgavallīdalakṛtotsukā ❘  
+devastrīgaṇahastasthadipamālāvilokanā 
+‖ 146 ‖
+
+devastrīgaṇahastasthadhūpaghrāṇavinodinī ❘  
+devanārīkaragatavāsakāsavapāyinī 
+‖ 147 ‖
+
+devanārīkaṅkatikākṛtakeśanimārjanā ❘  
+devanārīsevyagātrā devanārīkṛtotsukā 
+‖ 148 ‖
+
+devanāriviracitapuśhpamālāvirājitā ❘  
+devanārīvicitraṅgī devastrīdattabhojanā ❘  
+devastrīgaṇagītā ca devastrīgītasotsukā ❘  
+devastrīnṛtyasukhinī devastrīnṛtyadarśinī 
+‖ 15o ‖
+
+devastrīyojitalasadratnapādapadāmbujā ❘  
+devastrīgaṇavistīrṇacārutalpaniśheduśhī 
+‖ 151 ‖
+
+devanārīcārukarākalitāṅghryādidehikā ❘  
+devanārīkaravyagratālavṛndamarutsukā 
+‖ 152 ‖
+
+devanārīveṇuvīṇānādasotkaṇṭhamānasā ❘  
+devakoṭistutinutā devakoṭikṛtārhaṇā 
+‖ 153 ‖
+
+devakoṭigītaguṇā devakoṭikṛtastutiḥ ❘  
+dantadaśhṭyodvegaphalā devakolāhalākulā 
+‖ 154 ‖
+
+dveśharāgaparityaktā dveśharāgavivarjitā ❘  
+dāmapūjyā dāmabhūśhā dāmodaravilāsinī 
+‖ 155 ‖
+
+dāmodarapremaratā dāmodarabhaginyapi ❘  
+dāmodaraprasūrdāmodarapat^nīpativratā 
+‖ 156 ‖
+
+dāmodarā'bhinnadehā dāmodararatipriyā ❘  
+dāmodarā'bhinnatanurdāmodarakṛtāspadā 
+‖ 157 ‖
+
+dāmodarakṛtaprāṇā dāmodaragatātmikā ❘  
+dāmodarakautukāḍhyā dāmodarakalākalā 
+‖ 158 ‖
+
+dāmodarāliṅgitāṅgī dāmodarakutuhalā ❘  
+dāmodarakṛtāhlādā dāmodarasucumbitā 
+‖ 159 ‖
+
+dāmodarasutākṛśhṭā dāmodarasukhapradā ❘  
+dāmodarasahāḍhyā ca dāmodarasahāyinī 
+‖ 16o ‖
+
+dāmodaraguṇaGYā ca dāmodaravarapradā ❘  
+dāmodarānukūlā ca dāmodaranitambinī 
+‖ 161 ‖
+
+dāmodarabalakrīḍākuśalā darśanapriyā ❘  
+dāmodarajalakrīḍātyaktasvajanasauhradā 
+‖ 162 ‖
+
+damodaralasadrāsakelikautukinī tathā ❘  
+dāmodarabhrātṛkā ca dāmodaraparāyaṇā 
+‖ 163 ‖
+
+dāmodaradharā dāmodaravairavināśinī ❘  
+dāmodaropajāyā ca dāmodaranimantritā 
+‖ 164 ‖
+
+dāmodaraparābhūtā dāmodaraparājitā ❘  
+dāmodarasamākrāntā dāmodarahatāśubhā 
+‖ 165 ‖
+
+dāmodarotsavaratā dāmodarotsavāvahā ❘  
+dāmodarastanyadātrī dāmodaragaveśhitā 
+‖ 166 ‖
+
+damayantīsiddhidātrī damayantīprasādhitā ❘  
+dayamantīśhṭadevī ca damayantīsvarūpiṇī 
+‖ 167 ‖
+
+damayantīkṛtārcā ca damanarśhivibhāvitā ❘  
+damanarśhiprāṇatulyā damanarśhisvarūpiṇī 
+‖ 168 ‖
+
+damanarśhisvarūpā ca dambhapūritavigrahā ❘  
+dambhahantrī dambhadhātrī dambhalokavimohinī 
+‖ 169 ‖
+
+dambhaśīlā dambhaharā dambhavatparimardinī ❘  
+dambharūpā dambhakarī dambhasantānadāriṇī 
+‖ 17o ‖
+
+dattamokśhā dattadhanā dattārogyā ca dāmbhikā ❘  
+dattaputrā dattadārā dattahārā ca dārikā 
+‖ 171 ‖
+
+dattabhogā dattaśokā dattahastyādivāhanā ❘  
+dattamatirdattabhāryā dattaśāstrāvabodhikā 
+‖ 172 ‖
+
+dattapānā dattadānā dattadāridryanāśinī ❘  
+dattasaudhāvanīvāsā dattasvargā ca dāsadā 
+‖ 173 ‖
+
+dāsyatuśhṭa dāsyaharā dāsadāsīśatapradā ❘  
+dārarūpā dāravāsa dāravāsihradāspadā 
+‖ 174 ‖
+
+dāravāsijanārādhyā dāravāsijanapriyā ❘  
+dāravāsivinirnītā dāravāsisamarcitā 
+‖ 175 ‖
+
+dāravāsyāhrataprāṇā dāravāsyarināśinī ❘  
+dāravāsivighnaharā dāravāsivimuktidā 
+‖ 176 ‖
+
+dārāgnirūpiṇī dārā dārakāryarināśinī ❘  
+dampatī dampatīśhṭā ca dampatīprāṇarūpikā 
+‖ 177 ‖
+
+dampatīsnehaniratā dāmpatyasādhanapriyā ❘  
+dāmpatyasukhasenā ca dāmpatyasukhadāyinī 
+‖ 178 ‖
+
+dampatyācāraniratā dampatyāmodamoditā ❘  
+dampatyāmodasukhinī dāmpatyāhladakāriṇī 
+‖ 179 ‖
+
+dampatīśhṭapādapadmā dāmpatyapremarūpiṇī ❘  
+dāmpatyabhogabhavanā dāḍimīphalabhojinī 
+‖ 18o ‖
+
+dāḍimīphalasantuśhṭā dāḍimīphalamānasā ❘  
+dāḍimīvṛkśhasaṃsthānā dāḍimīvṛkśhavāsinī 
+‖ 181 ‖
+
+dāḍimīvṛkśharūpā ca dāḍimīvanavāsinī ❘  
+dāḍimīphalasāmyorupayodharasamanvitā 
+‖ 182 ‖
+
+dakśhiṇā dakśhiṇārūpā dakśhiṇārūpadhāriṇī ❘  
+dakśhakanyā dakśhaputrī dakśhamātā ca dakśhasūḥ 
+‖ 183 ‖
+
+dakśhagotrā dakśhasutā dakśhayaGYavināśinī ❘  
+dakśhayaGYanāśakartrī dakśhayaGYāntakāriṇī 
+‖ 184 ‖
+
+dakśhaprasūtirdakśhejyā dakśhavaṃśaikapāvanī ❘  
+dakśhātmaja dakśhasūnūrdakśhajā dakśhajātikā 
+‖ 185 ‖
+
+dakśhajanmā dakśhajanurdakśhadehasamudbhavā ❘  
+dakśhajanirdakśhayāgadhvaṃsinī dakśhakanyakā 
+‖ 186 ‖
+
+dakśhiṇācāraniratā dakśhiṇācāratuśhṭidā ❘  
+dakśhiṇācārasaṃsiddhā dakśhiṇācārabhāvitā 
+‖ 187 ‖
+
+dakśhiṇācārasukhinī dakśhiṇācārasādhitā ❘  
+dakśhiṇācāramokśhāptirdakśhiṇācāravanditā 
+‖ 188 ‖
+
+dakśhiṇācāraśaraṇā dakśhiṇācāraharśhitā ❘  
+dvārapālapriyā dvāravāsinī dvārasaṃsthitā 
+‖ 189 ‖
+
+dvārarūpā dvārasaṃsthā dvāradeśanivāsinī ❘  
+dvārakarī dvāradhātrī dośhamātravivarjitā 
+‖ 19o ‖
+
+dośhākarā dośhaharā dośharāśivināśinī ❘  
+dośhākaravibhūśhāḍhyā dośhākarakapalinī 
+‖ 191 ‖
+
+dośhākarasahastrābhā dośhākarasamānanā ❘  
+dośhākaramukhī divyā dośhākarakarāgrajā 
+‖ 192 ‖
+
+dośhākarasamajyotirdośhākarasuśītalā ❘  
+dośhākaraśreṇī dośhasadṛśāpāṅgavīkśhaṇā 
+‖ 193 ‖
+
+dośhākareśhṭadevī ca dośhākaraniśhevitā ❘  
+dośhākaraprāṇarūpā dośhākaramarīcikā 
+‖ 194 ‖
+
+dośhākarollasadbhālā dośhākarasuharśhiṇī ❘  
+dośhakaraśirobhūśhā dośhakaravadhūpriyā 
+‖ 195 ‖
+
+dośhākaravadhūprāṇā dośhākaravadhūmatā ❘  
+dośhākaravadhūprītā dośhākaravadhūrapi 
+‖ 196 ‖
+
+dośhāpūjyā tathā dośhāpūjitā dośhahāriṇī ❘  
+dośhājāpamahānandā dośhājapaparāyaṇā 
+‖ 197 ‖
+
+dośhāpuraścāraratā dośhāpūjakaputriṇī ❘  
+dośhāpūjakavātsalyakariṇī jagadambikā 
+‖ 198 ‖
+
+dośhāpūjakavairighnī dośhāpūjakavighnahrat ❘  
+dośhāpūjakasantuśhṭā dośhāpūjakamuktidā 
+‖ 199 ‖
+
+damaprasūnasampūjyā damapuśhpapriyā sadā ❘  
+duryodhanaprapūjyā ca duḥśasanasamarcitā 
+‖ 2oo ‖
+
+daṇḍapāṇipriyā daṇḍapāṇimātā dayānidhiḥ ❘  
+daṇḍapāṇisamārādhyā daṇḍapāṇiprapūjitā 
+‖ 2o1 ‖
+
+daṇḍapāṇigṛhāsaktā daṇḍapāṇipriyaṃvadā ❘  
+daṇḍapāṇipriyatamā daṇḍapāṇimanoharā 
+‖ 2o2 ‖
+
+daṇḍapāṇihrataprāṇā daṇḍapāṇisusiddhidā ❘  
+daṇḍapāṇiparāmṛśhṭā daṇḍapāṇipraharśhitā 
+‖ 2o3 ‖
+
+daṇḍapāṇivighnaharā daṇḍapāṇiśirodhṛtā ❘  
+daṇḍapāṇiprāptacaryā daṇḍapāṇyunmukhi sadā 
+‖ 2o4 ‖
+
+daṇḍapāṇiprāptapadā daṇḍapāṇivaronmukhī ❘  
+daṇḍahastā daṇḍapāṇirdṇḍabāhurdarāntakṛt 
+‖ 2o5 ‖
+
+daṇḍadośhkā daṇḍakarā daṇḍacittakṛtāspadā ❘  
+daṇḍividyā daṇḍimātā daṇḍikhaṇḍakanāśinī 
+‖ 2o6 ‖
+
+daṇḍipriyā daṇḍipūjyā daṇḍisantośhadāyinī ❘  
+dasyupūjyā dasyuratā dasyudraviṇadāyinī 
+‖ 2o7 ‖
+
+dasyuvargakṛtārhā ca dasyuvargavināśinī ❘  
+dasyunirṇāśinī dasyukulanirṇāśinī tathā 
+‖ 2o8 ‖
+
+dasyupriyakarī dasyunṛtyadarśanatatparā ❘  
+duśhṭadaṇḍakarī duśhṭavargavidrāviṇī tathā 
+‖ 2o9 ‖
+
+duśhṭavarganigrahārhā dūśakaprāṇanāśinī ❘  
+dūśhakottāpajananī dūśhakāriśhṭakāriṇī 
+‖ 21o ‖
+
+dūśhakadveśhaṇakarī dāhikā dahanātmikā ❘  
+dārukārinihantrī ca dārukeśvarapūjitā 
+‖ 211 ‖
+
+dārukeśvaramātā ca dārukeśvaravanditā ❘  
+darbhahastā darbhayutā darbhakarmavivarjitā 
+‖ 212 ‖
+
+darbhamayī darbhatanurdarbhasarvasvarūpiṇī ❘  
+darbhakarmācāraratā darbhahastakṛtārhaṇā 
+‖ 213 ‖
+
+darbhānukūlā dāmbharyā darvīpātrānudāminī ❘  
+damaghośhaprapūjyā ca damaghośhavarapradā 
+‖ 214 ‖
+
+damaghośhasamārādhyā dāvāgnirūpiṇī tathā ❘  
+dāvāgnirūpā dāvāgninirṇāśitamahābalā 
+‖ 215 ‖
+
+dantadaṃśhṭrāsurakalā dantacarcitahastikā ❘  
+dantadaṃśhṭrasyandana ca dantanirṇāśitāsurā 
+‖ 216 ‖
+
+dadhipūjyā dadhiprītā dadhīcivaradāyinī ❘  
+dadhīcīśhṭadevatā ca dadhīcimokśhadāyinī 
+‖ 217 ‖
+
+dadhīcidainyahantrī ca dadhīcidaradāriṇī ❘  
+dadhīcibhaktisukhinī dadhīcimunisevitā 
+‖ 218 ‖
+
+dadhīciGYānadātrī ca dadhīciguṇadāyinī ❘  
+dadhīcikulasambhūśhā dadhīcibhuktimuktidā 
+‖ 219 ‖
+
+dadhīcikuladevī ca dadhīcikuladevatā ❘  
+dadhīcikulagamyā ca dadhīcikulapūjitā 
+‖ 220 ‖
+
+dadhīcisukhadātrī ca dadhīcidainyahāriṇī ❘  
+dadhīciduḥkhahantrī ca dadhīcikulasundarī 
+‖ 221 ‖
+
+dadhīcikulasambhūtā dadhīcikulapālinī ❘  
+dadhīcidānagamyā ca dadhīcidānamāninī 
+‖ 222 ‖
+
+dadhīcidānasantuśhṭā dadhīcidānadevatā ❘  
+dadhīcijayasamprītā dadhīcijapamānasā 
+‖ 223 ‖
+
+dadhīcijapapūjāḍhyā dadhīcijapamālikā ❘  
+dadhīcijapasantuśhṭā dadhīcijapatośhiṇī 
+‖ 224 ‖
+
+dadhīcitapasārādhyā dadhīciśubhadāyinī ❘  
+dūrvā dūrvādalaśyāmā durvādalasamadyutiḥ 
+‖ 225 ‖
+
+phalaśruti  
+nāmnāṃ sahastraṃ durgāyā dādīnāmiti kīrtitam ❘  
+yaḥ paṭhet sādhakādhīśaḥ sarvasiddhirlabhattu saḥ 
+‖ 226 ‖
+
+prātarmadhyāhnakāle ca sandhyāyāṃ niyataḥ śuciḥ ❘  
+tathā'rdharātrasamaye sa maheśa ivāparaḥ 
+‖ 227 ‖
+
+śaktiyukto mahārātrau mahāvīraḥ prapūjayet ❘  
+mahādevīṃ makārādyaiḥ pañcabhirdravyasattamaiḥ 
+‖ 228 ‖
+
+yaḥ sampaṭhet stutimimāṃ sa ca siddhisvarūpadhṛk ❘  
+devālaye ś^maśāne ca gaṅgātīre nije gṛhe 
+‖ 229 ‖
+
+vārāṅganāgṛhe caiva śrīguroḥ saṃnidhāvapi ❘  
+parvate prāntare ghore stotrametat sadā paṭhet 
+‖ 230 ‖
+
+durgānāmasahastraṃ hi durgāṃ paśyati cakśhuśhā ❘  
+śatāvartanametasya puraścaraṇamucyate 
+‖ 231 ‖
+
+
+‖ iti kulārṇavatantroktaṃ dakārādi śrīdurgāsahasranāmastotraṃ sampūrṇam ‖
+
+### PlainEnglish
+
+#### dakaaraadi shree durgaa sahasra naama stotram
+
+shreegaNeshaaya namaH ❘  
+shreedevyuvaaca ❘  
+mama naamasahasraM ca shivapoorvavinirmitam ❘  
+tatpaThyataaM vidhaanena tadaa sarvaM bhavishhyati 
+‖ 1 ‖
+
+ityuktvaa paarvatee devee shraavayaamaasa taccataan ❘  
+tadeva naama saahasraM dakaaraadi varaanane 
+‖ 2 ‖
+
+rogadaaridrya daurbhaagyashokaduHkhavinaashakam ❘  
+sarvaasaaM poojitaM naama shreedurgaadevataa mataa 
+‖ 3 ‖
+
+nijabeejaM bhaved beejaM mantraM keelakamucyate ❘  
+sarvaashaapooraNe devi viniyogaH prakeerttitaH 
+‖ 4 ‖
+
+oM asya shreedakaaraadidurgaasahasranaamastotrasya ❘  
+shiva RRishhiH, anushhTup ChandaH,  
+shreedurgaadevataa, duM beejaM, duM keelakaM,  
+duHkhadaaridryarogashokanivRRittipoorvakaM  
+caturvargaphalapraaptyarthe paaThe viniyogaH ❘  
+dhyaanam  
+oM vidyuddaamasamaprabhaaM mRRigapatiskandhasthitaaM bheeshhaNaaM   
+kanyaabhiH karavaalakheTavilasaddhastaabhiraasevitaam ❘  
+hastaishcakragadaasikheTavishikhaaMshcaapaM guNaM tarjaneeM   
+bibhraaNaamanalaatmikaaM shashidharaaM durgaaM trinetraaM bhaje ‖
+
+duM durgaa durgatiharaa durgaacalanivaasinee ❘  
+durgamaargaanusaMcaaraa durgamaarganivaasinee 
+‖ 1 ‖
+
+durgamaargapravishhTaa ca durgamaargapraveshinee ❘  
+durgamaargakRRitaavaasaa durgamaargajayapriyaa 
+‖ 2 ‖
+
+durgamaargagRRiheetaarcaa durgamaargasthitaatmikaa ❘  
+durgamaargastutiparaa durgamaargasmRRitiparaa 
+‖ 3 ‖
+
+drugamaargasadaasthaalee durgamaargaratipriyaa ❘  
+durgamaargasthalasthaanaa durgamaargavilaasinee 
+‖ 4 ‖
+
+durgamaargatyaktavastraa durgamaargapravartinee ❘  
+durgaasuranihantree na durgaasuranishhoodinee
+‖ 5 ‖
+
+durgaasarahara dootee durgaasuravinaashinee ❘  
+durgaasuravadh.onmattaa durgaasuravadh.otsukaa 
+‖ 6 ‖
+
+durgaasuravadh.otsaahaa durgaasuravadh.odyataa ❘  
+durgaasuravadhaprepsurdugaasuramakhaantakRRit 
+‖ 7 ‖
+
+durgaasuradhvaMsat.oshhaa durgadaanavadaariNee ❘  
+durgavidraavaNakaree durgavidraavaNee sadaa 
+‖ 8 ‖
+
+durgavikshh.obhaNakaree durgasheershhanikRRintinee ❘  
+durgavidhvaMsanakari durgadaityanikRRintinee 
+‖ 9 ‖
+
+durgadaityapraaNaharaa durgadaityaantakaariNee ❘  
+durgadaityaharatraatree durgadaityaasRRigunmadaa 
+‖ 1o ‖
+
+durgadaityaashanakaree durgacarmaambaraavRRitaa ❘  
+durgayuddh.otsavakaree durgayuddhavishaaradaa 
+‖ 11 ‖
+
+durgayuddhaasavarataa durgayuddhavimardinee ❘  
+durgayuddhahaasyarataa durgayuddhaaTTahaasinee 
+‖ 12 ‖
+
+durgayuddhamahaamattaa durgayuddhaanusaariNee ❘  
+durgayuddh.otsav.otsaahaa durgadeshanishheviNee 
+‖ 13 ‖
+
+durgadeshavaasarataa durgadeshavilaasinee ❘  
+durgadeshaarcanarataa durgadeshajanapriyaa 
+‖ 14 ‖
+
+durgamasthaanasaMsthaanaa durgamadhyaanusaadhanaa ❘  
+durgamaa durgamadhyaanaa durgamaatmasvaroopiNee 
+‖ 15 ‖
+
+durgamaagamasaMdhaanaa durgamaagamasaMstutaa ❘  
+durgamaagamadurgnyeyaa durgamashrutisammataa 
+‖ 16 ‖
+
+durgamashrutimaanyaa ca durgamashrutipoojitaa ❘  
+durgamashrutisupreetaa durgamashrutiharshhadaa 
+‖ 17 ‖
+
+durgamashrutisaMsthaanaa durgamashrutimaanitaa ❘  
+durgamaacaarasaMtushhTaa durgamaacaarat.oshhitaa 
+‖ 18 ‖
+
+durgamaacaaranirvRRittaa durgamaacaarapoojitaa ❘  
+durgamaacaarakalitaa durgamasthaanadaayinee 
+‖ 19 ‖
+
+durgamapremanirataa durgamadraviNapradaa ❘  
+durgamaambujamadhyasthaa durgamaambujavaasinee 
+‖ 2o ‖
+
+durganaaDeemaargagatirdurganaaDeepracaariNee ❘  
+durganaaDeepadmarataa durganaaDyambujaasthitaa 
+‖ 21 ‖
+
+durganaaDeegataayaataa durganaaDeekRRitaaspadaa ❘  
+durganaaDeeratarataa durganaaDeeshasaMstutaa 
+‖ 22 ‖
+
+durganaaDeeshvararataa durganaaDeeshacumbitaa ❘  
+durganaaDeeshakr.oDasthaa durganaaDyutthit.otsukaa 
+‖ 23 ‖
+
+durganaaDyaar.ohaNaa ca durganaaDeenishhevitaa ❘  
+daristhaanaa daristhaanavaasinee danujaantakRRit 
+‖ 24 ‖
+
+dareekRRitatapasyaa ca dareekRRitaharaarcanaa ❘  
+dareejaapitadishhTaa ca dareekRRitaratikriyaa 
+‖ 25 ‖
+
+dareekRRitaharaarhaa ca dareekreeDitaputrikaa ❘  
+dareesaMdarshanarataa dareer.opitavRRishcikaa 
+‖ 26 ‖
+
+dareeguptikautukaaDhyaa dareebhramaNatatparaa ❘  
+danujaantakaree deenaa danusaMtaanadaariNee 
+‖ 27 ‖
+
+danujadhvaMsinee doonaa danujendravinaashinee ❘  
+daanavadhvaMsinee devee daanavaanaaM bhayaMkaree 
+‖ 28 ‖
+
+daanavee daanavaaraadhyaa daanavendravarapradaa ❘  
+daanavendranihantree ca daanavadveshhiNee satee 
+‖ 29 ‖
+
+daanavaaripremarataa daanavaariprapoojitaa ❘  
+daanavarikRRitaarcaa ca daanavaarivibhootidaa 
+‖ 3o ‖
+
+daanavaarimahaanandaa daanavaariratipriyaa ❘  
+daanavaaridaanarataa daanavaarikRRitaaspadaa 
+‖ 31 ‖
+
+daanavaaristutirataa daanavaarismRRitipriyaa ❘  
+daanavaaryaahaararataa daanavaariprab.odhinee 
+‖ 32 ‖
+
+daanavaaridhRRitapremaa duHkhash.okavim.ocinee ❘  
+duHkhahantree duHkhadatree duHkhanirmoolakaariNee 
+‖ 33 ‖
+
+duHkhanirmoolanakaree duHkhadaaryarinaashinee ❘  
+duHkhaharaa duHkhanaashaa duHkhagraamaa duraasadaa 
+‖ 34 ‖
+
+duHkhaheenaa duHkhadhaaraa draviNaacaaradaayinee ❘  
+draviN.otsargasaMtushhTaa draviNatyaagat.oshhikaa 
+‖ 35 ‖
+
+draviNasparshasaMtushhTaa draviNasparshamaanadaa ❘  
+draviNasparshaharshhaaDhyaa draviNasparshatushhTidaa 
+‖ 36 ‖
+
+draviNasparshanakaree draviNasparshanaaturaa ❘  
+draviNasparshan.otsaahaa draviNasparshasaadhikaa 
+‖ 37 ‖
+
+draviNasparshanamataa draviNasparshaputrikaa ❘  
+draviNasparsharakshhiNee draviNast.omadaayinee 
+‖ 38 ‖
+
+draviNakarshhaNakaree draviNaughavisarjinee ❘  
+draviNaacaladaanaaDhyaa draviNaacalavaasinee 
+‖ 39 ‖
+
+deenamaataa dinabandhurdeenavighnavinaashinee ❘  
+deenasevyaa deenasiddhaa deenasaadhyaa digambaree 
+‖ 4o ‖
+
+deenagehakRRitaanandaa deenagehavilaasinee ❘  
+deenabhaavapremarataa deenabhaavavin.odinee 
+‖ 41 ‖
+
+deenamaanavacetaHsthaa deenamaanavaharshhadaa ❘  
+deenadainyavighaatecChurdeenadraviNadaayinee 
+‖ 42 ‖
+
+deenasaadhanasaMtushhTaa deenadarshanadaayinee ❘  
+deenaputraadidaatree ca deenasampadvidhaayinee 
+‖ 43 ‖
+
+dattaatreyadhyaanarataa dattaatreyaprapoojitaa ❘  
+dattaatreyarshhisaMsiddhaa dattaatreyavibhaavitaa 
+‖ 44 ‖
+
+dattaatreyakRRitaarhaa ca dattaatreyaprasaadhitaa ❘  
+dattaatreyastutaa caiva dattaatreyanutaa sadaa 
+‖ 46 ‖
+
+dattaatreyapremarataa dattaatreyaanumaanitaa ❘  
+dattaatreyasamudgeetaa dattaatreyakuTumbinee 
+‖ 46 ‖
+
+dattaatreyapraaNatulyaa dattaatreyashareeriNee ❘  
+dattaatreyakRRitaanandaa dattaatreyaaMshasambhavaa 
+‖ 47 ‖
+
+dattaatreyavibhootisthaa dattaatreyaanusaariNee ❘  
+dattaatreyageetirataa dattaatreyadhanapradaa 
+‖ 48 ‖
+
+dattaatreyaduHkhaharaa dattaatreyavarapradaa ❘  
+dattaatreyagnyaanadaanee dattaatreyabhayaapahaa 
+‖ 49 ‖
+
+devakanyaa devamaanyaa devaduHkhavinaashinee ❘  
+devasiddhaa devapoojyaa devejyaa devavanditaa 
+‖ 50 ‖
+
+devamaanyaa devadhanyaa devavighnavinaashinee ❘  
+devaramyaa devarataa devakautukatatparaa 
+‖ 51 ‖
+
+devakreeDaa devavreeDaa devavairivinaashinee ❘  
+devakaamaa devaraamaa devadvishhTavinashinee 
+‖ 52 ‖
+
+devadevapriyaa devee devadaanavavanditaa ❘  
+devadevarataanandaa devadevavar.otsukaa 
+‖ 53 ‖
+
+devadevapremarataa devadevapriyaMvadaa ❘  
+devadevapraaNatulyaa devadevanitambinee 
+‖ 54 ‖
+
+devadevaratamanaa devadevasukhaavahaa ❘  
+devadevakr.oDarata devadevasukhapradaa 
+‖ 55 ‖
+
+devadevamahaanandaa devadevapracumbitaa ❘  
+devadev.opabhuktaa ca devadevaanusevitaa 
+‖ 56 ‖
+
+devadevagatapraaNaa devadevagataatmikaa ❘  
+devadevaharshhadaatree devadevasukhapradaa 
+‖ 58 ‖
+
+devadevamahaanandaa devadevavilaasinee ❘  
+devadevadharmapat^nee devadevaman.ogataa 
+‖ 59 ‖
+
+devadevavadhoordevee devadevaarcanapriyaa ❘  
+devadevaangasukhinee devadevaangavaasinee 
+‖ 6o ‖
+
+devadevaangabhooshhaa ca devadevaangabhooshhaNaa ❘  
+devadevapriyakaree devadevaapriyaantakRRit 
+‖ 61 ‖
+
+devadevapriyapraaNaa devadevapriyaatmikaa ❘  
+devadevaarcakapraaNaa devadevaarcakapriyaa 
+‖ 62 ‖
+
+devadevaarcak.otsaahaa devadevaarcakaashrayaa ❘  
+devadevaarcakaavighnaa devadevaprasoorapi 
+‖ 63 ‖
+
+devadevasya jananee devadevavidhaayinee ❘  
+devadevasya ramaNee devadevahradaashrayaa 
+‖ 64 ‖
+
+devadeveshhTadevee ca devataapasapaalinee ❘  
+devataabhaavasaMtushhTaa devataabhaavat.oshhitaa 
+‖ 65 ‖
+
+devataabhaavavaradaa devataabhaavasiddhidaa ❘  
+devataabhaavasaMsiddhaa devataabhaavasambhavaa 
+‖ 66 ‖
+
+devataabhaavasukhinee devataabhaavavanditaa ❘  
+devataabhaavasupreetaa devataabhaavaharshhadaa 
+‖ 67 ‖
+
+devatavighnahantree ca devataadvishhTanaashinee ❘  
+devataapoojitapadaa devataapremat.oshhitaa 
+‖ 68 ‖
+
+devataagaaranilayaa devataasaukhyadaayinee ❘  
+devataanijabhaavaa ca devataahratamaanasaa 
+‖ 69 ‖
+
+devataakRRitapaadaarcaa devataahratabhaktikaa ❘  
+devataagarvamadhyastaa devataadevataatanuH 
+‖ 7o ‖
+
+duM durgaayai nam.o naamnee duM phaNmantrasvaroopiNee ❘  
+dooM nam.o mantraroopaa ca dooM nam.o moortikaatmikaa 
+‖ 71 ‖
+
+dooradarshipriyaadushhTaa dushhTabhootanishhevitaa ❘  
+dooradarshipremarataa dooradarshipriyaMvadaa 
+‖ 72 ‖
+
+dooradarshaisiddhidaatree dooradarshiprat.oshhitaa ❘  
+dooradarshikaNThasaMsthaa dooradarshipraharshhitaa 
+‖ 73 ‖
+
+dooradarshigRRiheetaarcaa duradarhipratarshhitaa ❘  
+dooradarshipraaNatulyaa duradarshisukhapradaa 
+‖ 74 ‖
+
+duradarshibhraantiharaa dooradarshihradaaspadaa ❘  
+dooradarshyarividbhaavaa deerghadarshipram.odinee 
+‖ 75 ‖
+
+deerghadarshipraaNatulyaa duradarshivarapradaa ❘  
+deerghadarshiharshhadaatree deerghadarshipraharshhitaa 
+‖ 76 ‖
+
+deerghadarshimahaanandaa deerghadarshigRRihaalayaa ❘  
+deerghadarshigRRiheetaarcaa deerghadarshihrataarhaNaa 
+‖ 77 ‖
+
+dayaa daanavatee daatree dayaalurdeenavatsalaa ❘  
+dayaardraa ca dayaasheelaa dayaaDhyaa ca dayaatmikaa 
+‖ 78 ‖
+
+dayaambudhirdayaasaaraa dayaasaagarapaaragaa ❘  
+dayaasindhurdayaabhaaraa dayaavatkaruNaakaree 
+‖ 79 ‖
+
+dayaavadvatsalaa devee dayaa daanarataa sadaa ❘  
+dayaavadbhaktisukhinee dayaavatparit.oshhitaa 
+‖ 8o ‖
+
+dayaavatsnehanirataa dayaavatpratipaadikaa❘  
+dayaavatpraaNakartree ca dayaavanmuktidaayinee 
+‖ 81 ‖
+
+dayaavadbhaavasaMtushhTaa dayaavatparit.oshhitaa ❘  
+dayaavattaaraNaparaa dayaavatsiddhidaayinee 
+‖ 82 ‖
+
+dayaavatputravadbhaavaa dayaavatputraroopiNee ❘  
+dayaavadehanilayaa dayaabandhurdayaashrayaa 
+‖ 83 ‖
+
+dayaaluvaatsalyakaree dayaalusiddhidaayinee ❘  
+dayaalusharaNaashaktaa dayaaludehamandiraa 
+‖ 84 ‖
+
+dayaalubhaktibhaavasthaa dayaalupraaNaroopiNee ❘  
+dayaalusukhadaa dambhaa dayaalupremavarshhiNee 
+‖ 85 ‖
+
+dayaaluvashagaa deerghaa dirghaangee deerghal.ocanaa ❘  
+deerghanetraa deerghacakshhurdeerghabaahulataatmikaa 
+‖ 86 ‖
+
+deerghakeshee deerghamukhee deerghagh.oNaa ca daaruNaa ❘  
+daaruNaasurahantree ca daarooNaasuradaariNee 
+‖ 87 ‖
+
+daaruNaahavakartree ca daaruNaahavaharshhitaa ❘  
+daaruNaahavah.omaaDhyaa daaruNaacalanaashinee 
+‖ 88 ‖
+
+daaruNaacaaranirataa daaruN.otsavaharshhitaa ❘  
+daaruN.odyataroopaa ca daaruNaarinivaariNee 
+‖ 89 ‖
+
+daaruNekshhaNasaMyuktaa d.oshcatushhkaviraajitaa ❘  
+dashad.oshhkaa dashabhujaa dashabaahuviraajitaa 
+‖ 9o ‖
+
+dashaastradhaariNee devee dashadikkhyaatavikramaa ❘  
+dasharathaarcitapadaa daasharathipriyaa sadaa 
+‖ 91 ‖
+
+daasharathiprematushhTaa daasharathiratipriyaa ❘  
+daasharathipriyakaree daasharathipriyaMvadaa 
+‖ 92 ‖
+
+daasharatheeshhTasaMdaatree daasharatheeshhTadevataa ❘  
+daasharathidveshhinaashaa daasharathyaanukoolyadaa 
+‖ 93 ‖
+
+daasharathipriyatamaa daasharathiprapoojitaa ❘  
+dashaananaarisampoojyaa dashaananaaridevataa 
+‖ 94 ‖
+
+dashaananaaripramadaa dashaananaarijanmabhooH ❘  
+dashaananaariratidaa dashaananaarisevitaa 
+‖ 95 ‖
+
+dashaananaarisukhadaa dashaananaarivairihrat^^ ❘  
+dashaananaarishhTadevee dashagreevaarivanditaa 
+‖ 96 ‖
+
+dashagreevaarijananee dashagreevaaribhaavinee   
+dashagreevaarisahitaa dashagreevasabhaajitaa 
+‖ 97 ‖
+
+dashagreevaariramaNee dashagreevavadhoorapi ❘  
+dashagreevanaashakartree dashagreevavarapradaa 
+‖ 98 ‖
+
+dashagreevapurasthaa ca dashagreevavadh.otsukaa ❘  
+dashagreevapreetidaatree dashagreevavinaashinee 
+‖ 99 ‖
+
+dashagreevaahavakaree dashagreevaanapaayinee ❘  
+dashagreevapriyaa vandyaa dashagreevahrataa tathaa 
+‖ 1oo ‖
+
+dashagreevaahitakaree dashagreeveshvarapriyaa ❘  
+dashagreeveshvarapraaNaa dashagreevavarapradaa 
+‖ 1o1 ‖
+
+dashagreeveshvararataa dashavarshheeyakanyakaa ❘  
+dashavarshheeyabaalaa ca dashavarshheeyavaasinee 
+‖ 1o2 ‖
+
+dashapaapaharaa damyaa dashahastavibhooshhitaa ❘  
+dashashastralasadd.oshhkaa dashadikpaalavanditaa 
+‖ 1o3 ‖
+
+dashaavataararoopaa ca dashaavataararoopiNee ❘  
+dashavidyaabhinnadevee dashapraaNasvaroopiNee 
+‖ 1o4 ‖
+
+dashavidyaasvaroopaa ca dashavidyaamayee tathaa ❘  
+dRRiksvaroopaa dRRikpradaatree dRRigroopaa dRRikprakaashinee 
+‖ 1o5 ‖
+
+digantaraa digantaHsthaa digambaravilaasinee ❘  
+digambarasamaajasthaa digambaraprapoojitaa 
+‖ 1o6 ‖
+
+digambarasahacaree digambarakRRitaaspadaa ❘  
+digambarahrataacittaa digambarakathaapriyaa 
+‖ 1o7 ‖
+
+digambaraguNarataa digambarasvaroopiNee ❘  
+digambarashir.odhaaryaa digambarahrataashrayaa 
+‖ 1o8 ‖
+
+digambarapremarataa digambararataaturaa ❘  
+digambareesvaroopaa ca digambareegaNaarcitaa 
+‖ 1o9 ‖
+
+digambareegaNapraaNaa digambareegaNapriyaa ❘  
+digambareegaNaaraadhyaa digambaragaNeshvaraa 
+‖ 11o ‖
+
+digambaragaNasparshamadiraapaanavihvalaa ❘  
+digambareek.oTivRRitaa digambareegaNaavRRitaa 
+‖ 111 ‖
+
+durantaa dushhkRRitiharaa durdhyeyaa duratikramaa ❘  
+durantadaanavadveshhTree durantadanujaantakRRit^^ 
+‖ 112 ‖
+
+durantapaapahantree ca dastranistaarakaariNee ❘  
+dastramaanasasaMsthaanaa dastragnyaanavivardhinee 
+‖ 113 ‖
+
+dastrasambh.ogajananee dastrasambh.ogadaayinee ❘  
+dastrasambh.ogabhavanaa dastravidyaavidhaayinee
+‖ 114 ‖
+
+dastr.odvegaharaa dastrajananee dastrasundaree ❘  
+dstrabhaktividhaagnyaanaa dastradvishhTavinaashinee 
+‖ 115 ‖
+
+dastraapakaaradamanee dastrasiddhividhaayinee ❘  
+dastrataaraaraadhikaa ca dastramaatRRiprapoojitaa 
+‖ 116 ‖
+
+dastradainyaharaa caiva dastrataatanishhevitaa ❘  
+dastrapitRRishatajy.otirdastrakaushaladaayinee 
+‖ 117 ‖
+
+dashasheershhaarisahitaa dashasheershhaarikaaminee ❘  
+dashasheershhapuree devee dashasheershhasabhaajitaa 
+‖ 118 ‖
+
+dashasheershhaarisupreetaa dashasheershhavadhupriyaa ❘  
+dashasheershhashirash^Chetree dashasheershhanitambinee 
+‖ 119 ‖
+
+dashasheershhaharapraaNaa dashashirshhaharaatmikaa ❘  
+dashashirshhaharaaraadhyaa dashasheershhaarivanditaa 
+‖ 12o ‖
+
+dashasheershhaarisukhadaa dashasheershhakapaalinee ❘  
+dashasheershhagnyaanadaatree dashasheershhaarigehinee 
+‖ 121 ‖
+
+dashasheershhavadh.opaattashreeraamacandraroopataa ❘  
+dashasheershharaashhTradevee dashasheershhaarisaariNee 
+‖ 122 ‖
+
+dashasheershhabhraatRRitushhTaa dashasheershhavadhoopriyaa ❘  
+dashasheershhavadhoopraaNaa dashasheershhavadhoorataa 
+‖ 123 ‖
+
+daityagururataa saadhvee daityaguruprapoojitaa ❘  
+daityaguroopadeshhTree ca daityagurunishhevitaa 
+‖ 124 ‖
+
+daityagurumatapraaNaa daityagurutaapanaashinee ❘  
+durantaduHkhashamanee durantadamanee tamee 
+‖ 125 ‖
+
+durantash.okashamanee durantar.oganaashinee ❘  
+durantavairidamanee durantadaityanaashinee 
+‖ 126 ‖
+
+durantakalushhaghnee ca dushhkRRitist.omanaashinee ❘  
+duraashayaa duraadhaaraa durjayaa dushhTakaaminee 
+‖ 127 ‖
+
+darshaneeyaa ca dRRishyaa caa.adRRishyaa ca dRRishhTig.ocaraa ❘  
+dooteeyaagapriyaa dutee dooteeyaagakarapriyaa 
+‖ 128 ‖
+
+duteeyaagakaraanandaa dooteeyaagasukhapradaa ❘  
+dooteeyaagakaraayaataa duteeyaagapram.odinee 
+‖ 129 ‖
+
+durvaasaHpoojitaa caiva durvaas.omunibhaavitaa ❘  
+durvaas.o.arcitapaadaa ca durvaas.omaunabhaavitaa 
+‖ 13o ‖
+
+durvaas.omunivandyaa ca durvaas.omunidevataa ❘  
+durvaas.omunimaataa ca durvaas.omunisiddhidaa 
+‖ 131 ‖
+
+durvaas.omunibhaavasthaa durvaas.omunisevitaa ❘  
+durvaas.omunicittasthaa durvaas.omunimaNDitaa 
+‖ 132 ‖
+
+durvaas.omunisaMcaaraa durvaas.ohradayangamaa ❘  
+durvaas.ohradayaaraadhyaa durvaas.ohratsar.ojagaa 
+‖ 133 ‖
+
+durvaasastaapasaaraadhyaa durvaasastaapasaashrayaa ❘  
+durvaasastaapasarataa durvaasastaapaseshvaree 
+‖ 134 ‖
+
+durvaas.omunikanyaa ca durvaas.o.adbhutasiddhidaa ❘  
+dararaatree daraharaa darayuktaa daraapahaa 
+‖ 135 ‖
+
+daraghnee darahantree ca darayuktaa daraashrayaa ❘  
+darasmeraa darapaangee dayaadaatree dayaashrayaa 
+‖ 136 ‖
+
+dastrapoojyaa dastramaataa dastradevee dar.onmadaa ❘  
+dastrasiddhaa dastrasaMsthaa dastrataapavim.ocinee 
+‖ 137 ‖
+
+dastrakshh.obhaharaa nityaa dastral.okagataatmikaa ❘  
+daityagurvanganaavandyaa daityagurvanganaapriyaa 
+‖ 138 ‖
+
+daityagurvanganaavandyaa daityagurvangan.otsukaa ❘  
+daityagurupriyatamaa devagurunishhevitaa 
+‖ 139 ‖
+
+devaguruprasooroopaa devagurukRRitaarhaNaa ❘  
+devagurupremayutaa devagurvanumaanitaa 
+‖ 14o ‖
+
+devaguruprabhaavagnyaa devagurusukhapradaa ❘  
+devagurugnyaanadaatree devaguroopram.odinee 
+‖ 141 ‖
+
+daityastreegaNasampoojyaa daityastreegaNapoojitaa ❘  
+daityastreegaNaroopaa ca daityastreecittahaariNee 
+‖ 142 ‖
+
+devastreegaNapoojyaa ca devastreegaNavanditaa ❘  
+devastreegaNacittasthaa devastreegaNabhooshhitaa 
+‖ 143 ‖
+
+devastreegaNasaMsiddhaa devastreegaNat.oshhitaa ❘  
+devastreegaNahastasthacaarucaamaraveejitaa 
+‖ 144 ‖
+
+devastreegaNahastasthacaarugandhavilepitaa ❘  
+devaanganaadhRRitaadarshadRRishhTyarthamukhacandramaa 
+‖ 145 ‖
+
+devaangan.otsRRishhTanaagavalleedalakRRit.otsukaa ❘  
+devastreegaNahastasthadipamaalaavil.okanaa 
+‖ 146 ‖
+
+devastreegaNahastasthadhoopaghraaNavin.odinee ❘  
+devanaareekaragatavaasakaasavapaayinee 
+‖ 147 ‖
+
+devanaareekankatikaakRRitakeshanimaarjanaa ❘  
+devanaareesevyagaatraa devanaareekRRit.otsukaa 
+‖ 148 ‖
+
+devanaariviracitapushhpamaalaaviraajitaa ❘  
+devanaareevicitrangee devastreedattabh.ojanaa ❘  
+devastreegaNageetaa ca devastreegeetas.otsukaa ❘  
+devastreenRRityasukhinee devastreenRRityadarshinee 
+‖ 15o ‖
+
+devastreey.ojitalasadratnapaadapadaambujaa ❘  
+devastreegaNavisteerNacaarutalpanishhedushhee 
+‖ 151 ‖
+
+devanaareecaarukaraakalitaaMghryaadidehikaa ❘  
+devanaareekaravyagrataalavRRindamarutsukaa 
+‖ 152 ‖
+
+devanaareeveNuveeNaanaadas.otkaNThamaanasaa ❘  
+devak.oTistutinutaa devak.oTikRRitaarhaNaa 
+‖ 153 ‖
+
+devak.oTigeetaguNaa devak.oTikRRitastutiH ❘  
+dantadashhTy.odvegaphalaa devak.olaahalaakulaa 
+‖ 154 ‖
+
+dveshharaagaparityaktaa dveshharaagavivarjitaa ❘  
+daamapoojyaa daamabhooshhaa daam.odaravilaasinee 
+‖ 155 ‖
+
+daam.odarapremarataa daam.odarabhaginyapi ❘  
+daam.odaraprasoordaam.odarapat^neepativrataa 
+‖ 156 ‖
+
+daam.odaraa.abhinnadehaa daam.odararatipriyaa ❘  
+daam.odaraa.abhinnatanurdaam.odarakRRitaaspadaa 
+‖ 157 ‖
+
+daam.odarakRRitapraaNaa daam.odaragataatmikaa ❘  
+daam.odarakautukaaDhyaa daam.odarakalaakalaa 
+‖ 158 ‖
+
+daam.odaraalingitaangee daam.odarakutuhalaa ❘  
+daam.odarakRRitaahlaadaa daam.odarasucumbitaa 
+‖ 159 ‖
+
+daam.odarasutaakRRishhTaa daam.odarasukhapradaa ❘  
+daam.odarasahaaDhyaa ca daam.odarasahaayinee 
+‖ 16o ‖
+
+daam.odaraguNagnyaa ca daam.odaravarapradaa ❘  
+daam.odaraanukoolaa ca daam.odaranitambinee 
+‖ 161 ‖
+
+daam.odarabalakreeDaakushalaa darshanapriyaa ❘  
+daam.odarajalakreeDaatyaktasvajanasauhradaa 
+‖ 162 ‖
+
+dam.odaralasadraasakelikautukinee tathaa ❘  
+daam.odarabhraatRRikaa ca daam.odaraparaayaNaa 
+‖ 163 ‖
+
+daam.odaradharaa daam.odaravairavinaashinee ❘  
+daam.odar.opajaayaa ca daam.odaranimantritaa 
+‖ 164 ‖
+
+daam.odaraparaabhootaa daam.odaraparaajitaa ❘  
+daam.odarasamaakraantaa daam.odarahataashubhaa 
+‖ 165 ‖
+
+daam.odar.otsavarataa daam.odar.otsavaavahaa ❘  
+daam.odarastanyadaatree daam.odaragaveshhitaa 
+‖ 166 ‖
+
+damayanteesiddhidaatree damayanteeprasaadhitaa ❘  
+dayamanteeshhTadevee ca damayanteesvaroopiNee 
+‖ 167 ‖
+
+damayanteekRRitaarcaa ca damanarshhivibhaavitaa ❘  
+damanarshhipraaNatulyaa damanarshhisvaroopiNee 
+‖ 168 ‖
+
+damanarshhisvaroopaa ca dambhapooritavigrahaa ❘  
+dambhahantree dambhadhaatree dambhal.okavim.ohinee 
+‖ 169 ‖
+
+dambhasheelaa dambhaharaa dambhavatparimardinee ❘  
+dambharoopaa dambhakaree dambhasaMtaanadaariNee 
+‖ 17o ‖
+
+dattam.okshhaa dattadhanaa dattaar.ogyaa ca daambhikaa ❘  
+dattaputraa dattadaaraa dattahaaraa ca daarikaa 
+‖ 171 ‖
+
+dattabh.ogaa dattash.okaa dattahastyaadivaahanaa ❘  
+dattamatirdattabhaaryaa dattashaastraavab.odhikaa 
+‖ 172 ‖
+
+dattapaanaa dattadaanaa dattadaaridryanaashinee ❘  
+dattasaudhaavaneevaasaa dattasvargaa ca daasadaa 
+‖ 173 ‖
+
+daasyatushhTa daasyaharaa daasadaaseeshatapradaa ❘  
+daararoopaa daaravaasa daaravaasihradaaspadaa 
+‖ 174 ‖
+
+daaravaasijanaaraadhyaa daaravaasijanapriyaa ❘  
+daaravaasivinirneetaa daaravaasisamarcitaa 
+‖ 175 ‖
+
+daaravaasyaahratapraaNaa daaravaasyarinaashinee ❘  
+daaravaasivighnaharaa daaravaasivimuktidaa 
+‖ 176 ‖
+
+daaraagniroopiNee daaraa daarakaaryarinaashinee ❘  
+dampatee dampateeshhTaa ca dampateepraaNaroopikaa 
+‖ 177 ‖
+
+dampateesnehanirataa daampatyasaadhanapriyaa ❘  
+daampatyasukhasenaa ca daampatyasukhadaayinee 
+‖ 178 ‖
+
+dampatyaacaaranirataa dampatyaam.odam.oditaa ❘  
+dampatyaam.odasukhinee daampatyaahladakaariNee 
+‖ 179 ‖
+
+dampateeshhTapaadapadmaa daampatyapremaroopiNee ❘  
+daampatyabh.ogabhavanaa daaDimeephalabh.ojinee 
+‖ 18o ‖
+
+daaDimeephalasaMtushhTaa daaDimeephalamaanasaa ❘  
+daaDimeevRRikshhasaMsthaanaa daaDimeevRRikshhavaasinee 
+‖ 181 ‖
+
+daaDimeevRRikshharoopaa ca daaDimeevanavaasinee ❘  
+daaDimeephalasaamy.orupay.odharasamanvitaa 
+‖ 182 ‖
+
+dakshhiNaa dakshhiNaaroopaa dakshhiNaaroopadhaariNee ❘  
+dakshhakanyaa dakshhaputree dakshhamaataa ca dakshhasooH 
+‖ 183 ‖
+
+dakshhag.otraa dakshhasutaa dakshhayagnyavinaashinee ❘  
+dakshhayagnyanaashakartree dakshhayagnyaantakaariNee 
+‖ 184 ‖
+
+dakshhaprasootirdakshhejyaa dakshhavaMshaikapaavanee ❘  
+dakshhaatmaja dakshhasoonoordakshhajaa dakshhajaatikaa 
+‖ 185 ‖
+
+dakshhajanmaa dakshhajanurdakshhadehasamudbhavaa ❘  
+dakshhajanirdakshhayaagadhvaMsinee dakshhakanyakaa 
+‖ 186 ‖
+
+dakshhiNaacaaranirataa dakshhiNaacaaratushhTidaa ❘  
+dakshhiNaacaarasaMsiddhaa dakshhiNaacaarabhaavitaa 
+‖ 187 ‖
+
+dakshhiNaacaarasukhinee dakshhiNaacaarasaadhitaa ❘  
+dakshhiNaacaaram.okshhaaptirdakshhiNaacaaravanditaa 
+‖ 188 ‖
+
+dakshhiNaacaarasharaNaa dakshhiNaacaaraharshhitaa ❘  
+dvaarapaalapriyaa dvaaravaasinee dvaarasaMsthitaa 
+‖ 189 ‖
+
+dvaararoopaa dvaarasaMsthaa dvaaradeshanivaasinee ❘  
+dvaarakaree dvaaradhaatree d.oshhamaatravivarjitaa 
+‖ 19o ‖
+
+d.oshhaakaraa d.oshhaharaa d.oshharaashivinaashinee ❘  
+d.oshhaakaravibhooshhaaDhyaa d.oshhaakarakapalinee 
+‖ 191 ‖
+
+d.oshhaakarasahastraabhaa d.oshhaakarasamaananaa ❘  
+d.oshhaakaramukhee divyaa d.oshhaakarakaraagrajaa 
+‖ 192 ‖
+
+d.oshhaakarasamajy.otird.oshhaakarasusheetalaa ❘  
+d.oshhaakarashreNee d.oshhasadRRishaapaangaveekshhaNaa 
+‖ 193 ‖
+
+d.oshhaakareshhTadevee ca d.oshhaakaranishhevitaa ❘  
+d.oshhaakarapraaNaroopaa d.oshhaakaramareecikaa 
+‖ 194 ‖
+
+d.oshhaakar.ollasadbhaalaa d.oshhaakarasuharshhiNee ❘  
+d.oshhakarashir.obhooshhaa d.oshhakaravadhoopriyaa 
+‖ 195 ‖
+
+d.oshhaakaravadhoopraaNaa d.oshhaakaravadhoomataa ❘  
+d.oshhaakaravadhoopreetaa d.oshhaakaravadhoorapi 
+‖ 196 ‖
+
+d.oshhaapoojyaa tathaa d.oshhaapoojitaa d.oshhahaariNee ❘  
+d.oshhaajaapamahaanandaa d.oshhaajapaparaayaNaa 
+‖ 197 ‖
+
+d.oshhaapurashcaararataa d.oshhaapoojakaputriNee ❘  
+d.oshhaapoojakavaatsalyakariNee jagadambikaa 
+‖ 198 ‖
+
+d.oshhaapoojakavairighnee d.oshhaapoojakavighnahrat ❘  
+d.oshhaapoojakasaMtushhTaa d.oshhaapoojakamuktidaa 
+‖ 199 ‖
+
+damaprasoonasampoojyaa damapushhpapriyaa sadaa ❘  
+dury.odhanaprapoojyaa ca duHshasanasamarcitaa 
+‖ 2oo ‖
+
+daNDapaaNipriyaa daNDapaaNimaataa dayaanidhiH ❘  
+daNDapaaNisamaaraadhyaa daNDapaaNiprapoojitaa 
+‖ 2o1 ‖
+
+daNDapaaNigRRihaasaktaa daNDapaaNipriyaMvadaa ❘  
+daNDapaaNipriyatamaa daNDapaaNiman.oharaa 
+‖ 2o2 ‖
+
+daNDapaaNihratapraaNaa daNDapaaNisusiddhidaa ❘  
+daNDapaaNiparaamRRishhTaa daNDapaaNipraharshhitaa 
+‖ 2o3 ‖
+
+daNDapaaNivighnaharaa daNDapaaNishir.odhRRitaa ❘  
+daNDapaaNipraaptacaryaa daNDapaaNyunmukhi sadaa 
+‖ 2o4 ‖
+
+daNDapaaNipraaptapadaa daNDapaaNivar.onmukhee ❘  
+daNDahastaa daNDapaaNirdNDabaahurdaraantakRRit 
+‖ 2o5 ‖
+
+daNDad.oshhkaa daNDakaraa daNDacittakRRitaaspadaa ❘  
+daNDividyaa daNDimaataa daNDikhaNDakanaashinee 
+‖ 2o6 ‖
+
+daNDipriyaa daNDipoojyaa daNDisaMt.oshhadaayinee ❘  
+dasyupoojyaa dasyurataa dasyudraviNadaayinee 
+‖ 2o7 ‖
+
+dasyuvargakRRitaarhaa ca dasyuvargavinaashinee ❘  
+dasyunirNaashinee dasyukulanirNaashinee tathaa 
+‖ 2o8 ‖
+
+dasyupriyakaree dasyunRRityadarshanatatparaa ❘  
+dushhTadaNDakaree dushhTavargavidraaviNee tathaa 
+‖ 2o9 ‖
+
+dushhTavarganigrahaarhaa dooshakapraaNanaashinee ❘  
+dooshhak.ottaapajananee dooshhakaarishhTakaariNee 
+‖ 21o ‖
+
+dooshhakadveshhaNakaree daahikaa dahanaatmikaa ❘  
+daarukaarinihantree ca daarukeshvarapoojitaa 
+‖ 211 ‖
+
+daarukeshvaramaataa ca daarukeshvaravanditaa ❘  
+darbhahastaa darbhayutaa darbhakarmavivarjitaa 
+‖ 212 ‖
+
+darbhamayee darbhatanurdarbhasarvasvaroopiNee ❘  
+darbhakarmaacaararataa darbhahastakRRitaarhaNaa 
+‖ 213 ‖
+
+darbhaanukoolaa daambharyaa darveepaatraanudaaminee ❘  
+damagh.oshhaprapoojyaa ca damagh.oshhavarapradaa 
+‖ 214 ‖
+
+damagh.oshhasamaaraadhyaa daavaagniroopiNee tathaa ❘  
+daavaagniroopaa daavaagninirNaashitamahaabalaa 
+‖ 215 ‖
+
+dantadaMshhTraasurakalaa dantacarcitahastikaa ❘  
+dantadaMshhTrasyandana ca dantanirNaashitaasuraa 
+‖ 216 ‖
+
+dadhipoojyaa dadhipreetaa dadheecivaradaayinee ❘  
+dadheeceeshhTadevataa ca dadheecim.okshhadaayinee 
+‖ 217 ‖
+
+dadheecidainyahantree ca dadheecidaradaariNee ❘  
+dadheecibhaktisukhinee dadheecimunisevitaa 
+‖ 218 ‖
+
+dadheecignyaanadaatree ca dadheeciguNadaayinee ❘  
+dadheecikulasambhooshhaa dadheecibhuktimuktidaa 
+‖ 219 ‖
+
+dadheecikuladevee ca dadheecikuladevataa ❘  
+dadheecikulagamyaa ca dadheecikulapoojitaa 
+‖ 220 ‖
+
+dadheecisukhadaatree ca dadheecidainyahaariNee ❘  
+dadheeciduHkhahantree ca dadheecikulasundaree 
+‖ 221 ‖
+
+dadheecikulasambhootaa dadheecikulapaalinee ❘  
+dadheecidaanagamyaa ca dadheecidaanamaaninee 
+‖ 222 ‖
+
+dadheecidaanasaMtushhTaa dadheecidaanadevataa ❘  
+dadheecijayasampreetaa dadheecijapamaanasaa 
+‖ 223 ‖
+
+dadheecijapapoojaaDhyaa dadheecijapamaalikaa ❘  
+dadheecijapasaMtushhTaa dadheecijapat.oshhiNee 
+‖ 224 ‖
+
+dadheecitapasaaraadhyaa dadheecishubhadaayinee ❘  
+doorvaa doorvaadalashyaamaa durvaadalasamadyutiH 
+‖ 225 ‖
+
+phalashruti  
+naamnaaM sahastraM durgaayaa daadeenaamiti keertitam ❘  
+yaH paThet saadhakaadheeshaH sarvasiddhirlabhattu saH 
+‖ 226 ‖
+
+praatarmadhyaahnakaale ca saMdhyaayaaM niyataH shuciH ❘  
+tathaa.ardharaatrasamaye sa mahesha ivaaparaH 
+‖ 227 ‖
+
+shaktiyukt.o mahaaraatrau mahaaveeraH prapoojayet ❘  
+mahaadeveeM makaaraadyaiH pancabhirdravyasattamaiH 
+‖ 228 ‖
+
+yaH sampaThet stutimimaaM sa ca siddhisvaroopadhRRik ❘  
+devaalaye sh^mashaane ca gangaateere nije gRRihe 
+‖ 229 ‖
+
+vaaraanganaagRRihe caiva shreegur.oH saMnidhaavapi ❘  
+parvate praantare gh.ore st.otrametat sadaa paThet 
+‖ 230 ‖
+
+durgaanaamasahastraM hi durgaaM pashyati cakshhushhaa ❘  
+shataavartanametasya purashcaraNamucyate 
+‖ 231 ‖
+
+
+‖ iti kulaarNavatantr.oktaM dakaaraadi shreedurgaasahasranaamast.otraM sampoorNam ‖
+

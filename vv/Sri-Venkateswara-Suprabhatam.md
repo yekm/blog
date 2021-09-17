@@ -2464,3 +2464,351 @@ devotional culture and fervour. God, give us your grace.
 ప్రజ్ఞాం పరార్థ సులభాం పరమాం ప్రసూతే ‖ 29 ‖  
 
 
+### English
+
+#### śrī veṅkaṭeśvara suprabhātam
+
+kausalyā suprajā rāma pūrvāsandhyā pravartate ❘  
+uttiśhṭha naraśārdūla kartavyaṃ daivamāhnikam 
+‖ 1 ‖
+
+uttiśhṭhottiśhṭha govinda uttiśhṭha garuḍadhvaja ❘  
+uttiśhṭha kamalākānta trailokyaṃ maṅgaḻaṃ kuru 
+‖ 2 ‖
+
+mātassamasta jagatāṃ madhukaiṭabhāreḥ  
+vakśhovihāriṇi manohara divyamūrte ❘  
+śrīsvāmini śritajanapriya dānaśīle  
+śrī veṅkaṭeśa dayite tava suprabhātam 
+‖ 3 ‖
+
+tava suprabhātamaravinda lochane  
+bhavatu prasannamukha chandramaṇḍale ❘  
+vidhi śaṅkarendra vanitābhirarchite  
+vṛśa śailanātha dayite dayānidhe 
+‖ 4 ‖
+
+atryādi sapta ṛśhayassamupāsya sandhyāṃ  
+ākāśa sindhu kamalāni manoharāṇi ❘  
+ādāya pādayuga marchayituṃ prapannāḥ  
+śeśhādri śekhara vibho tava suprabhātam 
+‖ 5 ‖
+
+pañchānanābja bhava śhaṇmukha vāsavādyāḥ  
+traivikramādi charitaṃ vibudhāḥ stuvanti ❘  
+bhāśhāpatiḥ paṭhati vāsara śuddhi mārāt  
+śeśhādri śekhara vibho tava suprabhātam 
+‖ 6 ‖
+
+īśat-praphulla sarasīruha nārikeḻa  
+pūgadrumādi sumanohara pālikānām ❘  
+āvāti mandamanilaḥ sahadivya gandhaiḥ  
+śeśhādri śekhara vibho tava suprabhātam 
+‖ 7 ‖
+
+unmīlyanetra yugamuttama pañjarasthāḥ  
+pātrāvasiśhṭa kadalī phala pāyasāni ❘  
+bhuktvāḥ salīla mathakeḻi śukāḥ paṭhanti  
+śeśhādri śekhara vibho tava suprabhātam 
+‖ 8 ‖
+
+tantrī prakarśha madhura svanayā vipañchyā  
+gāyatyananta charitaṃ tava nāradoapi ❘  
+bhāśhā samagra masat-kṛtachāru ramyaṃ  
+śeśhādri śekhara vibho tava suprabhātam 
+‖ 9 ‖
+
+bhṛṅgāvaḻī cha makaranda rasānu viddha  
+jhuṅkāragīta ninadaiḥ sahasevanāya ❘  
+niryātyupānta sarasī kamalodarebhyaḥ  
+śeśhādri śekhara vibho tava suprabhātam 
+‖ 10 ‖
+
+yośhāgaṇena varadadhni vimathyamāne  
+ghośhālayeśhu dadhimanthana tīvraghośhāḥ ❘  
+rośhātkaliṃ vidadhate kakubhaścha kumbhāḥ  
+śeśhādri śekhara vibho tava suprabhātam 
+‖ 11 ‖
+
+padmeśamitra śatapatra gatāḻivargāḥ  
+hartuṃ śriyaṃ kuvalayasya nijāṅgalakśhmyāḥ ❘  
+bherī ninādamiva bhibhrati tīvranādam  
+śeśhādri śekhara vibho tava suprabhātam 
+‖ 12 ‖
+
+śrīmannabhīśhṭa varadākhila loka bandho   
+śrī śrīnivāsa jagadeka dayaika sindho ❘  
+śrī devatā gṛha bhujāntara divyamūrte  
+śrī veṅkaṭāchalapate tava suprabhātam 
+‖ 13 ‖
+
+śrī svāmi puśhkariṇikāplava nirmalāṅgāḥ  
+śreyārthino haraviriñchi sanandanādyāḥ ❘  
+dvāre vasanti varanetra hatotta māṅgāḥ  
+śrī veṅkaṭāchalapate tava suprabhātam 
+‖ 14 ‖
+
+śrī śeśhaśaila garuḍāchala veṅkaṭādri  
+nārāyaṇādri vṛśhabhādri vṛśhādri mukhyām ❘  
+ākhyāṃ tvadīya vasate raniśaṃ vadanti  
+śrī veṅkaṭāchalapate tava suprabhātam 
+‖ 15 ‖
+
+sevāparāḥ śiva sureśa kṛśānudharma  
+rakśhombunātha pavamāna dhanādhi nāthāḥ ❘  
+baddhāñjali pravilasannija śīrśhadeśāḥ  
+śrī veṅkaṭāchalapate tava suprabhātam 
+‖ 16 ‖
+
+dhāṭīśhu te vihagarāja mṛgādhirāja  
+nāgādhirāja gajarāja hayādhirājāḥ ❘  
+svasvādhikāra mahimādhika marthayante  
+śrī veṅkaṭāchalapate tava suprabhātam 
+‖ 17 ‖
+
+sūryendu bhauma budhavākpati kāvyaśauri  
+svarbhānuketu diviśat-pariśat-pradhānāḥ ❘  
+tvaddāsadāsa charamāvadhi dāsadāsāḥ  
+śrī veṅkaṭāchalapate tava suprabhātam 
+‖ 18 ‖
+
+tat-pādadhūḻi bharita sphuritottamāṅgāḥ  
+svargāpavarga nirapekśha nijāntaraṅgāḥ ❘  
+kalpāgamā kalanayā''kulatāṃ labhante  
+śrī veṅkaṭāchalapate tava suprabhātam 
+‖ 19 ‖
+
+tvadgopurāgra śikharāṇi nirīkśhamāṇāḥ  
+svargāpavarga padavīṃ paramāṃ śrayantaḥ ❘  
+martyā manuśhya bhuvane matimāśrayante  
+śrī veṅkaṭāchalapate tava suprabhātam 
+‖ 20 ‖
+
+śrī bhūmināyaka dayādi guṇāmṛtābde  
+devādideva jagadeka śaraṇyamūrte ❘  
+śrīmannananta garuḍādibhi rarchitāṅghre  
+śrī veṅkaṭāchalapate tava suprabhātam 
+‖ 21 ‖
+
+śrī padmanābha puruśhottama vāsudeva  
+vaikuṇṭha mādhava janārdhana chakrapāṇe ❘  
+śrī vatsa chihna śaraṇāgata pārijāta  
+śrī veṅkaṭāchalapate tava suprabhātam 
+‖ 22 ‖
+
+kandarpa darpa hara sundara divya mūrte  
+kāntā kuchāmburuha kuṭmala loladṛśhṭe ❘  
+kalyāṇa nirmala guṇākara divyakīrte  
+śrī veṅkaṭāchalapate tava suprabhātam 
+‖ 23 ‖
+
+mīnākṛte kamaṭhakola nṛsiṃha varṇin  
+svāmin paraśvatha tapodhana rāmachandra ❘  
+śeśhāṃśarāma yadunandana kalkirūpa  
+śrī veṅkaṭāchalapate tava suprabhātam 
+‖ 24 ‖
+
+elālavaṅga ghanasāra sugandhi tīrthaṃ  
+divyaṃ viyatsaritu hemaghaṭeśhu pūrṇaṃ ❘  
+dhṛtvādya vaidika śikhāmaṇayaḥ prahṛśhṭāḥ  
+tiśhṭhanti veṅkaṭapate tava suprabhātam 
+‖ 25 ‖
+
+bhāsvānudeti vikachāni saroruhāṇi  
+sampūrayanti ninadaiḥ kakubho vihaṅgāḥ ❘  
+śrīvaiśhṇavāḥ satata marthita maṅgaḻāste  
+dhāmāśrayanti tava veṅkaṭa suprabhātam 
+‖ 26 ‖
+
+brahmādayā ssuravarā ssamaharśhayaste  
+santassanandana mukhāstvatha yogivaryāḥ ❘  
+dhāmāntike tava hi maṅgaḻa vastu hastāḥ  
+śrī veṅkaṭāchalapate tava suprabhātam 
+‖ 27 ‖
+
+lakśmīnivāsa niravadya guṇaika sindho  
+saṃsārasāgara samuttaraṇaika seto ❘  
+vedānta vedya nijavaibhava bhakta bhogya  
+śrī veṅkaṭāchalapate tava suprabhātam 
+‖ 28 ‖
+
+itthaṃ vṛśhāchalapateriha suprabhātaṃ  
+ye mānavāḥ pratidinaṃ paṭhituṃ pravṛttāḥ ❘  
+teśhāṃ prabhāta samaye smṛtiraṅgabhājāṃ  
+praGYāṃ parārtha sulabhāṃ paramāṃ prasūte 
+‖ 29 ‖
+
+### PlainEnglish
+
+#### shree veMkaTeshvara suprabhaatam
+
+kausalyaa suprajaa raama poorvaasaMdhyaa pravartate ❘  
+uttishhTha narashaardoola kartavyaM daivamaahnikam 
+‖ 1 ‖
+
+uttishhThottishhTha goviMda uttishhTha garuDadhvaja ❘  
+uttishhTha kamalaakaaMta trailokyaM maMgaLaM kuru 
+‖ 2 ‖
+
+maatassamasta jagataaM madhukaiTabhaareH  
+vakshhovihaariNi manohara divyamoorte ❘  
+shreesvaamini shritajanapriya daanasheele  
+shree veMkaTesha dayite tava suprabhaatam 
+‖ 3 ‖
+
+tava suprabhaatamaraviMda lochane  
+bhavatu prasannamukha chaMdramaMDale ❘  
+vidhi shaMkareMdra vanitaabhirarchite  
+vRRisha shailanaatha dayite dayaanidhe 
+‖ 4 ‖
+
+atryaadi sapta RRishhayassamupaasya saMdhyaaM  
+aakaasha siMdhu kamalaani manoharaaNi ❘  
+aadaaya paadayuga marchayituM prapannaaH  
+sheshhaadri shekhara vibho tava suprabhaatam 
+‖ 5 ‖
+
+paMchaananaabja bhava shhaNmukha vaasavaadyaaH  
+traivikramaadi charitaM vibudhaaH stuvaMti ❘  
+bhaashhaapatiH paThati vaasara shuddhi maaraat  
+sheshhaadri shekhara vibho tava suprabhaatam 
+‖ 6 ‖
+
+eeshat-praphulla saraseeruha naarikeLa  
+poogadrumaadi sumanohara paalikaanaam ❘  
+aavaati maMdamanilaH sahadivya gaMdhaiH  
+sheshhaadri shekhara vibho tava suprabhaatam 
+‖ 7 ‖
+
+unmeelyanetra yugamuttama paMjarasthaaH  
+paatraavasishhTa kadalee phala paayasaani ❘  
+bhuktvaaH saleela mathakeLi shukaaH paThaMti  
+sheshhaadri shekhara vibho tava suprabhaatam 
+‖ 8 ‖
+
+taMtree prakarshha madhura svanayaa vipaMchyaa  
+gaayatyanaMta charitaM tava naarado.api ❘  
+bhaashhaa samagra masat-kRRitachaaru ramyaM  
+sheshhaadri shekhara vibho tava suprabhaatam 
+‖ 9 ‖
+
+bhRRiMgaavaLee cha makaraMda rasaanu viddha  
+jhuMkaarageeta ninadaiH sahasevanaaya ❘  
+niryaatyupaaMta sarasee kamalodarebhyaH  
+sheshhaadri shekhara vibho tava suprabhaatam 
+‖ 10 ‖
+
+yoshhaagaNena varadadhni vimathyamaane  
+ghoshhaalayeshhu dadhimaMthana teevraghoshhaaH ❘  
+roshhaatkaliM vidadhate kakubhashcha kuMbhaaH  
+sheshhaadri shekhara vibho tava suprabhaatam 
+‖ 11 ‖
+
+padmeshamitra shatapatra gataaLivargaaH  
+hartuM shriyaM kuvalayasya nijaaMgalakshhmyaaH ❘  
+bheree ninaadamiva bhibhrati teevranaadam  
+sheshhaadri shekhara vibho tava suprabhaatam 
+‖ 12 ‖
+
+shreemannabheeshhTa varadaakhila loka baMdho   
+shree shreenivaasa jagadeka dayaika siMdho ❘  
+shree devataa gRRiha bhujaaMtara divyamoorte  
+shree veMkaTaachalapate tava suprabhaatam 
+‖ 13 ‖
+
+shree svaami pushhkariNikaaplava nirmalaaMgaaH  
+shreyaarthino haraviriMchi sanaMdanaadyaaH ❘  
+dvaare vasaMti varanetra hatotta maaMgaaH  
+shree veMkaTaachalapate tava suprabhaatam 
+‖ 14 ‖
+
+shree sheshhashaila garuDaachala veMkaTaadri  
+naaraayaNaadri vRRishhabhaadri vRRishhaadri mukhyaam ❘  
+aakhyaaM tvadeeya vasate ranishaM vadaMti  
+shree veMkaTaachalapate tava suprabhaatam 
+‖ 15 ‖
+
+sevaaparaaH shiva suresha kRRishaanudharma  
+rakshhoMbunaatha pavamaana dhanaadhi naathaaH ❘  
+baddhaaMjali pravilasannija sheershhadeshaaH  
+shree veMkaTaachalapate tava suprabhaatam 
+‖ 16 ‖
+
+dhaaTeeshhu te vihagaraaja mRRigaadhiraaja  
+naagaadhiraaja gajaraaja hayaadhiraajaaH ❘  
+svasvaadhikaara mahimaadhika marthayaMte  
+shree veMkaTaachalapate tava suprabhaatam 
+‖ 17 ‖
+
+sooryeMdu bhauma budhavaakpati kaavyashauri  
+svarbhaanuketu divishat-parishat-pradhaanaaH ❘  
+tvaddaasadaasa charamaavadhi daasadaasaaH  
+shree veMkaTaachalapate tava suprabhaatam 
+‖ 18 ‖
+
+tat-paadadhooLi bharita sphuritottamaaMgaaH  
+svargaapavarga nirapekshha nijaaMtaraMgaaH ❘  
+kalpaagamaa kalanayaa.a.akulataaM labhaMte  
+shree veMkaTaachalapate tava suprabhaatam 
+‖ 19 ‖
+
+tvadgopuraagra shikharaaNi nireekshhamaaNaaH  
+svargaapavarga padaveeM paramaaM shrayaMtaH ❘  
+martyaa manushhya bhuvane matimaashrayaMte  
+shree veMkaTaachalapate tava suprabhaatam 
+‖ 20 ‖
+
+shree bhoominaayaka dayaadi guNaamRRitaabde  
+devaadideva jagadeka sharaNyamoorte ❘  
+shreemannanaMta garuDaadibhi rarchitaaMghre  
+shree veMkaTaachalapate tava suprabhaatam 
+‖ 21 ‖
+
+shree padmanaabha purushhottama vaasudeva  
+vaikuMTha maadhava janaardhana chakrapaaNe ❘  
+shree vatsa chihna sharaNaagata paarijaata  
+shree veMkaTaachalapate tava suprabhaatam 
+‖ 22 ‖
+
+kaMdarpa darpa hara suMdara divya moorte  
+kaaMtaa kuchaaMburuha kuTmala loladRRishhTe ❘  
+kalyaaNa nirmala guNaakara divyakeerte  
+shree veMkaTaachalapate tava suprabhaatam 
+‖ 23 ‖
+
+meenaakRRite kamaThakola nRRisiMha varNin  
+svaamin parashvatha tapodhana raamachaMdra ❘  
+sheshhaaMsharaama yadunaMdana kalkiroopa  
+shree veMkaTaachalapate tava suprabhaatam 
+‖ 24 ‖
+
+elaalavaMga ghanasaara sugaMdhi teerthaM  
+divyaM viyatsaritu hemaghaTeshhu poorNaM ❘  
+dhRRitvaadya vaidika shikhaamaNayaH prahRRishhTaaH  
+tishhThaMti veMkaTapate tava suprabhaatam 
+‖ 25 ‖
+
+bhaasvaanudeti vikachaani saroruhaaNi  
+saMpoorayaMti ninadaiH kakubho vihaMgaaH ❘  
+shreevaishhNavaaH satata marthita maMgaLaaste  
+dhaamaashrayaMti tava veMkaTa suprabhaatam 
+‖ 26 ‖
+
+brahmaadayaa ssuravaraa ssamaharshhayaste  
+saMtassanaMdana mukhaastvatha yogivaryaaH ❘  
+dhaamaaMtike tava hi maMgaLa vastu hastaaH  
+shree veMkaTaachalapate tava suprabhaatam 
+‖ 27 ‖
+
+lakshmeenivaasa niravadya guNaika siMdho  
+saMsaarasaagara samuttaraNaika seto ❘  
+vedaaMta vedya nijavaibhava bhakta bhogya  
+shree veMkaTaachalapate tava suprabhaatam 
+‖ 28 ‖
+
+itthaM vRRishhaachalapateriha suprabhaataM  
+ye maanavaaH pratidinaM paThituM pravRRittaaH ❘  
+teshhaaM prabhaata samaye smRRitiraMgabhaajaaM  
+pragnyaaM paraartha sulabhaaM paramaaM prasoote 
+‖ 29 ‖
+

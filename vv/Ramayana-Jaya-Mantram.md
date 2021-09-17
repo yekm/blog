@@ -185,3 +185,31 @@ samRRiddhaardho gamishhyaami mishhataaM sarvarakshhasaam ‖
 అర్ధయిత్వా పురీం లంకామభివాద్య చ మైథిలీం  
 సమృద్ధార్ధో గమిష్యామి మిషతాం సర్వరక్షసామ్ ‖  
 
+### English
+
+#### rāmāyaṇa jaya mantram
+
+jayatyatibalo rāmo lakśhmaṇaścha mahābalaḥ  
+rājā jayati sugrīvo rāghaveṇābhipālitaḥ ❘  
+dāsohaṃ kosalendrasya rāmasyākliśhṭakarmaṇaḥ  
+hanumān śatrusainyānāṃ nihantā    mārutātmajaḥ ‖
+
+na rāvaṇa sahasraṃ me yuddhe pratibalaṃ    bhavet  
+śilābhistu praharataḥ   pādapaiścha   sahasraśaḥ ❘  
+ardhayitvā purīṃ   laṅkāmabhivādya cha   maithilīṃ  
+samṛddhārdho gamiśhyāmi   miśhatāṃ sarvarakśhasām ‖
+
+### PlainEnglish
+
+#### raamaayaNa jaya maMtram
+
+jayatyatibalo raamo lakshhmaNashcha mahaabalaH  
+raajaa jayati sugreevo raaghaveNaabhipaalitaH ❘  
+daasohaM kosaleMdrasya raamasyaaklishhTakarmaNaH  
+hanumaan shatrusainyaanaaM nihaMtaa    maarutaatmajaH ‖
+
+na raavaNa sahasraM me yuddhe pratibalaM    bhavet  
+shilaabhistu praharataH   paadapaishcha   sahasrashaH ❘  
+ardhayitvaa pureeM   laMkaamabhivaadya cha   maithileeM  
+samRRiddhaardho gamishhyaami   mishhataaM sarvarakshhasaam ‖
+

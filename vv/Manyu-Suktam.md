@@ -744,3 +744,141 @@ shi_ _vaa_ disha'H _pra_ disha' _u_ ddisho'' _na_.aaapo'' _vi_ shva _ta_ H pari'
 శి_ _వా_ దిశః' _ప్ర_ దిశ' _ఉ_ ద్దిశో'' _న_ ఽఆపో'' _వి_ శ్వ _తః_ పరి'పాంతు _స_ ర్వ _తః_ శా _ంతిః_ శా _ంతిః_ శాంతిః' ‖  
 
 
+### English
+
+#### manyu sūktam
+
+ṛgveda saṃhitā; maṇḍalaṃ 10; sūktaṃ 83,84  
+yaste'' manyoavi'dhad vajra sāyaka saha oja'ḥ puśhyati viśva'mānuśhak ❘  
+sāhyāma dāsamāryaṃ tvayā'' yujā saha'skṛtena saha'sā saha'svatā 
+‖ 1 ‖
+
+manyurindro'' manyurevāsa' devo manyur hotā varu'ṇo jātave''dāḥ ❘  
+manyuṃ viśa' īḻate mānu'śhīryāḥ pāhi no'' manyo tapa'sā sajośhā''ḥ 
+‖ 2 ‖
+
+abhī''hi manyo tavasastavī''yān tapa'sā yujā vi ja'hi śatrū''n ❘  
+amitrahā vṛ'trahā da'syuhā cha viśvā vasūnyā bha'rā tvaṃ na'ḥ 
+‖ 3 ‖
+
+tvaṃ hi ma''nyo abhibhū''tyojāḥ svayambhūrbhāmo'' abhimātiśhāhaḥ ❘  
+viśvacha'r-śhaṇiḥ sahu'riḥ sahā''vānasmāsvojaḥ pṛta'nāsu dhehi 
+‖ 4 ‖
+
+abhāgaḥ sannapa pare''to asmi tava kratvā'' taviśhasya' prachetaḥ ❘  
+taṃ tvā'' manyo akraturji'hīḻāhaṃ svātanūrba'ladeyā''ya mehi' 
+‖ 5 ‖
+
+ayaṃ te'' asmyupa mehyarvāṅ pra'tīchīnaḥ sa'hure viśvadhāyaḥ ❘  
+manyo'' vajrinnabhi māmā va'vṛtsvahanā''va dasyū''n ṛta bo''dhyāpeḥ 
+‖ 6 ‖
+
+abhi prehi' dakśhiṇato bha'vā meadhā'' vṛtrāṇi' jaṅghanāva bhūri' ❘  
+juhomi' te dharuṇaṃ madhvo agra'mubhā u'pāṃśu pra'thamā pi'bāva 
+‖ 7 ‖
+
+tvayā'' manyo saratha'mārujanto harśha'māṇāso dhṛśhitā ma'rutvaḥ ❘  
+tigmeśha'va āyu'dhā saṃśiśā''nā abhi praya''ntu naro'' agnirū''pāḥ 
+‖ 8 ‖
+
+agniri'va manyo tviśhitaḥ sa'hasva senānīrna'ḥ sahure hūta e''dhi ❘  
+hatvāya śatrūn vi bha'jasva veda ojo mimā''no vimṛdho'' nudasva 
+‖ 9 ‖
+
+saha'sva manyo abhimā''timasme rujan mṛṇan pra'mṛṇan prehi śatrū''n ❘  
+ugraṃ te pājo'' nanvā ru'rudhre vaśī vaśa''ṃ nayasa ekaja tvam 
+‖ 10 ‖
+
+eko'' bahūnāma'si manyavīḻito viśa''ṃviśaṃ yudhaye saṃ śi'śādhi ❘  
+akṛ'ttaruk tvayā'' yujā vayaṃ dyumantaṃ ghośha''ṃ vijayāya' kṛṇmahe 
+‖ 11 ‖
+
+vijeśhakṛdindra' ivānavabravo(o)3''smāka''ṃ manyo adhipā bha'veha ❘  
+priyaṃ te nāma' sahure gṛṇīmasi vidmātamutsaṃ yata' ābabhūtha' 
+‖ 12 ‖
+
+ābhū''tyā sahajā va'jra sāyaka saho'' bibharśhyabhibhūta utta'ram ❘  
+kratvā'' no manyo sahamedye''dhi mahādhanasya' puruhūta saṃsṛji' 
+‖ 13 ‖
+
+saṃsṛ'śhṭaṃ dhana'mubhaya''ṃ samākṛ'tamasmabhya''ṃ dattāṃ varu'ṇaścha manyuḥ ❘  
+bhiyaṃ dadhā''nā hṛda'yeśhu śatra'vaḥ parā''jitāso apa nila'yantām 
+‖ 14 ‖
+
+dhanva'nāgādhanva' nājiñja'yema dhanva'nā tīvrāḥ samado'' jayema ❘  
+dhanuḥ śatro''rapakāmaṃ kṛ'ṇoti dhanva' nāsarvā''ḥ pradiśo'' jayema ‖
+
+bhadraṃ no api' vātaya mana'ḥ ‖
+
+oṃ śāntā' pṛthivī śi'vamantarikśhaṃ dyaurno'' devya'bha'yanno astu ❘  
+śivā diśa'ḥ pradiśa' uddiśo'' na'āpo'' viśvataḥ pari'pāntu sarvataḥ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+### PlainEnglish
+
+#### manyu sooktam
+
+RRigveda saMhitaa; maMDalaM 10; sooktaM 83,84  
+yaste'' manyo.avi'dhad vajra saayaka saha oja'H pushhyati vishva'maanushhak ❘  
+saahyaama daasamaaryaM tvayaa'' yujaa saha'skRRitena saha'saa saha'svataa 
+‖ 1 ‖
+
+manyuriMdro'' manyurevaasa' devo manyur hotaa varu'No jaatave''daaH ❘  
+manyuM visha' eeLate maanu'shheeryaaH paahi no'' manyo tapa'saa sajoshhaa''H 
+‖ 2 ‖
+
+abhee''hi manyo tavasastavee''yaan tapa'saa yujaa vi ja'hi shatroo''n ❘  
+amitrahaa vRRi'trahaa da'syuhaa cha vishvaa vasoonyaa bha'raa tvaM na'H 
+‖ 3 ‖
+
+tvaM hi ma''nyo abhibhoo''tyojaaH svayaMbhoorbhaamo'' abhimaatishhaahaH ❘  
+vishvacha'r-shhaNiH sahu'riH sahaa''vaanasmaasvojaH pRRita'naasu dhehi 
+‖ 4 ‖
+
+abhaagaH sannapa pare''to asmi tava kratvaa'' tavishhasya' prachetaH ❘  
+taM tvaa'' manyo akraturji'heeLaahaM svaatanoorba'ladeyaa''ya mehi' 
+‖ 5 ‖
+
+ayaM te'' asmyupa mehyarvaan pra'teecheenaH sa'hure vishvadhaayaH ❘  
+manyo'' vajrinnabhi maamaa va'vRRitsvahanaa''va dasyoo''n RRita bo''dhyaapeH 
+‖ 6 ‖
+
+abhi prehi' dakshhiNato bha'vaa me.adhaa'' vRRitraaNi' jaMghanaava bhoori' ❘  
+juhomi' te dharuNaM madhvo agra'mubhaa u'paaMshu pra'thamaa pi'baava 
+‖ 7 ‖
+
+tvayaa'' manyo saratha'maarujaMto harshha'maaNaaso dhRRishhitaa ma'rutvaH ❘  
+tigmeshha'va aayu'dhaa saMshishaa''naa abhi praya''Mtu naro'' agniroo''paaH 
+‖ 8 ‖
+
+agniri'va manyo tvishhitaH sa'hasva senaaneerna'H sahure hoota e''dhi ❘  
+hatvaaya shatroon vi bha'jasva veda ojo mimaa''no vimRRidho'' nudasva 
+‖ 9 ‖
+
+saha'sva manyo abhimaa''timasme rujan mRRiNan pra'mRRiNan prehi shatroo''n ❘  
+ugraM te paajo'' nanvaa ru'rudhre vashee vasha''M nayasa ekaja tvam 
+‖ 10 ‖
+
+eko'' bahoonaama'si manyaveeLito visha''MvishaM yudhaye saM shi'shaadhi ❘  
+akRRi'ttaruk tvayaa'' yujaa vayaM dyumaMtaM ghoshha''M vijayaaya' kRRiNmahe 
+‖ 11 ‖
+
+vijeshhakRRidiMdra' ivaanavabravo(o)3'.asmaaka''M manyo adhipaa bha'veha ❘  
+priyaM te naama' sahure gRRiNeemasi vidmaatamutsaM yata' aababhootha' 
+‖ 12 ‖
+
+aabhoo''tyaa sahajaa va'jra saayaka saho'' bibharshhyabhibhoota utta'ram ❘  
+kratvaa'' no manyo sahamedye''dhi mahaadhanasya' puruhoota saMsRRiji' 
+‖ 13 ‖
+
+saMsRRi'shhTaM dhana'mubhaya''M samaakRRi'tamasmabhya''M dattaaM varu'Nashcha manyuH ❘  
+bhiyaM dadhaa''naa hRRida'yeshhu shatra'vaH paraa''jitaaso apa nila'yaMtaam 
+‖ 14 ‖
+
+dhanva'naagaadhanva' naajiMja'yema dhanva'naa teevraaH samado'' jayema ❘  
+dhanuH shatro''rapakaamaM kRRi'Noti dhanva' naasarvaa''H pradisho'' jayema ‖
+
+bhadraM no api' vaataya mana'H ‖
+
+oM shaaMtaa' pRRithivee shi'vamaMtarikshhaM dyaurno'' devya.abha'yanno astu ❘  
+shivaa disha'H pradisha' uddisho'' na.aaapo'' vishvataH pari'paaMtu sarvataH shaantiH shaantiH shaanti'H ‖
+

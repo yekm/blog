@@ -601,3 +601,109 @@ iti jagannaathaakashhTakaM
 
 ఇతి జగన్నాథాకష్టకం  
 
+### English
+
+#### jagannāthāśhṭakam
+
+kadāchi tkāḻindī taṭavipinasaṅgītakaparo  
+mudā gopīnārī vadanakamalāsvādamadhupaḥ  
+ramāśambhubrahmā marapatigaṇeśārchitapado  
+jagannāthaḥ svāmī nayanapathagāmī bhavatu me 
+‖ 1 ‖
+
+bhuje savye veṇuṃ śirasi śikhipiñChaṃ kaṭitaṭe  
+dukūlaṃ netrānte sahachara kaṭākśhaṃ vidadhate  
+sadā śrīmadbṛndā vanavasatilīlāparichayo  
+jagannāthaḥ svāmī nayanapathagāmī bhavatu me 
+‖ 2 ‖
+
+mahāmbhodhestīre kanakaruchire nīlaśikhare  
+vasanprāsādānta -ssahajabalabhadreṇa balinā  
+subhadrāmadhyastha ssakalasurasevāvasarado  
+jagannāthaḥ svāmī nayanapathagāmī bhavatu me 
+‖ 3 ‖
+
+kathāpārāvārā ssajalajaladaśreṇiruchiro  
+ramāvāṇīsauma ssuradamalapadmodbhavamukhaiḥ  
+surendrai rārādhyaḥ śrutigaṇaśikhāgītacharito  
+jagannāthaḥ svāmī nayanapathagāmī bhavatu me 
+‖ 4 ‖
+
+rathārūḍho gachCha npathi miḻaṅatabhūdevapaṭalaiḥ  
+stutiprādurbhāvaṃ pratipada mupākarṇya sadayaḥ  
+dayāsindhu rbhānu ssakalajagatā sindhusutayā  
+jagannāthaḥ svāmī nayanapathagāmī bhavatu me 
+‖ 5 ‖
+
+parabrahmāpīḍaḥ kuvalayadaḻotphullanayano  
+nivāsī nīlādrau nihitacharaṇonantaśirasi  
+rasānando rādhā sarasavapurāliṅganasukho  
+jagannāthaḥ svāmī nayanapathagāmī bhavatu me 
+‖ 6 ‖
+
+na vai prārthyaṃ rājyaṃ na cha kanakitāṃ bhogavibhavaṃ  
+na yāche2 haṃ ramyāṃ nikhilajanakāmyāṃ varavadhūṃ  
+sadā kāle kāle pramathapatinā chītacharito  
+jagannāthaḥ svāmī nayanapathagāmī bhavatu me 
+‖ 7 ‖
+
+hara tvaṃ saṃsāraṃ drutatara masāraṃ surapate  
+hara tvaṃ pāpānāṃ vitati maparāṃ yādavapate  
+aho dīnānāthaṃ nihita machalaṃ niśchitapadaṃ  
+jagannāthaḥ svāmī nayanapathagāmī bhavatu me 
+‖ 8 ‖
+
+iti jagannāthākaśhṭakaṃ  
+### PlainEnglish
+
+#### jagannaathaashhTakam
+
+kadaachi tkaaLiMdee taTavipinasaMgeetakaparo  
+mudaa gopeenaaree vadanakamalaasvaadamadhupaH  
+ramaashaMbhubrahmaa marapatigaNeshaarchitapado  
+jagannaathaH svaamee nayanapathagaamee bhavatu me 
+‖ 1 ‖
+
+bhuje savye veNuM shirasi shikhipiMChaM kaTitaTe  
+dukoolaM netraante sahachara kaTaakshhaM vidadhate  
+sadaa shreemadbRRiMdaa vanavasatileelaaparichayo  
+jagannaathaH svaamee nayanapathagaamee bhavatu me 
+‖ 2 ‖
+
+mahaaMbhodhesteere kanakaruchire neelashikhare  
+vasanpraasaadaaMta -ssahajabalabhadreNa balinaa  
+subhadraamadhyastha ssakalasurasevaavasarado  
+jagannaathaH svaamee nayanapathagaamee bhavatu me 
+‖ 3 ‖
+
+kathaapaaraavaaraa ssajalajaladashreNiruchiro  
+ramaavaaNeesauma ssuradamalapadmodbhavamukhaiH  
+sureMdrai raaraadhyaH shrutigaNashikhaageetacharito  
+jagannaathaH svaamee nayanapathagaamee bhavatu me 
+‖ 4 ‖
+
+rathaarooDho gachCha npathi miLanatabhoodevapaTalaiH  
+stutipraadurbhaavaM pratipada mupaakarNya sadayaH  
+dayaasindhu rbhaanu ssakalajagataa siMdhusutayaa  
+jagannaathaH svaamee nayanapathagaamee bhavatu me 
+‖ 5 ‖
+
+parabrahmaapeeDaH kuvalayadaLotphullanayano  
+nivaasee neelaadrau nihitacharaNonaMtashirasi  
+rasaanaMdo raadhaa sarasavapuraaliMganasukho  
+jagannaathaH svaamee nayanapathagaamee bhavatu me 
+‖ 6 ‖
+
+na vai praarthyaM raajyaM na cha kanakitaaM bhogavibhavaM  
+na yaache2 haM ramyaaM nikhilajanakaamyaaM varavadhooM  
+sadaa kaale kaale pramathapatinaa cheetacharito  
+jagannaathaH svaamee nayanapathagaamee bhavatu me 
+‖ 7 ‖
+
+hara tvaM saMsaaraM drutatara masaaraM surapate  
+hara tvaM paapaanaaM vitati maparaaM yaadavapate  
+aho deenaanaathaM nihita machalaM nishchitapadaM  
+jagannaathaH svaamee nayanapathagaamee bhavatu me 
+‖ 8 ‖
+
+iti jagannaathaakashhTakaM  

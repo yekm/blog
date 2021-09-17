@@ -211,3 +211,35 @@ hiMdee hai ham vatan hai hiMdustaan hamaaraa‖
 మజ్ - హబ్ నహీ సిఖాతా ఆపస్^^మె బైర్ రఖ్^^నా  
 హిందీ హై హమ్ వతన్ హై హిందుస్తాన్ హమారా‖  
 
+### English
+
+#### sāre jahā se acChā
+
+sāre jahāse acChā hindustān hamārā  
+ham bul bule hai is^^ke, ye gul sitā hamārā‖
+
+parabat vo sab se ūñChā ham^^sāyā ās^^mān kā  
+vo santarī hamārā ! vo pās^^bā hamārā‖
+
+godime khel^^tīhai is^^kī hajāro nadiyā  
+gul^^śhan hai jin^^ke dam^^se raśh^^ke jinā hamārā‖
+
+maj - hab nahī sikhātā āpas^^me bair rakh^^nā  
+hindī hai ham vatan hai hindustān hamārā‖
+
+### PlainEnglish
+
+#### saare jahaa se acChaa
+
+saare jahaas.e acChaa hiMdustaan hamaaraa  
+ham bul bule hai is^^ke, ye gul sitaa hamaaraa‖
+
+parabat vo sab se ooMChaa ham^^saayaa aas^^maan kaa  
+vo saMtaree hamaaraa ! vo paas^^baa hamaaraa‖
+
+godime khel^^teehai is^^kee hajaaro nadiyaa  
+gul^^shhan hai jin^^ke dam^^se rashh^^ke jinaa hamaaraa‖
+
+maj - hab nahee sikhaataa aapas^^m.e bair rakh^^naa  
+hiMdee hai ham vatan hai hiMdustaan hamaaraa‖
+

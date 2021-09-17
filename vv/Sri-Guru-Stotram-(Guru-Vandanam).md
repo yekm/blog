@@ -752,3 +752,127 @@ Source: http://www.chinmayafrance.fr/06RESSOURCES/chants-pdf/shree_guru_stotram.
 త్వమేవ విద్యా ద్రవిణం త్వమేవ  
 త్వమేవ సర్వం మమ దేవ దేవ ‖ 14 ‖  
 
+### English
+
+#### śrī guru stotram (guru vandanam)
+
+akhaṇḍamaṇḍalākāraṃ vyāptaṃ yena carācaram ❘  
+tatpadaṃ darśitaṃ yena tasmai śrīgurave namaḥ 
+‖ 1 ‖
+
+aGYānatimirāndhasya GYānāñjanaśalākayā ❘  
+cakśhurunmīlitaṃ yena tasmai śrīgurave namaḥ 
+‖ 2 ‖
+
+gururbrahmā gururviśhṇuḥ gururdevo maheśvaraḥ ❘  
+gurureva parambrahma tasmai śrīgurave namaḥ 
+‖ 3 ‖
+
+sthāvaraṃ jaṅgamaṃ vyāptaṃ yatkiñcitsacarācaram ❘  
+tatpadaṃ darśitaṃ yena tasmai śrīgurave namaḥ 
+‖ 4 ‖
+
+cinmayaṃ vyāpiyatsarvaṃ trailokyaṃ sacarācaram ❘  
+tatpadaṃ darśitaṃ yena tasmai śrīgurave namaḥ 
+‖ 5 ‖
+
+tsarvaśrutiśiroratnavirājita padāmbujaḥ ❘  
+vedāntāmbujasūryoyaḥ tasmai śrīgurave namaḥ 
+‖ 6 ‖
+
+caitanyaḥ śāśvataḥśānto vyomātīto nirañjanaḥ ❘  
+bindunāda kalātītaḥ tasmai śrīgurave namaḥ 
+‖ 7 ‖
+
+GYānaśaktisamārūḍhaḥ tattvamālāvibhūśhitaḥ ❘  
+bhuktimuktipradātā ca tasmai śrīgurave namaḥ 
+‖ 8 ‖
+
+anekajanmasamprāpta karmabandhavidāhine ❘  
+ātmaGYānapradānena tasmai śrīgurave namaḥ 
+‖ 9 ‖
+
+śośhaṇaṃ bhavasindhośca GYāpaṇaṃ sārasampadaḥ ❘  
+guroḥ pādodakaṃ samyak tasmai śrīgurave namaḥ 
+‖ 10 ‖
+
+na guroradhikaṃ tattvaṃ na guroradhikaṃ tapaḥ ❘  
+tattvaGYānātparaṃ nāsti tasmai śrīgurave namaḥ 
+‖ 11 ‖
+
+mannāthaḥ śrījagannāthaḥ madguruḥ śrījagadguruḥ ❘  
+madātmā sarvabhūtātmā tasmai śrīgurave namaḥ 
+‖ 12 ‖
+
+gururādiranādiśca guruḥ paramadaivatam ❘  
+guroḥ parataraṃ nāsti tasmai śrīgurave namaḥ 
+‖ 13 ‖
+
+tvameva mātā ca pitā tvameva   
+tvameva bandhuśca sakhā tvameva ❘  
+tvameva vidyā draviṇaṃ tvameva  
+tvameva sarvaṃ mama deva deva 
+‖ 14 ‖
+
+### PlainEnglish
+
+#### shree guru stotram (guru vaMdanam)
+
+akhaNDamaNDalaakaaraM vyaaptaM yena caraacaram ❘  
+tatpadaM darshitaM yena tasmai shreegurave namaH 
+‖ 1 ‖
+
+agnyaanatimiraandhasya gnyaanaanjanashalaakayaa ❘  
+cakshhurunmeelitaM yena tasmai shreegurave namaH 
+‖ 2 ‖
+
+gururbrahmaa gururvishhNuH gururdevo maheshvaraH ❘  
+gurureva paraMbrahma tasmai shreegurave namaH 
+‖ 3 ‖
+
+sthaavaraM jaMgamaM vyaaptaM yatkiMcitsacaraacaram ❘  
+tatpadaM darshitaM yena tasmai shreegurave namaH 
+‖ 4 ‖
+
+cinmayaM vyaapiyatsarvaM trailokyaM sacaraacaram ❘  
+tatpadaM darshitaM yena tasmai shreegurave namaH 
+‖ 5 ‖
+
+tsarvashrutishiroratnaviraajita padaambujaH ❘  
+vedaantaambujasooryoyaH tasmai shreegurave namaH 
+‖ 6 ‖
+
+caitanyaH shaashvataHshaanto vyomaateeto niraMjanaH ❘  
+bindunaada kalaateetaH tasmai shreegurave namaH 
+‖ 7 ‖
+
+gnyaanashaktisamaarooDhaH tattvamaalaavibhooshhitaH ❘  
+bhuktimuktipradaataa ca tasmai shreegurave namaH 
+‖ 8 ‖
+
+anekajanmasaMpraapta karmabandhavidaahine ❘  
+aatmagnyaanapradaanena tasmai shreegurave namaH 
+‖ 9 ‖
+
+shoshhaNaM bhavasindhoshca gnyaapaNaM saarasaMpadaH ❘  
+guroH paadodakaM samyak tasmai shreegurave namaH 
+‖ 10 ‖
+
+na guroradhikaM tattvaM na guroradhikaM tapaH ❘  
+tattvagnyaanaatparaM naasti tasmai shreegurave namaH 
+‖ 11 ‖
+
+mannaathaH shreejagannaathaH madguruH shreejagadguruH ❘  
+madaatmaa sarvabhootaatmaa tasmai shreegurave namaH 
+‖ 12 ‖
+
+gururaadiranaadishca guruH paramadaivatam ❘  
+guroH parataraM naasti tasmai shreegurave namaH 
+‖ 13 ‖
+
+tvameva maataa ca pitaa tvameva   
+tvameva bandhushca sakhaa tvameva ❘  
+tvameva vidyaa draviNaM tvameva  
+tvameva sarvaM mama deva deva 
+‖ 14 ‖
+

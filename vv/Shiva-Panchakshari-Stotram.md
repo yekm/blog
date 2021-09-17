@@ -458,3 +458,81 @@ shivalokamavaapnoti shivena saha modate ‖
 పంచాక్షరమిదం పుణ్యం యః పఠేచ్ఛివ సన్నిధౌ ❘  
 శివలోకమవాప్నోతి శివేన సహ మోదతే ‖  
 
+### English
+
+#### śiva pañchākśhari stotram
+
+oṃ namaḥ śivāya śivāya namaḥ oṃ  
+oṃ namaḥ śivāya śivāya namaḥ oṃ  
+nāgendrahārāya trilochanāya  
+bhasmāṅgarāgāya maheśvarāya ❘  
+nityāya śuddhāya digambarāya  
+tasmai "na" kārāya namaḥ śivāya 
+‖ 1 ‖
+
+mandākinī salila chandana charchitāya  
+nandīśvara pramathanātha maheśvarāya ❘  
+mandāra mukhya bahupuśhpa supūjitāya   
+tasmai "ma" kārāya namaḥ śivāya 
+‖ 2 ‖
+
+śivāya gaurī vadanābja bṛnda  
+sūryāya dakśhādhvara nāśakāya ❘  
+śrī nīlakaṇṭhāya vṛśhabhadhvajāya  
+tasmai "śi" kārāya namaḥ śivāya 
+‖ 3 ‖
+
+vaśiśhṭha kumbhodbhava gautamārya  
+munīndra devārchita śekharāya ❘  
+chandrārka vaiśvānara lochanāya  
+tasmai "va" kārāya namaḥ śivāya 
+‖ 4 ‖
+
+yaGYa svarūpāya jaṭādharāya  
+pināka hastāya sanātanāya ❘  
+divyāya devāya digambarāya  
+tasmai "ya" kārāya namaḥ śivāya 
+‖ 5 ‖
+
+pañchākśharamidaṃ puṇyaṃ yaḥ paṭhecChiva sannidhau ❘  
+śivalokamavāpnoti śivena saha modate ‖
+
+### PlainEnglish
+
+#### shiva panchaakshhari stotram
+
+oM namaH shivaaya shivaaya namaH oM  
+oM namaH shivaaya shivaaya namaH oM  
+naagendrahaaraaya trilochanaaya  
+bhasmaangaraagaaya maheshvaraaya ❘  
+nityaaya shuddhaaya digambaraaya  
+tasmai "na" kaaraaya namaH shivaaya 
+‖ 1 ‖
+
+mandaakinee salila chandana charchitaaya  
+nandeeshvara pramathanaatha maheshvaraaya ❘  
+mandaara mukhya bahupushhpa supoojitaaya   
+tasmai "ma" kaaraaya namaH shivaaya 
+‖ 2 ‖
+
+shivaaya gauree vadanaabja bRRinda  
+sooryaaya dakshhaadhvara naashakaaya ❘  
+shree neelakaNThaaya vRRishhabhadhvajaaya  
+tasmai "shi" kaaraaya namaH shivaaya 
+‖ 3 ‖
+
+vashishhTha kumbhodbhava gautamaarya  
+muneendra devaarchita shekharaaya ❘  
+chandraarka vaishvaanara lochanaaya  
+tasmai "va" kaaraaya namaH shivaaya 
+‖ 4 ‖
+
+yagnya svaroopaaya jaTaadharaaya  
+pinaaka hastaaya sanaatanaaya ❘  
+divyaaya devaaya digambaraaya  
+tasmai "ya" kaaraaya namaH shivaaya 
+‖ 5 ‖
+
+panchaakshharamidaM puNyaM yaH paThecChiva sannidhau ❘  
+shivalokamavaapnoti shivena saha modate ‖
+

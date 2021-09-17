@@ -302,3 +302,47 @@ bahuvidhaMbula nannu paaliMcave ‖
 బహువిధంబుల నన్ను పాలించవే ‖  
 
 
+### English
+
+#### annamayya kīrtana nārāyaṇāchyuta
+
+nārāyaṇācyutānanta govinda hari ❘  
+sāramuga nīkune śaraṇaṇṭini ‖
+
+caluvayunu veḍiyunu naṭala saṃsārambu  
+tolaku sukhamokaveḻa duḥkhamokaveḻa ❘  
+phalamulive yī reṇḍu pāpamulu puṇyamulu  
+pulusu dīpunu galapi bhujiyiñcinaṭlu ‖
+
+pagalu rātrularīti bahujanma maraṇālu  
+tagumenu poḍacūpu tanudāne tolagu ❘  
+nagiyiñcu nokaveḻa nalagiñcu nokaveḻa  
+vogaru kārapu viḍemu ubbiñcinaṭlu ‖
+
+yihamu paramunu valene yediṭikallayu nijamu  
+vihariñcu bhrāntiyunu vibhrāntiyunu matini ❘  
+sahaja śrī veṅkaṭeśvara nannu karuṇimpa  
+bahuvidhambula nannu pāliñcave ‖
+
+### PlainEnglish
+
+#### annamayya keertana naaraayaNaachyuta
+
+naaraayaNaacyutaanaMta goviMda hari ❘  
+saaramuga neekune sharaNaMTini ‖
+
+caluvayunu veDiyunu naTala saMsaaraMbu  
+t.olaku sukham.okaveLa duHkham.okaveLa ❘  
+phalamuliv.e yee r.eMDu paapamulu puNyamulu  
+pulusu deepunu galapi bhujiyiMcinaTlu ‖
+
+pagalu raatrulareeti bahujanma maraNaalu  
+tagumenu p.oDacoopu tanudaan.e t.olagu ❘  
+nagiyiMcu n.okaveLa nalagiMcu n.okaveLa  
+v.ogaru kaarapu viD.emu ubbiMcinaTlu ‖
+
+yihamu paramunu val.en.e y.ediTikallayu nijamu  
+vihariMcu bhraaMtiyunu vibhraaMtiyunu matini ❘  
+sahaja shree veMkaTeshvara nannu karuNiMpa  
+bahuvidhaMbula nannu paaliMcave ‖
+

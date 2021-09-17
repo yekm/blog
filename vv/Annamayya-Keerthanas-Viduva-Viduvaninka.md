@@ -315,3 +315,49 @@ sodiMci neesharaName c.occiti nenikanu ‖
 శ్రీదేవుడవైన శ్రీవేంకటేశ నీకు  
 సోదించి నీశరణమే చొచ్చితి నేనికను ‖  
 
+### English
+
+#### annamayya kīrtana viḍuva viḍuvaniṅka
+
+rāgaṃ: sūryakāntaṃ   
+viḍuvaviḍuvaniṅka viśhṇuḍa nīpādamulu  
+kaḍagi saṃsāravārthi kaḍumuñcukonina ‖
+
+paramātma nīvendo parākaiyunnānu  
+paraga nannindriyālu paracinānu ❘  
+dharaṇipai celaregi tanuvu vesarinānu  
+duritālu naluvaṅkaṃ doḍiki tīsinanu ‖
+
+puṭṭugu liṭṭe rānī bhuvi leka mānanī  
+vaṭṭi mudimaina rānī vayase rānī ❘  
+cuṭṭukonnabandhamulu cūḍanī vīḍanī  
+neṭṭukonnayantarātma nīku nākubodu ‖
+
+yīdehame yayina ika nokaṭainānu  
+kādu gūḍadani mukti kaḍakeginā ❘  
+śrīdevuḍavaina śrīveṅkaṭeśa nīku  
+sodiñci nīśaraṇame cocciti nenikanu ‖
+
+### PlainEnglish
+
+#### annamayya keertana viDuva viDuvaniMka
+
+raagaM: sooryakaaMtaM   
+viDuvaviDuvaniMka vishhNuDa neepaadamulu  
+kaDagi saMsaaravaarthi kaDumuMcuk.onina ‖
+
+paramaatma neev.eMdo paraakaiyunnaanu  
+paraga nanniMdriyaalu paracinaanu ❘  
+dharaNipai c.elaregi tanuvu vesarinaanu  
+duritaalu naluvaMkaM d.oDiki teesinanu ‖
+
+puTTugu liTT.e raanee bhuvi leka maananee  
+vaTTi mudimaina raanee vayase raanee ❘  
+cuTTuk.onnabaMdhamulu cooDanee veeDanee  
+n.eTTuk.onnayaMtaraatma neeku naakubodu ‖
+
+yeedehame yayina ika n.okaTainaanu  
+kaadu gooDadani mukti kaDakeginaa ❘  
+shreedevuDavaina shreeveMkaTesha neeku  
+sodiMci neesharaName c.occiti nenikanu ‖
+

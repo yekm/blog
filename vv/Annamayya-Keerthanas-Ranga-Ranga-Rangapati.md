@@ -276,3 +276,41 @@ raMganaadhaa shree raMganaadhaa
 
 రంగనాధా శ్రీ రంగనాధా  
 
+### English
+
+#### annamayya kīrtana raṅga raṅga raṅgapati
+
+rāgaṃ: sindhu bhairava  
+raṅga raṅga raṅga pati raṅganādhā nī ❘  
+siṅgārāle tarachāya śri raṅga nādhā ‖
+
+paṭṭa pagale māto paluchaga navvevu ❘  
+oṭṭulela ṭaligiriñchu vaḍi nī māṭalu viṇṭe ❘  
+raṭṭaḍivi meramīraku raṅganādhā ❘  
+raṅganādhā śrī raṅganādhā ‖
+
+kāveṭi raṅgamuna kāntapai pādālu sāchi ❘  
+rāvu povu ekkaḍiki raṅga nādhā ❘  
+śrī veṅkaṭādri mīda cheri nanu kūḍitivi ❘  
+evala chūchina nīveyiṭa raṅganādhā ‖
+
+raṅganādhā śrī raṅganādhā  
+### PlainEnglish
+
+#### annamayya keertana raMga raMga raMgapati
+
+raagaM: siMdhu bhairava  
+raMga raMga raMga pati raMganaadhaa nee ❘  
+siMgaaraal.e tarachaaya shri raMga naadhaa ‖
+
+paTTa pagale maato paluchaga navvevu ❘  
+.oTTulela TaligiriMchu vaDi nee maaTalu viMT.e ❘  
+raTTaDivi merameeraku raMganaadhaa ❘  
+raMganaadhaa shree raMganaadhaa ‖
+
+kaaveTi raMgamuna kaaMtapai paadaalu saachi ❘  
+raavu povu .ekkaDiki raMga naadhaa ❘  
+shree veMkaTaadri meeda cheri nanu kooDitivi ❘  
+evala choochina neeveyiTa raMganaadhaa ‖
+
+raMganaadhaa shree raMganaadhaa  

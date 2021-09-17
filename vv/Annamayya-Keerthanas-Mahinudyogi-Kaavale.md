@@ -302,3 +302,47 @@ paraga saMshayiMchite paashhaMDuDaunu ‖
 పరగ సంశయించితే పాషండుడౌను ‖  
 
 
+### English
+
+#### annamayya kīrtana mahinudyogi kāvale
+
+mahinudyogi kāvale manujuḍaina vāḍu ❘  
+sahaji vale nuṇḍi emi sādhiñchaleḍu ‖
+
+vedaki talachukuṇṭe viśhṇuḍu kānavachchu ❘  
+chedari marachite sṛśhṭi chīkaṭau ❘  
+podali naḍichitenu bhūmellā meṭṭi rāvachchu ❘  
+niduriñchite kālamu nimiśhamai tochu ‖
+
+veḍukato chadivite vedaśāstra sampannuḍau ❘  
+jāḍato nūrakuṇḍite jaḍuḍaunu ❘  
+voḍaka tapasiyaite vunnatonnatuḍau ❘  
+kūḍaka somari aite guṇahīnuḍaunu ‖
+
+muraharu golichite mokśhamu sādhiñchavachchu ❘  
+veraveragaka uṇḍite vīriḍiyaunu ❘  
+śaraṇaṇṭe śrīveṅkaṭeśvaruḍu rakśhiñchunu ❘  
+paraga saṃśayiñchite pāśhaṇḍuḍaunu ‖
+
+### PlainEnglish
+
+#### annamayya keertana mahinudyogi kaaval.e
+
+mahinudyogi kaaval.e manujuDaina vaaDu ❘  
+sahaji val.e nuMDi emi saadhiMchal.eDu ‖
+
+v.edaki talachukuMTe vishhNuDu kaanavachchu ❘  
+ch.edari marachite sRRishhTi cheekaTau ❘  
+p.odali naDichitenu bhoom.ellaa m.eTTi raavachchu ❘  
+niduriMchite kaalamu nimishhamai tochu ‖
+
+veDukato chadivite vedashaastra saMpannuDau ❘  
+jaaDato noorakuMDite jaDuDaunu ❘  
+voDaka tapasiyaite vunnatonnatuDau ❘  
+kooDaka somari aite guNaheenuDaunu ‖
+
+muraharu g.olichite mokshhamu saadhiMchavachchu ❘  
+v.erav.eragaka uMDite veeriDiyaunu ❘  
+sharaNaMTe shreeveMkaTeshvaruDu rakshhiMchunu ❘  
+paraga saMshayiMchite paashhaMDuDaunu ‖
+

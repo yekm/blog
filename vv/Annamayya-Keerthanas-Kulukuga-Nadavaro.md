@@ -315,3 +315,49 @@ samakooD.e veMkaTeshvaruDu maa yammaku ‖
 అమరించి కౌగిట నలమేలు మంగనిదె  
 సమకూడె వేంకటేశ్వరుడు మా యమ్మకు ‖  
 
+### English
+
+#### annamayya kīrtana kulukuga naḍavaro
+
+rāgaṃ: desāḻaṃ  
+kulukaka naḍavaro kommalālā ❘  
+jalajala rālīni jājulu māyammaku ‖
+
+oyyane menu gadalī noppugā naḍavaro  
+gayyāḻi śrīpādatāku kāntulālā ❘  
+payyeda ceRagu jārī bhārapu gubbala mida  
+ayyo cemariñce mā yammaku nennuduru ‖
+
+calleḍi gandavoḍiyai jārī niluvaro  
+pallaki vaṭṭina muddu baṇatulāla ❘  
+mollamaina kundanapu mutyāla kucculadara  
+gallanucu gaṅkaṇālu gadalīmāyammaku ‖
+
+jamaḻi mutyāla toḍi cammāḻiga liḍaro  
+ramaṇiki maṇula nāratu lettaro ❘  
+amariñci kaugiṭa nalamelu maṅganide  
+samakūḍe veṅkaṭeśvaruḍu mā yammaku ‖
+
+### PlainEnglish
+
+#### annamayya keertana kulukuga naDavaro
+
+raagaM: desaaLaM  
+kulukaka naDavaro k.ommalaalaa ❘  
+jalajala raaleeni jaajulu maayammaku ‖
+
+.oyyane menu gadalee n.oppugaa naDavaro  
+gayyaaLi shreepaadataaku kaaMtulaalaa ❘  
+payy.eda c.eRagu jaaree bhaarapu gubbala mida  
+ayyo c.emariMc.e maa yammaku n.ennuduru ‖
+
+call.eDi gaMdav.oDiyai jaaree niluvaro  
+pallaki vaTTina muddu baNatulaala ❘  
+m.ollamaina kuMdanapu mutyaala kucculadara  
+gallanucu gaMkaNaalu gadaleemaayammaku ‖
+
+jamaLi mutyaala toDi cammaaLiga liDaro  
+ramaNiki maNula naaratu l.ettaro ❘  
+amariMci kaugiTa nalamelu maMganid.e  
+samakooD.e veMkaTeshvaruDu maa yammaku ‖
+

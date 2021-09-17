@@ -731,3 +731,141 @@ stotraM paThitvaa manujo.atibhaktyaa phalaM tadaalokya nijaM bhajechcha ‖
 స్తోత్రం పఠిత్వా మనుజోఽతిభక్త్యా ఫలం తదాలోక్య నిజం భజేచ్చ ‖  
 
 
+### English
+
+#### dvādaśa jyotirliṅga stotram
+
+laghu stotram  
+saurāśhṭre somanādhañca śrīśaile mallikārjunam ❘  
+ujjayinyāṃ mahākālaṃ oṅkāretvamāmaleśvaram ‖
+
+parlyāṃ vaidyanādhañca ḍhākinyāṃ bhīma śaṅkaram ❘  
+setubandhetu rāmeśaṃ nāgeśaṃ dārukāvane ‖
+
+vāraṇāśyāntu viśveśaṃ trayambakaṃ gautamītaṭe ❘  
+himālayetu kedāraṃ ghṛśhṇeśantu viśālake ‖
+
+etāni jyotirliṅgāni sāyaṃ prātaḥ paṭhennaraḥ ❘  
+sapta janma kṛtaṃ pāpaṃ smaraṇena vinaśyati ‖
+
+sampūrṇa stotram  
+saurāśhṭradeśe viśadeatiramye jyotirmayaṃ chandrakaḻāvataṃsam ❘  
+bhaktapradānāya kṛpāvatīrṇaṃ taṃ somanāthaṃ śaraṇaṃ prapadye 
+‖ 1 ‖
+
+śrīśailaśṛṅge vividhaprasaṅge śeśhādriśṛṅgeapi sadā vasantam ❘  
+tamarjunaṃ mallikapūrvamenaṃ namāmi saṃsārasamudrasetum 
+‖ 2 ‖
+
+avantikāyāṃ vihitāvatāraṃ muktipradānāya cha sajjanānām ❘  
+akālamṛtyoḥ parirakśhaṇārthaṃ vande mahākālamahāsureśam 
+‖ 3 ‖
+
+kāverikānarmadayoḥ pavitre samāgame sajjanatāraṇāya ❘  
+sadaiva māndhātṛpure vasantaṃ oṅkāramīśaṃ śivamekamīḍe 
+‖ 4 ‖
+
+pūrvottare prajvalikānidhāne sadā vasaṃ taṃ girijāsametam ❘  
+surāsurārādhitapādapadmaṃ śrīvaidyanāthaṃ tamahaṃ namāmi 
+‖ 5 ‖
+
+yaṃ ḍākiniśākinikāsamāje niśhevyamāṇaṃ piśitāśanaiścha ❘  
+sadaiva bhīmādipadaprasiddhaṃ taṃ śaṅkaraṃ bhaktahitaṃ namāmi 
+‖ 6 ‖
+
+śrītāmraparṇījalarāśiyoge nibadhya setuṃ viśikhairasaṅkhyaiḥ ❘  
+śrīrāmachandreṇa samarpitaṃ taṃ rāmeśvarākhyaṃ niyataṃ namāmi 
+‖ 7 ‖
+
+yāmye sadaṅge nagareatiramye vibhūśhitāṅgaṃ vividhaiścha bhogaiḥ ❘  
+sadbhaktimuktipradamīśamekaṃ śrīnāganāthaṃ śaraṇaṃ prapadye 
+‖ 8 ‖
+
+sānandamānandavane vasantaṃ ānandakandaṃ hatapāpabṛndam ❘  
+vārāṇasīnāthamanāthanāthaṃ śrīviśvanāthaṃ śaraṇaṃ prapadye 
+‖ 9 ‖
+
+sahyādriśīrśhe vimale vasantaṃ godāvaritīrapavitradeśe ❘  
+yaddarśanāt pātakaṃ pāśu nāśaṃ prayāti taṃ tryambakamīśamīḍe 
+‖ 10 ‖
+
+mahādripārśve cha taṭe ramantaṃ sampūjyamānaṃ satataṃ munīndraiḥ ❘  
+surāsurairyakśha mahoragāḍhyaiḥ kedāramīśaṃ śivamekamīḍe 
+‖ 11 ‖
+
+ilāpure ramyaviśālakeasmin samullasantaṃ cha jagadvareṇyam ❘  
+vande mahodāratarasvabhāvaṃ ghṛśhṇeśvarākhyaṃ śaraṇaṃ prapadye 
+‖ 12 ‖
+
+jyotirmayadvādaśaliṅgakānāṃ śivātmanāṃ proktamidaṃ krameṇa ❘  
+stotraṃ paṭhitvā manujoatibhaktyā phalaṃ tadālokya nijaṃ bhajechcha ‖
+
+### PlainEnglish
+
+#### dvaadasha jyotirliMga stotram
+
+laghu stotram  
+sauraashhTre somanaadhaMca shreeshaile mallikaarjunam ❘  
+ujjayinyaaM mahaakaalaM oMkaaretvamaamaleshvaram ‖
+
+parlyaaM vaidyanaadhaMca DhaakinyaaM bheema shaMkaram ❘  
+setubaMdhetu raameshaM naageshaM daarukaavane ‖
+
+vaaraNaashyaaMtu vishveshaM trayaMbakaM gautameetaTe ❘  
+himaalayetu kedaaraM ghRRishhNeshaMtu vishaalake ‖
+
+etaani jyotirliMgaani saayaM praataH paThennaraH ❘  
+sapta janma kRRitaM paapaM smaraNena vinashyati ‖
+
+saMpoorNa stotram  
+sauraashhTradeshe vishade.atiramye jyotirmayaM chaMdrakaLaavataMsam ❘  
+bhaktapradaanaaya kRRipaavateerNaM taM somanaathaM sharaNaM prapadye 
+‖ 1 ‖
+
+shreeshailashRRiMge vividhaprasaMge sheshhaadrishRRiMge.api sadaa vasaMtam ❘  
+tamarjunaM mallikapoorvamenaM namaami saMsaarasamudrasetum 
+‖ 2 ‖
+
+avaMtikaayaaM vihitaavataaraM muktipradaanaaya cha sajjanaanaam ❘  
+akaalamRRityoH parirakshhaNaarthaM vaMde mahaakaalamahaasuresham 
+‖ 3 ‖
+
+kaaverikaanarmadayoH pavitre samaagame sajjanataaraNaaya ❘  
+sadaiva maaMdhaatRRipure vasaMtaM oMkaarameeshaM shivamekameeDe 
+‖ 4 ‖
+
+poorvottare prajvalikaanidhaane sadaa vasaM taM girijaasametam ❘  
+suraasuraaraadhitapaadapadmaM shreevaidyanaathaM tamahaM namaami 
+‖ 5 ‖
+
+yaM Daakinishaakinikaasamaaje nishhevyamaaNaM pishitaashanaishcha ❘  
+sadaiva bheemaadipadaprasiddhaM taM shaMkaraM bhaktahitaM namaami 
+‖ 6 ‖
+
+shreetaamraparNeejalaraashiyoge nibadhya setuM vishikhairasaMkhyaiH ❘  
+shreeraamachaMdreNa samarpitaM taM raameshvaraakhyaM niyataM namaami 
+‖ 7 ‖
+
+yaamye sadaMge nagare.atiramye vibhooshhitaaMgaM vividhaishcha bhogaiH ❘  
+sadbhaktimuktipradameeshamekaM shreenaaganaathaM sharaNaM prapadye 
+‖ 8 ‖
+
+saanaMdamaanaMdavane vasaMtaM aanaMdakaMdaM hatapaapabRRiMdam ❘  
+vaaraaNaseenaathamanaathanaathaM shreevishvanaathaM sharaNaM prapadye 
+‖ 9 ‖
+
+sahyaadrisheershhe vimale vasaMtaM godaavariteerapavitradeshe ❘  
+yaddarshanaat paatakaM paashu naashaM prayaati taM tryaMbakameeshameeDe 
+‖ 10 ‖
+
+mahaadripaarshve cha taTe ramaMtaM saMpoojyamaanaM satataM muneeMdraiH ❘  
+suraasurairyakshha mahoragaaDhyaiH kedaarameeshaM shivamekameeDe 
+‖ 11 ‖
+
+ilaapure ramyavishaalake.asmin samullasaMtaM cha jagadvareNyam ❘  
+vaMde mahodaaratarasvabhaavaM ghRRishhNeshvaraakhyaM sharaNaM prapadye 
+‖ 12 ‖
+
+jyotirmayadvaadashaliMgakaanaaM shivaatmanaaM proktamidaM krameNa ❘  
+stotraM paThitvaa manujo.atibhaktyaa phalaM tadaalokya nijaM bhajechcha ‖
+

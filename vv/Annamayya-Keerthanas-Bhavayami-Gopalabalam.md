@@ -276,3 +276,43 @@ parama purushhaM gopaalabaalaM ‖
 తిరువేంకటాచల స్థితం అనుపమం హరిం  
 పరమ పురుషం గోపాలబాలం ‖  
 
+### English
+
+#### annamayya kīrtana bhāvayāmi gopālabālaṃ
+
+kūrpu: śrī annamāchāryulavāru   
+rāgaṃ: yamunā kaḻyāṇi   
+tāḻaṃ: ādi   
+bhāvayāmi gopālabālaṃ mana-  
+ssevitaṃ tatpadaṃ chintayehaṃ sadā ‖
+
+kaṭi ghaṭita mekhalā khachitamaṇi ghaṇṭikā-   
+paṭala ninadena vibhrājamānaṃ ❘  
+kuṭila pada ghaṭita saṅkula śiñjitenataṃ   
+chaṭula naṭanā samujjvala vilāsaṃ ‖
+
+niratakara kalita navanītaṃ brahmādi   
+sura nikara bhāvanā śobhita padaṃ ❘  
+tiruveṅkaṭāchala sthitaṃ anupamaṃ hariṃ   
+parama puruśhaṃ gopālabālaṃ ‖
+
+### PlainEnglish
+
+#### annamayya keertana bhaavayaami gopaalabaalaM
+
+koorpu: shree annamaachaaryulavaaru   
+raagaM: yamunaa kaLyaaNi   
+taaLaM: aadi   
+bhaavayaami gopaalabaalaM mana-  
+ssevitaM tatpadaM chiMtayehaM sadaa ‖
+
+kaTi ghaTita mekhalaa khachitamaNi ghaMTikaa-   
+paTala ninadena vibhraajamaanaM ❘  
+kuTila pada ghaTita saMkula shiMjitenataM   
+chaTula naTanaa samujjvala vilaasaM ‖
+
+niratakara kalita navaneetaM brahmaadi   
+sura nikara bhaavanaa shobhita padaM ❘  
+tiruveMkaTaachala sthitaM anupamaM hariM   
+parama purushhaM gopaalabaalaM ‖
+

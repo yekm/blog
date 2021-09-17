@@ -367,3 +367,75 @@ saccinmayaM devamanaMtaroopaM baalaM mukuMdaM manasaa smaraami ‖ 8 ‖
 ఆలోక్య మాతుర్ముఖమాదరేణ స్తన్యం పిబంతం సరసీరుహాక్షమ్ ❘  
 సచ్చిన్మయం దేవమనంతరూపం బాలం ముకుందం మనసా స్మరామి ‖ 8 ‖  
 
+### English
+
+#### bāla mukundāśhṭakam
+
+karāravindena padāravindaṃ mukhāravinde viniveśayantam ❘  
+vaṭasya patrasya puṭe śayānaṃ bālaṃ mukundaṃ manasā smarāmi 
+‖ 1 ‖
+
+saṃhṛtya lokānvaṭapatramadhye śayānamādyantavihīnarūpam ❘  
+sarveśvaraṃ sarvahitāvatāraṃ bālaṃ mukundaṃ manasā smarāmi 
+‖ 2 ‖
+
+indīvaraśyāmalakomalāṅgaṃ indrādidevārcitapādapadmam ❘  
+santānakalpadrumamāśritānāṃ bālaṃ mukundaṃ manasā smarāmi 
+‖ 3 ‖
+
+lambālakaṃ lambitahārayaśhṭiṃ śṛṅgāralīlāṅkitadantapaṅktim ❘  
+bimbādharaṃ cāruviśālanetraṃ bālaṃ mukundaṃ manasā smarāmi 
+‖ 4 ‖
+
+śikye nidhāyādyapayodadhīni bahirgatāyāṃ vrajanāyikāyām ❘  
+bhuktvā yatheśhṭaṃ kapaṭena suptaṃ bālaṃ mukundaṃ manasā smarāmi 
+‖ 5 ‖
+
+kalindajāntasthitakāliyasya phaṇāgraraṅgenaṭanapriyantam ❘  
+tatpucChahastaṃ śaradinduvaktraṃ bālaṃ mukundaṃ manasā smarāmi 
+‖ 6 ‖
+
+ulūkhale baddhamudāraśauryaṃ uttuṅgayugmārjuna bhaṅgalīlam ❘  
+utphullapadmāyata cārunetraṃ bālaṃ mukundaṃ manasā smarāmi 
+‖ 7 ‖
+
+ālokya māturmukhamādareṇa stanyaṃ pibantaṃ sarasīruhākśham ❘  
+saccinmayaṃ devamanantarūpaṃ bālaṃ mukundaṃ manasā smarāmi 
+‖ 8 ‖
+
+### PlainEnglish
+
+#### baala mukundaashhTakam
+
+karaaraviMdena padaaraviMdaM mukhaaraviMde viniveshayaMtam ❘  
+vaTasya patrasya puTe shayaanaM baalaM mukuMdaM manasaa smaraami 
+‖ 1 ‖
+
+saMhRRitya lokaanvaTapatramadhye shayaanamaadyaMtaviheenaroopam ❘  
+sarveshvaraM sarvahitaavataaraM baalaM mukuMdaM manasaa smaraami 
+‖ 2 ‖
+
+iMdeevarashyaamalakomalaaMgaM iMdraadidevaarcitapaadapadmam ❘  
+saMtaanakalpadrumamaashritaanaaM baalaM mukuMdaM manasaa smaraami 
+‖ 3 ‖
+
+laMbaalakaM laMbitahaarayashhTiM shRRiMgaaraleelaaMkitadaMtapaMktim ❘  
+biMbaadharaM caaruvishaalanetraM baalaM mukuMdaM manasaa smaraami 
+‖ 4 ‖
+
+shikye nidhaayaadyapayodadheeni bahirgataayaaM vrajanaayikaayaam ❘  
+bhuktvaa yatheshhTaM kapaTena suptaM baalaM mukuMdaM manasaa smaraami 
+‖ 5 ‖
+
+kaliMdajaaMtasthitakaaliyasya phaNaagraraMgenaTanapriyaMtam ❘  
+tatpucChahastaM sharadiMduvaktraM baalaM mukuMdaM manasaa smaraami 
+‖ 6 ‖
+
+ulookhale baddhamudaarashauryaM uttuMgayugmaarjuna bhaMgaleelam ❘  
+utphullapadmaayata caarunetraM baalaM mukuMdaM manasaa smaraami 
+‖ 7 ‖
+
+aalokya maaturmukhamaadareNa stanyaM pibaMtaM saraseeruhaakshham ❘  
+saccinmayaM devamanaMtaroopaM baalaM mukuMdaM manasaa smaraami 
+‖ 8 ‖
+

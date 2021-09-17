@@ -601,3 +601,123 @@ shaMkarasevaka shaMkara racitaM paThati sukheeH tava iti ca samaaptaH ‖ 14 ‖
 గంగాస్తోత్రమిదం భవసారం వాంఛితఫలదం విమలం సారమ్ ❘  
 శంకరసేవక శంకర రచితం పఠతి సుఖీః తవ ఇతి చ సమాప్తః ‖ 14 ‖  
 
+### English
+
+#### gaṅgā stotram
+
+devi! sureśvari! bhagavati! gaṅge tribhuvanatāriṇi taraḻataraṅge ❘  
+śaṅkaramauḻivihāriṇi vimale mama matirāstāṃ tava padakamale 
+‖ 1 ‖
+
+bhāgīrathisukhadāyini mātastava jalamahimā nigame khyātaḥ ❘  
+nāhaṃ jāne tava mahimānaṃ pāhi kṛpāmayi māmaGYānam 
+‖ 2 ‖
+
+haripadapādyataraṅgiṇi gaṅge himavidhumuktādhavaḻataraṅge ❘  
+dūrīkuru mama duśhkṛtibhāraṃ kuru kṛpayā bhavasāgarapāram 
+‖ 3 ‖
+
+tava jalamamalaṃ yena nipītaṃ paramapadaṃ khalu tena gṛhītam ❘  
+mātargaṅge tvayi yo bhaktaḥ kila taṃ draśhṭuṃ na yamaḥ śaktaḥ 
+‖ 4 ‖
+
+patitoddhāriṇi jāhnavi gaṅge khaṇḍita girivaramaṇḍita bhaṅge ❘  
+bhīśhmajanani he munivarakanye patitanivāriṇi tribhuvana dhanye 
+‖ 5 ‖
+
+kalpalatāmiva phaladāṃ loke praṇamati yastvāṃ na patati śoke ❘  
+pārāvāravihāriṇi gaṅge vimukhayuvati kṛtataralāpāṅge 
+‖ 6 ‖
+
+tava cenmātaḥ srotaḥ snātaḥ punarapi jaṭhare sopi na jātaḥ ❘  
+narakanivāriṇi jāhnavi gaṅge kaluśhavināśini mahimottuṅge 
+‖ 7 ‖
+
+punarasadaṅge puṇyataraṅge jaya jaya jāhnavi karuṇāpāṅge ❘  
+indramukuṭamaṇirājitacaraṇe sukhade śubhade bhṛtyaśaraṇye 
+‖ 8 ‖
+
+rogaṃ śokaṃ tāpaṃ pāpaṃ hara me bhagavati kumatikalāpam ❘  
+tribhuvanasāre vasudhāhāre tvamasi gatirmama khalu saṃsāre 
+‖ 9 ‖
+
+alakānande paramānande kuru karuṇāmayi kātaravandye ❘  
+tava taṭanikaṭe yasya nivāsaḥ khalu vaikuṇṭhe tasya nivāsaḥ 
+‖ 10 ‖
+
+varamiha nīre kamaṭho mīnaḥ kiṃ vā tīre śaraṭaḥ kśhīṇaḥ ❘  
+athavāśvapaco malino dīnastava na hi dūre nṛpatikulīnaḥ 
+‖ 11 ‖
+
+bho bhuvaneśvari puṇye dhanye devi dravamayi munivarakanye ❘  
+gaṅgāstavamimamamalaṃ nityaṃ paṭhati naro yaḥ sa jayati satyam 
+‖ 12 ‖
+
+yeśhāṃ hṛdaye gaṅgā bhaktisteśhāṃ bhavati sadā sukhamuktiḥ ❘  
+madhurākantā pañjhaṭikābhiḥ paramānandakalitalalitābhiḥ 
+‖ 13 ‖
+
+gaṅgāstotramidaṃ bhavasāraṃ vāñChitaphaladaṃ vimalaṃ sāram ❘  
+śaṅkarasevaka śaṅkara racitaṃ paṭhati sukhīḥ tava iti ca samāptaḥ 
+‖ 14 ‖
+
+### PlainEnglish
+
+#### gaMgaa stotram
+
+devi! sureshvari! bhagavati! gaMge tribhuvanataariNi taraLataraMge ❘  
+shaMkaramauLivihaariNi vimale mama matiraastaaM tava padakamale 
+‖ 1 ‖
+
+bhaageerathisukhadaayini maatastava jalamahimaa nigame khyaataH ❘  
+naahaM jaane tava mahimaanaM paahi kRRipaamayi maamagnyaanam 
+‖ 2 ‖
+
+haripadapaadyataraMgiNi gaMge himavidhumuktaadhavaLataraMge ❘  
+dooreekuru mama dushhkRRitibhaaraM kuru kRRipayaa bhavasaagarapaaram 
+‖ 3 ‖
+
+tava jalamamalaM yena nipeetaM paramapadaM khalu tena gRRiheetam ❘  
+maatargaMge tvayi yo bhaktaH kila taM drashhTuM na yamaH shaktaH 
+‖ 4 ‖
+
+patitoddhaariNi jaahnavi gaMge khaMDita girivaramaMDita bhaMge ❘  
+bheeshhmajanani he munivarakanye patitanivaariNi tribhuvana dhanye 
+‖ 5 ‖
+
+kalpalataamiva phaladaaM loke praNamati yastvaaM na patati shoke ❘  
+paaraavaaravihaariNi gaMge vimukhayuvati kRRitataralaapaaMge 
+‖ 6 ‖
+
+tava cenmaataH srotaH snaataH punarapi jaThare sopi na jaataH ❘  
+narakanivaariNi jaahnavi gaMge kalushhavinaashini mahimottuMge 
+‖ 7 ‖
+
+punarasadaMge puNyataraMge jaya jaya jaahnavi karuNaapaaMge ❘  
+iMdramukuTamaNiraajitacaraNe sukhade shubhade bhRRityasharaNye 
+‖ 8 ‖
+
+rogaM shokaM taapaM paapaM hara me bhagavati kumatikalaapam ❘  
+tribhuvanasaare vasudhaahaare tvamasi gatirmama khalu saMsaare 
+‖ 9 ‖
+
+alakaanaMde paramaanaMde kuru karuNaamayi kaataravaMdye ❘  
+tava taTanikaTe yasya nivaasaH khalu vaikuMThe tasya nivaasaH 
+‖ 10 ‖
+
+varamiha neere kamaTho meenaH kiM vaa teere sharaTaH kshheeNaH ❘  
+athavaashvapaco malino deenastava na hi doore nRRipatikuleenaH 
+‖ 11 ‖
+
+bho bhuvaneshvari puNye dhanye devi dravamayi munivarakanye ❘  
+gaMgaastavamimamamalaM nityaM paThati naro yaH sa jayati satyam 
+‖ 12 ‖
+
+yeshhaaM hRRidaye gaMgaa bhaktisteshhaaM bhavati sadaa sukhamuktiH ❘  
+madhuraakaMtaa paMjhaTikaabhiH paramaanaMdakalitalalitaabhiH 
+‖ 13 ‖
+
+gaMgaastotramidaM bhavasaaraM vaaMChitaphaladaM vimalaM saaram ❘  
+shaMkarasevaka shaMkara racitaM paThati sukheeH tava iti ca samaaptaH 
+‖ 14 ‖
+

@@ -380,3 +380,71 @@ jaya jaya karuNaabdhe shree mahaadeva shaMbho ‖ 5 ‖
 విహితమవిహితం వా సర్వమేతత్-క్షమస్వ  
 జయ జయ కరుణాబ్ధే శ్రీ మహాదేవ శంభో ‖ 5 ‖  
 
+### English
+
+#### śiva mānasa pūja
+
+ratnaiḥ kalpitamāsanaṃ himajalaiḥ snānaṃ cha divyāmbaraṃ  
+nānāratna vibhūśhitaṃ mṛgamadā modāṅkitaṃ chandanam ❘  
+jātī champaka bilvapatra rachitaṃ puśhpaṃ cha dhūpaṃ tathā  
+dīpaṃ deva dayānidhe paśupate hṛtkalpitaṃ gṛhyatām 
+‖ 1 ‖
+
+sauvarṇe navaratnakhaṇḍa rachite pātre ghṛtaṃ pāyasaṃ  
+bhakśhyaṃ pañchavidhaṃ payodadhiyutaṃ rambhāphalaṃ pānakam ❘  
+śākānāmayutaṃ jalaṃ ruchikaraṃ karpūra khaṇḍojjcalaṃ  
+tāmbūlaṃ manasā mayā virachitaṃ bhaktyā prabho svīkuru 
+‖ 2 ‖
+
+Chatraṃ chāmarayoryugaṃ vyajanakaṃ chādarśakaṃ nirmalaṃ  
+vīṇā bheri mṛdaṅga kāhalakalā gītaṃ cha nṛtyaṃ tathā ❘  
+sāśhṭāṅgaṃ praṇatiḥ stuti-rbahuvidhā-hyetat-samastaṃ mayā  
+saṅkalpena samarpitaṃ tava vibho pūjāṃ gṛhāṇa prabho 
+‖ 3 ‖
+
+ātmā tvaṃ girijā matiḥ sahacharāḥ prāṇāḥ śarīraṃ gṛhaṃ  
+pūjā te viśhayopabhoga-rachanā nidrā samādhisthitiḥ ❘  
+sañchāraḥ padayoḥ pradakśhiṇavidhiḥ stotrāṇi sarvā giro  
+yadyatkarma karomi tattadakhilaṃ śambho tavārādhanam 
+‖ 4 ‖
+
+kara charaṇa kṛtaṃ vākkāyajaṃ karmajaṃ vā  
+śravaṇa nayanajaṃ vā mānasaṃ vāparādham ❘  
+vihitamavihitaṃ vā sarvametat-kśhamasva  
+jaya jaya karuṇābdhe śrī mahādeva śambho 
+‖ 5 ‖
+
+### PlainEnglish
+
+#### shiva maanasa pooja
+
+ratnaiH kalpitamaasanaM himajalaiH snaanaM cha divyaambaraM  
+naanaaratna vibhooshhitaM mRRigamadaa modaankitaM chandanam ❘  
+jaatee chaMpaka bilvapatra rachitaM pushhpaM cha dhoopaM tathaa  
+deepaM deva dayaanidhe pashupate hRRitkalpitaM gRRihyataam 
+‖ 1 ‖
+
+sauvarNe navaratnakhaNDa rachite paatre ghRRitaM paayasaM  
+bhakshhyaM panchavidhaM payodadhiyutaM rambhaaphalaM paanakam ❘  
+shaakaanaamayutaM jalaM ruchikaraM karpoora khaMDojjcalaM  
+taamboolaM manasaa mayaa virachitaM bhaktyaa prabho sveekuru 
+‖ 2 ‖
+
+ChatraM chaamarayoryugaM vyajanakaM chaadarshakaM nirmalaM  
+veeNaa bheri mRRidanga kaahalakalaa geetaM cha nRRityaM tathaa ❘  
+saashhTaangaM praNatiH stuti-rbahuvidhaa-hyetat-samastaM mayaa  
+sankalpena samarpitaM tava vibho poojaaM gRRihaaNa prabho 
+‖ 3 ‖
+
+aatmaa tvaM girijaa matiH sahacharaaH praaNaaH shareeraM gRRihaM  
+poojaa te vishhayopabhoga-rachanaa nidraa samaadhisthitiH ❘  
+sanchaaraH padayoH pradakshhiNavidhiH stotraaNi sarvaa giro  
+yadyatkarma karomi tattadakhilaM shaMbho tavaaraadhanam 
+‖ 4 ‖
+
+kara charaNa kRRitaM vaakkaayajaM karmajaM vaa  
+shravaNa nayanajaM vaa maanasaM vaaparaadham ❘  
+vihitamavihitaM vaa sarvametat-kshhamasva  
+jaya jaya karuNaabdhe shree mahaadeva shaMbho 
+‖ 5 ‖
+

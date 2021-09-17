@@ -315,3 +315,49 @@ adana gaachitivi aTTiTTanaka ‖
 ఎదుటనె శ్రీ వెంకటేశ్వర నీవదె ❘  
 అదన గాచితివి అట్టిట్టనక ‖  
 
+### English
+
+#### annamayya kīrtana antaryāmi alasiti
+
+rāgaṃ: śiva rañjani  
+antaryāmi alasiti solasiti ❘  
+intaṭa nī śaraṇide jochchitini ‖
+
+korina korkulu koyani kaṭlu ❘  
+tīravu nīvavi teñchaka ❘  
+bhārapu baggālu pāpa puṇyamulu ❘  
+nerupula bonīvu nīvu vaddanaka ‖
+
+janula saṅgamula jakka rogamulu ❘  
+vinu viḍuvavu nīvu viḍipiñchaka ❘  
+vinayapu dainyamu viḍuvani karmamu ❘  
+chanadadi nīviṭu śāntaparachaka ‖
+
+madilo chintalu mailalu maṇugulu ❘  
+vadalavu nīvavi vaddanaka ❘  
+eduṭane śrī veṅkaṭeśvara nīvade ❘  
+adana gāchitivi aṭṭiṭṭanaka ‖
+
+### PlainEnglish
+
+#### annamayya keertana aMtaryaami alasiti
+
+raagaM: shiva raMjani  
+aMtaryaami alasiti s.olasiti ❘  
+iMtaTa nee sharaNid.e j.ochchitini ‖
+
+korina korkulu koyani kaTlu ❘  
+teeravu neevavi t.eMchaka ❘  
+bhaarapu baggaalu paapa puNyamulu ❘  
+nerupula boneevu neevu vaddanaka ‖
+
+janula saMgamula jakka rogamulu ❘  
+vinu viDuvavu neevu viDipiMchaka ❘  
+vinayapu dainyamu viDuvani karmamu ❘  
+chanadadi neeviTu shaaMtaparachaka ‖
+
+madilo chiMtalu mailalu maNugulu ❘  
+vadalavu neevavi vaddanaka ❘  
+.eduTan.e shree v.eMkaTeshvara neevad.e ❘  
+adana gaachitivi aTTiTTanaka ‖
+

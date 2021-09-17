@@ -965,3 +965,221 @@ shaM dhaama bhaanumapi rundhaana maashu pada sandhaana mapyanugataa ‖ 13 ‖ s
 
 
 
+### English
+
+#### devī aśvadhāṭī (ambā stuti)
+
+(kāḻidāsa kṛtam)  
+ceṭī bhavannikhila kheṭī kadambavana vāṭīśhu nāki paṭalī  
+koṭīra cārutara koṭī maṇīkiraṇa koṭī karambita padā ❘  
+pāṭīragandhi kucaśāṭī kavitva paripāṭīmagādhipa sutā  
+ghoṭīkhurādadhika dhāṭīmudāra mukha vīṭīrasena tanutām 
+‖ 1 ‖
+
+ śā ‖
+
+dvaipāyana prabhṛti śāpāyudha tridiva sopāna dhūḻi caraṇā  
+pāpāpaha svamanu jāpānulīna jana tāpāpanoda nipuṇā ❘  
+nīpālayā surabhi dhūpālakā duritakūpādudancayatumām  
+rūpādhikā śikhari bhūpāla vaṃśamaṇi dīpāyitā bhagavatī 
+‖ 2 ‖
+
+ śā ‖
+
+yāḻībhi rātmatanutālīnakṛtpriyaka pāḻīśhu khelati bhavā  
+vyāḻī nakulyasita cūḻī bharā caraṇa dhūḻī lasanmaṇigaṇā ❘  
+yāḻī bhṛti śravasi tāḻī  daḻaṃ vahati yāḻīka śobhi tilakā  
+sāḻī karotu mama kāḻī manaḥ svapada nāḻīka sevana vidhau 
+‖ 3 ‖
+
+ śā ‖
+
+bālāmṛtāṃśu nibha phālāmanā garuṇa celā nitamba phalake  
+kolāhala kśhapita kālāmarākuśala kīlāla śośhaṇa raviḥ ❘  
+sthūlākuce jalada nīlākace kalita vīlā kadamba vipine  
+śūlāyudha praṇati śīlā dadhātu hṛdi śailādhi rāja tanayā 
+‖ 4 ‖
+
+ śā ‖
+
+kambāvatīva saviḍambā gaḻena nava tumbābha vīṇa savidhā  
+bimbādharā vinata śambāyudhādi nikurumbā kadamba vipine ❘  
+ambā kuraṅga madajambāla roci riha lambālakā diśatu me  
+śaṃ bāhuleya śaśi bimbābhi rāma mukha sambādhitā stana bharā 
+‖ 5 ‖
+
+ śā ‖
+
+dāsāyamāna sumahāsā kadambavana vāsā kusumbha sumano  
+vāsā vipañci kṛta rāsā vidhūta madhu māsāravinda madhurā ❘  
+kāsāra sūna tati bhāsābhirāma tanu rāsāra śīta karuṇā  
+nāsā maṇi pravara bhāsā śivā timira māsāye duparatim 
+‖ 6 ‖
+
+ śā ‖
+
+nyaṅkākare vapuśhi kaṅkāḻa rakta puśhi kaṅkādi pakśhi viśhaye  
+tvaṃ kāmanā mayasi kiṃ kāraṇaṃ hṛdaya paṅkāri me hi girijām ❘  
+śaṅkāśilā niśita ṭaṅkāyamāna pada saṅkāśamāna sumano  
+jhaṅkāri bhṛṅgatati maṅkānupeta śaśi saṅkāśa vaktra kamalām 
+‖ 7 ‖
+
+ śā ‖
+
+jambhāri kumbhi pṛthu kumbhāpahāsi kuca sambhāvya hāra latikā  
+rambhā karīndra kara dambhāpahorugati ḍimbhānurañjita padā ❘  
+śambhā udāra parirambhāṅkurat pulaka dambhānurāga piśunā  
+śaṃ bhāsurābharaṇa gumbhā sadā diśatu śumbhāsura praharaṇā 
+‖ 8 ‖
+
+ śā ‖
+
+dākśhāyaṇī danuja śikśhā vidhau vikṛta dīkśhā manohara guṇā  
+bhikśhāśino naṭana vīkśhā vinoda mukhi dakśhādhvara praharaṇā ❘  
+vīkśhāṃ vidhehi mayi dakśhā svakīya jana pakśhā vipakśha vimukhī  
+yakśheśa sevita nirākśhepa śakti jaya lakśhāvadhāna kalanā 
+‖ 9 ‖
+
+ śā ‖
+
+vandāru loka vara sandhāyinī vimala kundāvadāta radanā  
+bṛndāru bṛnda maṇi bṛndāravinda makarandābhiśhikta caraṇā ❘  
+mandānilā kalita mandāra dāmabhiramandābhirāma makuṭā  
+mandākinī javana bhindāna vācamaravindānanā diśatu me 
+‖ 10 ‖
+
+ śā ‖
+
+yatrāśayo lagati tatrāgajā bhavatu kutrāpi nistula śukā  
+sutrāma kāla mukha satrāsakaprakara sutrāṇa kāri caraṇā ❘  
+Chatrānilātiraya pattrābhibhirāma guṇa mitrāmarī sama vadhūḥ  
+ku trāsahīna maṇi citrākṛti sphurita putrādi dāna nipuṇā 
+‖ 11 ‖
+
+ śā ‖
+
+kūlātigāmi bhaya tūlāvaḻijvalanakīlā nijastuti vidhā  
+kolāhalakśhapita kālāmarī kuśala kīlāla pośhaṇa ratā ❘  
+sthūlākuce jalada nīlākace kalita līlā kadamba vipine  
+śūlāyudha praṇati śīlā vibhātu hṛdi śailādhirāja tanayā 
+‖ 12 ‖
+
+ śā ‖
+
+indhāna kīra maṇibandhā bhave hṛdayabandhā vatīva rasikā  
+sandhāvatī bhuvana sandhāraṇe pyamṛta sindhāvudāra nilayā ❘  
+gandhānubhāva muhurandhāli pīta kaca bandhā samarpayatu me  
+śaṃ dhāma bhānumapi rundhāna māśu pada sandhāna mapyanugatā 
+‖ 13 ‖
+
+ śā ‖
+
+### PlainEnglish
+
+#### devee ashvadhaaTee (ambaa stuti)
+
+(kaaLidaasa kRRitam)  
+ceTee bhavannikhila kheTee kadaMbavana vaaTeeshhu naaki paTalee  
+koTeera caarutara koTee maNeekiraNa koTee karaMbita padaa ❘  
+paaTeeragaMdhi kucashaaTee kavitva paripaaTeemagaadhipa sutaa  
+ghoTeekhuraadadhika dhaaTeemudaara mukha veeTeerasena tanutaam 
+‖ 1 ‖
+
+ shaa ‖
+
+dvaipaayana prabhRRiti shaapaayudha tridiva sopaana dhooLi caraNaa  
+paapaapaha svamanu jaapaanuleena jana taapaapanoda nipuNaa ❘  
+neepaalayaa surabhi dhoopaalakaa duritakoopaadudancayatumaam  
+roopaadhikaa shikhari bhoopaala vaMshamaNi deepaayitaa bhagavatee 
+‖ 2 ‖
+
+ shaa ‖
+
+yaaLeebhi raatmatanutaaleenakRRitpriyaka paaLeeshhu khelati bhavaa  
+vyaaLee nakulyasita cooLee bharaa caraNa dhooLee lasanmaNigaNaa ❘  
+yaaLee bhRRiti shravasi taaLee  daLaM vahati yaaLeeka shobhi tilakaa  
+saaLee karotu mama kaaLee manaH svapada naaLeeka sevana vidhau 
+‖ 3 ‖
+
+ shaa ‖
+
+baalaamRRitaaMshu nibha phaalaamanaa garuNa celaa nitaMba phalake  
+kolaahala kshhapita kaalaamaraakushala keelaala shoshhaNa raviH ❘  
+sthoolaakuce jalada neelaakace kalita veelaa kadaMba vipine  
+shoolaayudha praNati sheelaa dadhaatu hRRidi shailaadhi raaja tanayaa 
+‖ 4 ‖
+
+ shaa ‖
+
+kaMbaavateeva saviDaMbaa gaLena nava tuMbaabha veeNa savidhaa  
+biMbaadharaa vinata shaMbaayudhaadi nikuruMbaa kadaMba vipine ❘  
+aMbaa kuraMga madajaMbaala roci riha laMbaalakaa dishatu me  
+shaM baahuleya shashi biMbaabhi raama mukha saMbaadhitaa stana bharaa 
+‖ 5 ‖
+
+ shaa ‖
+
+daasaayamaana sumahaasaa kadaMbavana vaasaa kusuMbha sumano  
+vaasaa vipaMci kRRita raasaa vidhoota madhu maasaaraviMda madhuraa ❘  
+kaasaara soona tati bhaasaabhiraama tanu raasaara sheeta karuNaa  
+naasaa maNi pravara bhaasaa shivaa timira maasaaye duparatim 
+‖ 6 ‖
+
+ shaa ‖
+
+nyaMkaakare vapushhi kaMkaaLa rakta pushhi kaMkaadi pakshhi vishhaye  
+tvaM kaamanaa mayasi kiM kaaraNaM hRRidaya paMkaari me hi girijaam ❘  
+shaMkaashilaa nishita TaMkaayamaana pada saMkaashamaana sumano  
+jhaMkaari bhRRiMgatati maMkaanupeta shashi saMkaasha vaktra kamalaam 
+‖ 7 ‖
+
+ shaa ‖
+
+jaMbhaari kuMbhi pRRithu kuMbhaapahaasi kuca saMbhaavya haara latikaa  
+raMbhaa kareeMdra kara daMbhaapahorugati DiMbhaanuraMjita padaa ❘  
+shaMbhaa udaara pariraMbhaaMkurat pulaka daMbhaanuraaga pishunaa  
+shaM bhaasuraabharaNa guMbhaa sadaa dishatu shuMbhaasura praharaNaa 
+‖ 8 ‖
+
+ shaa ‖
+
+daakshhaayaNee danuja shikshhaa vidhau vikRRita deekshhaa manohara guNaa  
+bhikshhaashino naTana veekshhaa vinoda mukhi dakshhaadhvara praharaNaa ❘  
+veekshhaaM vidhehi mayi dakshhaa svakeeya jana pakshhaa vipakshha vimukhee  
+yakshhesha sevita niraakshhepa shakti jaya lakshhaavadhaana kalanaa 
+‖ 9 ‖
+
+ shaa ‖
+
+vaMdaaru loka vara saMdhaayinee vimala kuMdaavadaata radanaa  
+bRRiMdaaru bRRiMda maNi bRRiMdaaraviMda makaraMdaabhishhikta caraNaa ❘  
+maMdaanilaa kalita maMdaara daamabhiramaMdaabhiraama makuTaa  
+maMdaakinee javana bhiMdaana vaacamaraviMdaananaa dishatu me 
+‖ 10 ‖
+
+ shaa ‖
+
+yatraashayo lagati tatraagajaa bhavatu kutraapi nistula shukaa  
+sutraama kaala mukha satraasakaprakara sutraaNa kaari caraNaa ❘  
+Chatraanilaatiraya pattraabhibhiraama guNa mitraamaree sama vadhooH  
+ku traasaheena maNi citraakRRiti sphurita putraadi daana nipuNaa 
+‖ 11 ‖
+
+ shaa ‖
+
+koolaatigaami bhaya toolaavaLijvalanakeelaa nijastuti vidhaa  
+kolaahalakshhapita kaalaamaree kushala keelaala poshhaNa rataa ❘  
+sthoolaakuce jalada neelaakace kalita leelaa kadaMba vipine  
+shoolaayudha praNati sheelaa vibhaatu hRRidi shailaadhiraaja tanayaa 
+‖ 12 ‖
+
+ shaa ‖
+
+indhaana keera maNibandhaa bhave hRRidayabandhaa vateeva rasikaa  
+sandhaavatee bhuvana sandhaaraNe pyamRRita sindhaavudaara nilayaa ❘  
+gandhaanubhaava muhurandhaali peeta kaca bandhaa samarpayatu me  
+shaM dhaama bhaanumapi rundhaana maashu pada sandhaana mapyanugataa 
+‖ 13 ‖
+
+ shaa ‖
+

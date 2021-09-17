@@ -289,3 +289,47 @@ naakajanananuta namo namo ‖
 శ్రీకరగుణనిధి శ్రీ వేంకటేశ్వర  
 నాకజనననుత నమో నమో ‖  
 
+### English
+
+#### annamayya kīrtana navanītachorā namo namo
+
+navanītacora namo namo  
+navamahimārṇava namo namo ‖
+
+hari nārāyaṇa keśavācyuta śrīkṛśhṇa  
+narasiṃha vāmana namo namo ❘  
+murahara padma nābha mukunda govinda  
+naranārāyaṇarūpa namo namo ‖
+
+nigamagocara viśhṇu nīrajākśha vāsudeva  
+nagadhara nandagopa namo namo ❘  
+triguṇātīta deva trivikrama dvāraka  
+nagarādhināyaka namo namo ‖
+
+vaikuṇṭha rukmiṇīvallabha cakradhara  
+nākeśavandita namo namo ❘  
+śrīkaraguṇanidhi śrī veṅkaṭeśvara  
+nākajanananuta namo namo ‖
+
+### PlainEnglish
+
+#### annamayya keertana navaneetachoraa namo namo
+
+navaneetacora namo namo  
+navamahimaarNava namo namo ‖
+
+hari naaraayaNa keshavaacyuta shreekRRishhNa  
+narasiMha vaamana namo namo ❘  
+murahara padma naabha mukuMda goviMda  
+naranaaraayaNaroopa namo namo ‖
+
+nigamagocara vishhNu neerajaakshha vaasudeva  
+nagadhara naMdagopa namo namo ❘  
+triguNaateeta deva trivikrama dvaaraka  
+nagaraadhinaayaka namo namo ‖
+
+vaikuMTha rukmiNeevallabha cakradhara  
+naakeshavaMdita namo namo ❘  
+shreekaraguNanidhi shree veMkaTeshvara  
+naakajanananuta namo namo ‖
+

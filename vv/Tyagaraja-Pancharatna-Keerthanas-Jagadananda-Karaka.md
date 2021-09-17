@@ -822,3 +822,99 @@ jagadaanaMda kaarakaa
 జయ జానకీ ప్రాణ నాయకా  
 జగదానంద కారకా  
 
+### English
+
+#### tyāgarāja pañcharatna kīrtana jagadānanda kāraka
+
+kūrpu: śrī tyāgarājācāryulu   
+rāgaṃ: nāṭṭai  
+tāḻaṃ: ādi  
+jagadānanda kārakā  
+jaya jānakī prāṇa nāyakā  
+jagadānanda kārakā  
+gaganādhipa satkulaja rāja rājeśvara   
+suguṇākara surasevya bhavya dāyaka   
+sadā sakala jagadānanda kārakā  
+amara tāraka nicaya kumuda hita paripūrṇa naga sura surabhūja  
+dadhi payodhi vāsa haraṇa sundaratara vadana sudhāmaya vaco  
+bṛnda govinda sānanda mā varājarāpta śubhakarāneka  
+jagadānanda kārakā   
+nigama nīrajāmṛtaja pośhakā nimiśavairi vārida samīraṇa   
+khaga turaṅga satkavi hṛdālayā gaṇita vānarādhipa natāṅghriyuga   
+jagadānanda kārakā   
+indra nīlamaṇi sannibhāpa ghana candra sūrya nayanāprameya   
+vāgīndra janaka sakaleśa śubhra nāgendra śayana śamana vairi sannuta   
+jagadānanda kārakā   
+pāda vijita mauni śāpa sava paripāla vara mantra grahaṇa lola   
+parama śānta citta janakajādhipa sarojabhava varadākhila   
+jagadānanda kārakā   
+sṛśhṭi sthityantakāra kāmita kāmita phaladā samāna gātra   
+śacīpati nutābdhi mada harā nurāgarāga rājitakadhā sārahita   
+jagadānanda kārakā   
+sajjana mānasābdhi sudhākara kusuma vimāna surasāripu karābja   
+lālita caraṇāva guṇa suragaṇa mada haraṇa sanātanā januta   
+jagadānanda kārakā   
+oṅkāra pañjara kīra pura hara saroja bhava keśavādi rūpa   
+vāsavaripu janakāntaka kalādharāpta karuṇākara śaraṇāgata   
+janapālana sumano ramaṇa nirvikāra nigama sāratara   
+jagadānanda kārakā   
+karadhṛta śarajālā sura madāpa haraṇa vanīsura surāvana   
+kavīna bilaja mauni kṛta caritra sannuta śrī tyāgarājanuta   
+jagadānanda kārakā   
+purāṇa puruśha nṛvarātmaja śrita parādhīna kara virādha rāvaṇa   
+virāvaṇa nagha parāśara manohara vikṛta tyāgarāja sannuta   
+jagadānanda kārakā   
+agaṇita guṇa kanaka cela sāla viḍalanāruṇābha samāna caraṇāpāra   
+mahimādbhuta sukavijana hṛtsadana sura munigaṇa vihita kalaśa   
+nīra nidhijā ramaṇa pāpa gaja nṛsiṃha vara tyāgarājādhinuta   
+jagadānanda kārakā   
+jaya jānakī prāṇa nāyakā  
+jagadānanda kārakā   
+### PlainEnglish
+
+#### tyaagaraaja pancharatna keertana jagadaanaMda kaaraka
+
+koorpu: shree tyaagaraajaacaaryulu   
+raagaM: naaTTai  
+taaLaM: aadi  
+jagadaanaMda kaarakaa  
+jaya jaanakee praaNa naayakaa  
+jagadaanaMda kaarakaa  
+gaganaadhipa satkulaja raaja raajeshvara   
+suguNaakara surasevya bhavya daayaka   
+sadaa sakala jagadaanaMda kaarakaa  
+amara taaraka nicaya kumuda hita paripoorNa naga sura surabhooja  
+dadhi payodhi vaasa haraNa suMdaratara vadana sudhaamaya vaco  
+bRRiMda goviMda saanaMda maa varaajaraapta shubhakaraaneka  
+jagadaanaMda kaarakaa   
+nigama neerajaamRRitaja poshhakaa nimishavairi vaarida sameeraNa   
+khaga turaMga satkavi hRRidaalayaa gaNita vaanaraadhipa nataaMghriyuga   
+jagadaanaMda kaarakaa   
+iMdra neelamaNi sannibhaapa ghana caMdra soorya nayanaaprameya   
+vaageeMdra janaka sakalesha shubhra naageMdra shayana shamana vairi sannuta   
+jagadaanaMda kaarakaa   
+paada vijita mauni shaapa sava paripaala vara maMtra grahaNa lola   
+parama shaaMta citta janakajaadhipa sarojabhava varadaakhila   
+jagadaanaMda kaarakaa   
+sRRishhTi sthityaMtakaara kaamita kaamita phaladaa samaana gaatra   
+shaceepati nutaabdhi mada haraa nuraagaraaga raajitakadhaa saarahita   
+jagadaanaMda kaarakaa   
+sajjana maanasaabdhi sudhaakara kusuma vimaana surasaaripu karaabja   
+laalita caraNaava guNa suragaNa mada haraNa sanaatanaa januta   
+jagadaanaMda kaarakaa   
+oMkaara paMjara keera pura hara saroja bhava keshavaadi roopa   
+vaasavaripu janakaaMtaka kalaadharaapta karuNaakara sharaNaagata   
+janapaalana sumano ramaNa nirvikaara nigama saaratara   
+jagadaanaMda kaarakaa   
+karadhRRita sharajaalaa sura madaapa haraNa vaneesura suraavana   
+kaveena bilaja mauni kRRita caritra sannuta shree tyaagaraajanuta   
+jagadaanaMda kaarakaa   
+puraaNa purushha nRRivaraatmaja shrita paraadheena kara viraadha raavaNa   
+viraavaNa nagha paraashara manohara vikRRita tyaagaraaja sannuta   
+jagadaanaMda kaarakaa   
+agaNita guNa kanaka cela saala viDalanaaruNaabha samaana caraNaapaara   
+mahimaadbhuta sukavijana hRRitsadana sura munigaNa vihita kalasha   
+neera nidhijaa ramaNa paapa gaja nRRisiMha vara tyaagaraajaadhinuta   
+jagadaanaMda kaarakaa   
+jaya jaanakee praaNa naayakaa  
+jagadaanaMda kaarakaa   

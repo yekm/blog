@@ -432,3 +432,85 @@ maayuraarogyamaatmavijayaM ca hi tatprasaadaat ‖ 7‖
 
 ‖ ఇతి శ్రీమహాభారతే ధృతరాష్ట్రసంజయసంవాదే ద్రోణపర్వణి రాహుకవచం సంపూర్ణమ్ ‖  
 
+### English
+
+#### rāhu kavacham
+
+dhyānam  
+praṇamāmi sadā rāhuṃ śūrpākāraṃ kirīṭinam ❘  
+saiṃhikeyaṃ karālāsyaṃ lokānāmabhayapradam 
+‖ 1‖
+
+❘  
+atha rāhu kavacam ❘  
+nīlāmbaraḥ śiraḥ pātu lalāṭaṃ lokavanditaḥ ❘  
+cakśhuśhī pātu me rāhuḥ śrotre tvardhaśariravān 
+‖ 2‖
+
+nāsikāṃ me dhūmravarṇaḥ śūlapāṇirmukhaṃ mama ❘  
+jihvāṃ me siṃhikāsūnuḥ kaṇṭhaṃ me kaṭhināṅghrikaḥ 
+‖ 3‖
+
+bhujaṅgeśo bhujau pātu nīlamālyāmbaraḥ karau ❘  
+pātu vakśhaḥsthalaṃ mantrī pātu kukśhiṃ vidhuntudaḥ 
+‖ 4‖
+
+kaṭiṃ me vikaṭaḥ pātu ūrū me surapūjitaḥ ❘  
+svarbhānurjānunī pātu jaṅghe me pātu jāḍyahā 
+‖ 5‖
+
+gulphau grahapatiḥ pātu pādau me bhīśhaṇākṛtiḥ ❘  
+sarvāṇyaṅgāni me pātu nīlacandanabhūśhaṇaḥ 
+‖ 6‖
+
+phalaśrutiḥ  
+rāhoridaṃ kavacamṛddhidavastudaṃ yo   
+bhaktyā paṭhatyanudinaṃ niyataḥ śuciḥ san ❘  
+prāpnoti kīrtimatulāṃ śriyamṛddhi-  
+māyurārogyamātmavijayaṃ ca hi tatprasādāt 
+‖ 7‖
+
+
+‖ iti śrīmahābhārate dhṛtarāśhṭrasañjayasaṃvāde droṇaparvaṇi rāhukavacaṃ sampūrṇam ‖
+
+### PlainEnglish
+
+#### raahu kavacham
+
+dhyaanam  
+praNamaami sadaa raahuM shoorpaakaaraM kireeTinam ❘  
+saiMhikeyaM karaalaasyaM lokaanaamabhayapradam 
+‖ 1‖
+
+❘  
+atha raahu kavacam ❘  
+neelaambaraH shiraH paatu lalaaTaM lokavanditaH ❘  
+cakshhushhee paatu me raahuH shrotre tvardhashariravaan 
+‖ 2‖
+
+naasikaaM me dhoomravarNaH shoolapaaNirmukhaM mama ❘  
+jihvaaM me siMhikaasoonuH kaNThaM me kaThinaanghrikaH 
+‖ 3‖
+
+bhujangesho bhujau paatu neelamaalyaambaraH karau ❘  
+paatu vakshhaHsthalaM mantree paatu kukshhiM vidhuntudaH 
+‖ 4‖
+
+kaTiM me vikaTaH paatu ooroo me surapoojitaH ❘  
+svarbhaanurjaanunee paatu janghe me paatu jaaDyahaa 
+‖ 5‖
+
+gulphau grahapatiH paatu paadau me bheeshhaNaakRRitiH ❘  
+sarvaaNyangaani me paatu neelacandanabhooshhaNaH 
+‖ 6‖
+
+phalashrutiH  
+raahoridaM kavacamRRiddhidavastudaM yo   
+bhaktyaa paThatyanudinaM niyataH shuciH san ❘  
+praapnoti keertimatulaaM shriyamRRiddhi-  
+maayuraarogyamaatmavijayaM ca hi tatprasaadaat 
+‖ 7‖
+
+
+‖ iti shreemahaabhaarate dhRRitaraashhTrasanjayasaMvaade droNaparvaNi raahukavacaM sampoorNam ‖
+

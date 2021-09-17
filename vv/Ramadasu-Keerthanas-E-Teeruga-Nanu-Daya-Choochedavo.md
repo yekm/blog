@@ -211,3 +211,27 @@ bhaasura vara sadguNamulu kalgina bhadraadreeshvara raamaa
 వాసవ నుత రామదాస పోషక వందన మయోధ్య రామా  
 భాసుర వర సద్గుణములు కల్గిన భద్రాద్రీశ్వర రామా  
 
+### English
+
+#### rāmadāsu kīrtana e tīruga nanu daya chūchedavo
+
+e tīruga nanu daya cūcedavo, ina vaṃśottama rāmā  
+nā taramā bhava sāgaramīdanu, naḻina daḻekśhaṇa rāmā  
+śrī raghu nandana sītā ramaṇā, śritajana pośhaka rāmā  
+kāruṇyālaya bhakta varada ninu, kannadi kānupu rāmā  
+krūrakarmamulu neraka cesiti, neramuleñcaku rāmā  
+dāridryamu parihāramu seyave, daiva śikhāmaṇi rāmā  
+vāsava nuta rāmadāsa pośhaka vandana mayodhya rāmā  
+bhāsura vara sadguṇamulu kalgina bhadrādrīśvara rāmā  
+### PlainEnglish
+
+#### raamadaasu keertana e teeruga nanu daya chooch.edavo
+
+e teeruga nanu daya cooc.edavo, ina vaMshottama raamaa  
+naa taramaa bhava saagarameedanu, naLina daLekshhaNa raamaa  
+shree raghu naMdana seetaa ramaNaa, shritajana poshhaka raamaa  
+kaaruNyaalaya bhakta varada ninu, kannadi kaanupu raamaa  
+kroorakarmamulu neraka cesiti, neramul.eMcaku raamaa  
+daaridryamu parihaaramu seyave, daiva shikhaamaNi raamaa  
+vaasava nuta raamadaasa poshhaka vaMdana mayodhya raamaa  
+bhaasura vara sadguNamulu kalgina bhadraadreeshvara raamaa  

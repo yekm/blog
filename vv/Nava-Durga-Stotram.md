@@ -601,3 +601,97 @@ sevyamaanaa sadaa bhooyaat siddhidaa siddhidaayinee ‖
 ** సిద్ధగంధర్వయక్షాద్యైరసురైరమరైరపి ❘  
 సేవ్యమానా సదా భూయాత్ సిద్ధిదా సిద్ధిదాయినీ ‖  
 
+### English
+
+#### nava durgā stotram
+
+gaṇeśaḥ  
+haridrābhañcaturvādu hāridravasanaṃvibhum ❘  
+pāśāṅkuśadharaṃ daivaṃmodakandantameva ca ‖
+
+devī śailaputrī  
+vande vāñChitalābhāya candrārdhakṛtaśekharāṃ❘  
+vṛśhārūḍhāṃ śūladharāṃ śailaputrī yaśasvinīṃ ‖
+
+devī brahmacāriṇī  
+dadhānā karapadmābhyāmakśhamālā kamaṇḍalū ❘  
+devī prasīdatu mayi brahmacāriṇyanuttamā ‖
+
+devī candraghaṇṭeti  
+piṇḍajapravarārūḍhā candakopāstrakairyutā ❘  
+prasādaṃ tanute mahyaṃ candraghaṇṭeti viśrutā ‖
+
+devī kūśhmāṇḍā  
+surāsampūrṇakalaśaṃ rudhirāplutameva ca ❘  
+dadhānā hastapadmābhyāṃ kūśhmāṇḍā śubhadāstu me ‖
+
+devīskandamātā  
+siṃhāsanagatā nityaṃ padmāśritakaradvayā ❘  
+śubhadāstu sadā devī skandamātā yaśasvinī ‖
+
+devīkātyāyaṇī  
+candrahāsojjvalakarā śārdūlavaravāhanā ❘  
+kātyāyanī śubhaṃ dadyādevī dānavaghātinī ‖
+
+devīkālarātri  
+ekaveṇī japākarṇapūra nagnā kharāsthitā ❘  
+lambośhṭhī karṇikākarṇī tailābhyaktaśarīriṇī ‖
+
+ vāmapādollasallohalatākaṇṭakabhūśhaṇā ❘  
+vardhanamūrdhvajā kṛśhṇā kālarātrirbhayaṅkarī ‖
+
+devīmahāgaurī  
+śvete vṛśhe samārūḍhā śvetāmbaradharā śuciḥ ❘  
+mahāgaurī śubhaṃ dadyānmahādevapramodadā ‖
+
+devīsiddhidātri  
+siddhagandharvayakśhādyairasurairamarairapi ❘  
+sevyamānā sadā bhūyāt siddhidā siddhidāyinī ‖
+
+### PlainEnglish
+
+#### nava durgaa stotram
+
+gaNeshaH  
+haridraabhaMcaturvaadu haaridravasanaMvibhum ❘  
+paashaaMkushadharaM daivaMmodakaMdantameva ca ‖
+
+devee shailaputree  
+vande vaanChitalaabhaaya candraardhakRRitashekharaaM❘  
+vRRishhaarooDhaaM shooladharaaM shailaputree yashasvineeM ‖
+
+devee brahmacaariNee  
+dadhaanaa karapadmaabhyaamakshhamaalaa kamaNDaloo ❘  
+devee praseedatu mayi brahmacaariNyanuttamaa ‖
+
+devee candraghaNTeti  
+piNDajapravaraarooDhaa candakopaastrakairyutaa ❘  
+prasaadaM tanute mahyaM candraghaNTeti vishrutaa ‖
+
+devee kooshhmaaMDaa  
+suraasampoorNakalashaM rudhiraaplutameva ca ❘  
+dadhaanaa hastapadmaabhyaaM kooshhmaaNDaa shubhadaastu me ‖
+
+deveeskandamaataa  
+siMhaasanagataa nityaM padmaashritakaradvayaa ❘  
+shubhadaastu sadaa devee skandamaataa yashasvinee ‖
+
+deveekaatyaayaNee  
+candrahaasojjvalakaraa shaardoolavaravaahanaa ❘  
+kaatyaayanee shubhaM dadyaadevee daanavaghaatinee ‖
+
+deveekaalaraatri  
+ekaveNee japaakarNapoora nagnaa kharaasthitaa ❘  
+lamboshhThee karNikaakarNee tailaabhyaktashareeriNee ‖
+
+ vaamapaadollasallohalataakaNTakabhooshhaNaa ❘  
+vardhanamoordhvajaa kRRishhNaa kaalaraatrirbhayankaree ‖
+
+deveemahaagauree  
+shvete vRRishhe samaarooDhaa shvetaambaradharaa shuciH ❘  
+mahaagauree shubhaM dadyaanmahaadevapramodadaa ‖
+
+deveesiddhidaatri  
+siddhagandharvayakshhaadyairasurairamarairapi ❘  
+sevyamaanaa sadaa bhooyaat siddhidaa siddhidaayinee ‖
+

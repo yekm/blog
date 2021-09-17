@@ -315,3 +315,49 @@ gaganamu meedidi kaivalyamu ‖
 ఎగువనే శ్రీ వేంకటేశ్వరుడేలిక  
 గగనము మీదిది కైవల్యము ‖  
 
+### English
+
+#### annamayya kīrtana nānāṭi batuku
+
+rāgaṃ: mukhāri  
+nānāṭi batuku nāṭakamu  
+kānaka kannadi kaivalyamu ‖
+
+puṭṭuṭayu nijamu, povuṭayu nijamu  
+naṭṭanaḍimī pani nāṭakamu ❘  
+yeṭṭaneduṭi kaladī prapañchamu  
+kaṭṭa gaḍapaṭidi kaivalyamu ‖
+
+kuḍichedannamu koka chuṭṭeḍidi   
+naḍumantrapu pani nāṭakamu ❘  
+voḍi kaṭṭukonina ubhaya karmamulu  
+gaḍi dāṭinapuḍe kaivalyamu ‖
+
+tegadu pāpamu, tīradu puṇyamu  
+nagi nagi kālamu nāṭakamu ❘  
+eguvane śrī veṅkaṭeśvaruḍelika   
+gaganamu mīdidi kaivalyamu ‖
+
+### PlainEnglish
+
+#### annamayya keertana naanaaTi batuku
+
+raagaM: mukhaari  
+naanaaTi batuku naaTakamu  
+kaanaka kannadi kaivalyamu ‖
+
+puTTuTayu nijamu, povuTayu nijamu  
+naTTanaDimee pani naaTakamu ❘  
+y.eTTan.eduTi kaladee prapaMchamu  
+kaTTa gaDapaTidi kaivalyamu ‖
+
+kuDichedannamu koka chuTT.eDidi   
+naDumaMtrapu pani naaTakamu ❘  
+v.oDi kaTTuk.onina ubhaya karmamulu  
+gaDi daaTinapuDe kaivalyamu ‖
+
+t.egadu paapamu, teeradu puNyamu  
+nagi nagi kaalamu naaTakamu ❘  
+.eguvane shree veMkaTeshvaruDelika   
+gaganamu meedidi kaivalyamu ‖
+

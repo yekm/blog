@@ -900,3 +900,167 @@ bhuMkte shataayuraaMte shivalokameti ‖ 13 ‖
 స సర్వసౌభాగ్యఫలాని  
 భుంక్తే శతాయురాంతే శివలోకమేతి ‖ 13 ‖  
 
+### English
+
+#### umā maheśvara stotram
+
+namaḥ śivābhyāṃ navayauvanābhyāṃ   
+parasparāśliśhṭavapurdharābhyāṃ ❘  
+nagendrakanyāvṛśhaketanābhyāṃ   
+namo namaḥ śaṅkarapārvatībhyāṃ 
+‖ 1 ‖
+
+namaḥ śivābhyāṃ sarasotsavābhyāṃ   
+namaskṛtābhīśhṭavarapradābhyāṃ ❘  
+nārāyaṇenārchitapādukābhyāṃ   
+namo namaḥ śaṅkarapārvatībhyāṃ 
+‖ 2 ‖
+
+namaḥ śivābhyāṃ vṛśhavāhanābhyāṃ   
+viriñchiviśhṇvindrasupūjitābhyāṃ ❘  
+vibhūtipāṭīravilepanābhyāṃ   
+namo namaḥ śaṅkarapārvatībhyāṃ 
+‖ 3 ‖
+
+namaḥ śivābhyāṃ jagadīśvarābhyāṃ   
+jagatpatibhyāṃ jayavigrahābhyāṃ ❘  
+jambhārimukhyairabhivanditābhyāṃ   
+namo namaḥ śaṅkarapārvatībhyāṃ 
+‖ 4 ‖
+
+namaḥ śivābhyāṃ paramauśhadhābhyāṃ   
+pañchākśharīpañjararañjitābhyāṃ ❘  
+prapañchasṛśhṭisthitisaṃhṛtābhyāṃ   
+namo namaḥ śaṅkarapārvatībhyāṃ 
+‖ 5 ‖
+
+namaḥ śivābhyāmatisundarābhyāṃ   
+atyantamāsaktahṛdambujābhyāṃ ❘  
+aśeśhalokaikahitaṅkarābhyāṃ   
+namo namaḥ śaṅkarapārvatībhyāṃ 
+‖ 6 ‖
+
+namaḥ śivābhyāṃ kalināśanābhyāṃ   
+kaṅkāḻakalyāṇavapurdharābhyāṃ ❘  
+kailāsaśailasthitadevatābhyāṃ   
+namo namaḥ śaṅkarapārvatībhyāṃ 
+‖ 7 ‖
+
+namaḥ śivābhyāmaśubhāpahābhyāṃ   
+aśeśhalokaikaviśeśhitābhyāṃ ❘  
+akuṇṭhitābhyāṃ smṛtisambhṛtābhyāṃ   
+namo namaḥ śaṅkarapārvatībhyāṃ 
+‖ 8 ‖
+
+namaḥ śivābhyāṃ rathavāhanābhyāṃ   
+ravīnduvaiśvānaralochanābhyāṃ ❘  
+rākāśaśāṅkābhamukhāmbujābhyāṃ   
+namo namaḥ śaṅkarapārvatībhyāṃ 
+‖ 9 ‖
+
+namaḥ śivābhyāṃ jaṭilandharābhyāṃ   
+jarāmṛtibhyāṃ cha vivarjitābhyāṃ ❘  
+janārdanābjodbhavapūjitābhyāṃ   
+namo namaḥ śaṅkarapārvatībhyāṃ 
+‖ 10 ‖
+
+namaḥ śivābhyāṃ viśhamekśhaṇābhyāṃ   
+bilvachChadāmallikadāmabhṛdbhyāṃ ❘  
+śobhāvatīśāntavatīśvarābhyāṃ   
+namo namaḥ śaṅkarapārvatībhyāṃ 
+‖ 11 ‖
+
+namaḥ śivābhyāṃ paśupālakābhyāṃ   
+jagatrayīrakśhaṇabaddhahṛdbhyāṃ ❘  
+samastadevāsurapūjitābhyāṃ   
+namo namaḥ śaṅkarapārvatībhyāṃ 
+‖ 12 ‖
+
+stotraṃ trisandhyaṃ śivapārvatībhyāṃ   
+bhaktyā paṭheddvādaśakaṃ naro yaḥ ❘  
+sa sarvasaubhāgyaphalāni   
+bhuṅkte śatāyurānte śivalokameti 
+‖ 13 ‖
+
+### PlainEnglish
+
+#### umaa maheshvara stotram
+
+namaH shivaabhyaaM navayauvanaabhyaaM   
+parasparaashlishhTavapurdharaabhyaaM ❘  
+nageMdrakanyaavRRishhaketanaabhyaaM   
+namo namaH shaMkarapaarvateebhyaaM 
+‖ 1 ‖
+
+namaH shivaabhyaaM sarasotsavaabhyaaM   
+namaskRRitaabheeshhTavarapradaabhyaaM ❘  
+naaraayaNenaarchitapaadukaabhyaaM   
+namo namaH shaMkarapaarvateebhyaaM 
+‖ 2 ‖
+
+namaH shivaabhyaaM vRRishhavaahanaabhyaaM   
+viriMchivishhNviMdrasupoojitaabhyaaM ❘  
+vibhootipaaTeeravilepanaabhyaaM   
+namo namaH shaMkarapaarvateebhyaaM 
+‖ 3 ‖
+
+namaH shivaabhyaaM jagadeeshvaraabhyaaM   
+jagatpatibhyaaM jayavigrahaabhyaaM ❘  
+jaMbhaarimukhyairabhivaMditaabhyaaM   
+namo namaH shaMkarapaarvateebhyaaM 
+‖ 4 ‖
+
+namaH shivaabhyaaM paramaushhadhaabhyaaM   
+paMchaakshhareepaMjararaMjitaabhyaaM ❘  
+prapaMchasRRishhTisthitisaMhRRitaabhyaaM   
+namo namaH shaMkarapaarvateebhyaaM 
+‖ 5 ‖
+
+namaH shivaabhyaamatisuMdaraabhyaaM   
+atyaMtamaasaktahRRidaMbujaabhyaaM ❘  
+asheshhalokaikahitaMkaraabhyaaM   
+namo namaH shaMkarapaarvateebhyaaM 
+‖ 6 ‖
+
+namaH shivaabhyaaM kalinaashanaabhyaaM   
+kaMkaaLakalyaaNavapurdharaabhyaaM ❘  
+kailaasashailasthitadevataabhyaaM   
+namo namaH shaMkarapaarvateebhyaaM 
+‖ 7 ‖
+
+namaH shivaabhyaamashubhaapahaabhyaaM   
+asheshhalokaikavisheshhitaabhyaaM ❘  
+akuMThitaabhyaaM smRRitisaMbhRRitaabhyaaM   
+namo namaH shaMkarapaarvateebhyaaM 
+‖ 8 ‖
+
+namaH shivaabhyaaM rathavaahanaabhyaaM   
+raveeMduvaishvaanaralochanaabhyaaM ❘  
+raakaashashaaMkaabhamukhaaMbujaabhyaaM   
+namo namaH shaMkarapaarvateebhyaaM 
+‖ 9 ‖
+
+namaH shivaabhyaaM jaTilaMdharaabhyaaM   
+jaraamRRitibhyaaM cha vivarjitaabhyaaM ❘  
+janaardanaabjodbhavapoojitaabhyaaM   
+namo namaH shaMkarapaarvateebhyaaM 
+‖ 10 ‖
+
+namaH shivaabhyaaM vishhamekshhaNaabhyaaM   
+bilvachChadaamallikadaamabhRRidbhyaaM ❘  
+shobhaavateeshaaMtavateeshvaraabhyaaM   
+namo namaH shaMkarapaarvateebhyaaM 
+‖ 11 ‖
+
+namaH shivaabhyaaM pashupaalakaabhyaaM   
+jagatrayeerakshhaNabaddhahRRidbhyaaM ❘  
+samastadevaasurapoojitaabhyaaM   
+namo namaH shaMkarapaarvateebhyaaM 
+‖ 12 ‖
+
+stotraM trisaMdhyaM shivapaarvateebhyaaM   
+bhaktyaa paTheddvaadashakaM naro yaH ❘  
+sa sarvasaubhaagyaphalaani   
+bhuMkte shataayuraaMte shivalokameti 
+‖ 13 ‖
+

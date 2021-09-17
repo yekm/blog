@@ -1864,3 +1864,217 @@ Source: http://www.hindupedia.com/en/Sri_Dakshinamurthy_Stotram
 
 
 
+### English
+
+#### dakśhiṇā mūrti stotram
+
+śāntipāṭhaḥ  
+oṃ yo brahmāṇaṃ vidadhāti pūrvaṃ  
+yo vai vedāṃścha prahiṇoti tasmai ❘  
+taṃhadevamātma buddhiprakāśaṃ  
+mumukśhurvai śaraṇamahaṃ prapadye ‖
+
+dhyānam  
+oṃ maunavyākhyā prakaṭitaparabrahmatatvaṃyuvānaṃ  
+varśiśhṭhāntevasadṛśhigaṇairāvṛtaṃ brahmaniśhṭhaiḥ ❘  
+ācāryendraṃ karakalita chinmudramānandamūrtiṃ  
+svātmarāmaṃ muditavadanaṃ dakśhiṇāmūrtimīḍe ‖
+
+vaṭaviṭapisamīpe bhūmibhāge niśhaṇṇaṃ  
+sakalamunijanānāṃ GYānadātāramārāt ❘  
+tribhuvanagurumīśaṃ dakśhiṇāmūrtidevaṃ  
+jananamaraṇaduḥkhacCheda dakśhaṃ namāmi ‖
+
+citraṃ vaṭatarormūle vṛddhāḥ śiśhyāḥ gururyuvā ❘  
+gurostu maunavyākhyānaṃ śiśhyāstucChinnasaṃśayāḥ ‖
+
+oṃ namaḥ praṇavārthāya śuddhaGYānaikamūrtaye ❘  
+nirmalāya praśāntāya dakśhiṇāmūrtaye namaḥ ‖
+
+gururbrahmā gururviśhṇuḥ gururdevo maheśvaraḥ ❘  
+gurussākśhāt paraṃ brahmā tasmai śrī gurave namaḥ ‖
+
+nidhaye sarvavidyānāṃ bhiśhaje bhavarogiṇām ❘  
+gurave sarvalokānāṃ dakśhiṇāmūrtaye namaḥ ‖
+
+chidoghanāya maheśāya vaṭamūlanivāsine ❘  
+saccidānanda rūpāya dakśhiṇāmūrtaye namaḥ ‖
+
+īśvaro gururātmeti mūtribheda vibhāgine ❘  
+vyomavad vyāptadehāya dakśhiṇāmūrtaye namaḥ ‖
+
+aṅguśhthatarjanīyogamudrā vyājenayoginām ❘  
+śṛtyarthaṃ brahmajīvaikyaṃ darśayanyogatā śivaḥ ‖
+
+oṃ śāntiḥ śāntiḥ śāntiḥ ‖
+
+viśvandarpaṇa dṛśyamāna nagarī tulyaṃ nijāntargataṃ  
+paśyannātmani māyayā bahirivodbhūtaṃ yathānidrayā ❘  
+yassākśhātkurute prabhodhasamaye svātmāname vādvayaṃ  
+tasmai śrīgurumūrtaye nama idaṃ śrī dakśhiṇāmūrtaye 
+‖ 1 ‖
+
+bījasyāntati vāṅkuro jagaditaṃ prāṅnarvikalpaṃ punaḥ  
+māyākalpita deśakālakalanā vaichitryachitrīkṛtaṃ ❘  
+māyāvīva vijṛmbhayatyapi mahāyogīva yaḥ svechChayā  
+tasmai śrīgurumūrtaye nama idaṃ śrī dakśhiṇāmūrtaye 
+‖ 2 ‖
+
+yasyaiva sphuraṇaṃ sadātmakamasatkalpārthakaṃ bhāsate  
+sākśhāttatvamasīti vedavachasā yo bodhayatyāśritān ❘  
+yassākśhātkaraṇādbhavenna puranāvṛttirbhavāmbhonidhau  
+tasmai śrīgurumūrtaye nama idaṃ śrī dakśhiṇāmūrtaye 
+‖ 3 ‖
+
+nānāchChidra ghaṭodara sthita mahādīpa prabhābhāsvaraṃ  
+GYānaṃ yasya tu chakśhurādikaraṇa dvārā bahiḥ spandate ❘  
+jānāmīti tameva bhāntamanubhātyetatsamastaṃ jagat  
+tasmai śrī gurumūrtaye nama idaṃ śrī dakśhiṇāmūrtaye 
+‖ 4 ‖
+
+dehaṃ prāṇamapīndriyāṇyapi chalāṃ buddhiṃ cha śūnyaṃ viduḥ  
+strī bālāndha jaḍopamāstvahamiti bhrāntābhṛśaṃ vādinaḥ ❘  
+māyāśakti vilāsakalpita mahāvyāmoha saṃhāriṇe  
+tasmai śrī gurumūrtaye nama idaṃ śrī dakśhiṇāmūrtaye 
+‖ 5 ‖
+
+rāhugrasta divākarendu sadṛśo māyā samāchChādanāt  
+sanmātraḥ karaṇopa saṃharaṇato yoabhūtsuśhuptaḥ pumān ❘  
+prāgasvāpsamiti prabhodasamaye yaḥ pratyabhiGYāyate  
+tasmai śrī gurumūrtaye nama idaṃ śrī dakśhiṇāmūrtaye 
+‖ 6 ‖
+
+bālyādiśhvapi jāgradādiśhu tathā sarvāsvavasthāsvapi  
+vyāvṛttā svanu vartamāna mahamityantaḥ sphurantaṃ sadā ❘  
+svātmānaṃ prakaṭīkaroti bhajatāṃ yo mudrayā bhadrayā  
+tasmai śrī gurumūrtaye nama idaṃ śrī dakśhiṇāmūrtaye 
+‖ 7 ‖
+
+viśvaṃ paśyati kāryakāraṇatayā svasvāmisambandhataḥ  
+śiśhyachāryatayā tathaiva pitṛ putrādyātmanā bhedataḥ ❘  
+svapne jāgrati vā ya eśha puruśho māyā paribhrāmitaḥ  
+tasmai śrī gurumūrtaye nama idaṃ śrī dakśhiṇāmūrtaye 
+‖ 8 ‖
+
+bhūrambhāṃsyanaloaniloambara maharnātho himāṃśuḥ pumān  
+ityābhāti charācharātmakamidaṃ yasyaiva mūrtyaśhṭakam ❘  
+nānyatkiñchana vidyate vimṛśatāṃ yasmātparasmādvibho  
+tasmai gurumūrtaye nama idaṃ śrī dakśhiṇāmūrtaye 
+‖ 9 ‖
+
+sarvātmatvamiti sphuṭīkṛtamidaṃ yasmādamuśhmin stave  
+tenāsva śravaṇāttadartha mananāddhyānāccha saṅkīrtanāt ❘  
+sarvātmatvamahāvibhūti sahitaṃ syādīśvaratvaṃ svataḥ  
+siddhyettatpunaraśhṭadhā pariṇataṃ chaiśvarya mavyāhatam 
+‖ 10 ‖
+
+
+‖ iti śrīmacChaṅkarācāryaviracitaṃ dakśhiṇāmurtistotraṃ sampūrṇam ‖
+
+### PlainEnglish
+
+#### dakshhiNaa moorti stotram
+
+shaaMtipaaThaH  
+oM yo brahmaaNaM vidadhaati poorvaM  
+yo vai vedaaMshcha prahiNoti tasmai ❘  
+taMhadevamaatma buddhiprakaashaM  
+mumukshhurvai sharaNamahaM prapadye ‖
+
+dhyaanam  
+oM maunavyaakhyaa prakaTitaparabrahmatatvaMyuvaanaM  
+varshishhThaaMtevasadRRishhigaNairaavRRitaM brahmanishhThaiH ❘  
+aacaaryeMdraM karakalita chinmudramaanaMdamoortiM  
+svaatmaraamaM muditavadanaM dakshhiNaamoortimeeDe ‖
+
+vaTaviTapisameepe bhoomibhaage nishhaNNaM  
+sakalamunijanaanaaM gnyaanadaataaramaaraat ❘  
+tribhuvanagurumeeshaM dakshhiNaamoortidevaM  
+jananamaraNaduHkhacCheda dakshhaM namaami ‖
+
+citraM vaTatarormoole vRRiddhaaH shishhyaaH gururyuvaa ❘  
+gurostu maunavyaakhyaanaM shishhyaastucChinnasaMshayaaH ‖
+
+oM namaH praNavaarthaaya shuddhagnyaanaikamoortaye ❘  
+nirmalaaya prashaaMtaaya dakshhiNaamoortaye namaH ‖
+
+gururbrahmaa gururvishhNuH gururdevo maheshvaraH ❘  
+gurussaakshhaat paraM brahmaa tasmai shree gurave namaH ‖
+
+nidhaye sarvavidyaanaaM bhishhaje bhavarogiNaam ❘  
+gurave sarvalokaanaaM dakshhiNaamoortaye namaH ‖
+
+chidoghanaaya maheshaaya vaTamoolanivaasine ❘  
+saccidaanaMda roopaaya dakshhiNaamoortaye namaH ‖
+
+eeshvaro gururaatmeti mootribheda vibhaagine ❘  
+vyomavad vyaaptadehaaya dakshhiNaamoortaye namaH ‖
+
+aMgushhthatarjaneeyogamudraa vyaajenayoginaam ❘  
+shRRityarthaM brahmajeevaikyaM darshayanyogataa shivaH ‖
+
+oM shaaMtiH shaaMtiH shaaMtiH ‖
+
+vishvaMdarpaNa dRRishyamaana nagaree tulyaM nijaaMtargataM  
+pashyannaatmani maayayaa bahirivodbhootaM yathaanidrayaa ❘  
+yassaakshhaatkurute prabhodhasamaye svaatmaaname vaadvayaM  
+tasmai shreegurumoortaye nama idaM shree dakshhiNaamoortaye 
+‖ 1 ‖
+
+beejasyaaMtati vaaMkuro jagaditaM praannarvikalpaM punaH  
+maayaakalpita deshakaalakalanaa vaichitryachitreekRRitaM ❘  
+maayaaveeva vijRRiMbhayatyapi mahaayogeeva yaH svechChayaa  
+tasmai shreegurumoortaye nama idaM shree dakshhiNaamoortaye 
+‖ 2 ‖
+
+yasyaiva sphuraNaM sadaatmakamasatkalpaarthakaM bhaasate  
+saakshhaattatvamaseeti vedavachasaa yo bodhayatyaashritaan ❘  
+yassaakshhaatkaraNaadbhavenna puranaavRRittirbhavaaMbhonidhau  
+tasmai shreegurumoortaye nama idaM shree dakshhiNaamoortaye 
+‖ 3 ‖
+
+naanaachChidra ghaTodara sthita mahaadeepa prabhaabhaasvaraM  
+gnyaanaM yasya tu chakshhuraadikaraNa dvaaraa bahiH spaMdate ❘  
+jaanaameeti tameva bhaaMtamanubhaatyetatsamastaM jagat  
+tasmai shree gurumoortaye nama idaM shree dakshhiNaamoortaye 
+‖ 4 ‖
+
+dehaM praaNamapeeMdriyaaNyapi chalaaM buddhiM cha shoonyaM viduH  
+stree baalaaMdha jaDopamaastvahamiti bhraaMtaabhRRishaM vaadinaH ❘  
+maayaashakti vilaasakalpita mahaavyaamoha saMhaariNe  
+tasmai shree gurumoortaye nama idaM shree dakshhiNaamoortaye 
+‖ 5 ‖
+
+raahugrasta divaakareMdu sadRRisho maayaa samaachChaadanaat  
+sanmaatraH karaNopa saMharaNato yo.abhootsushhuptaH pumaan ❘  
+praagasvaapsamiti prabhodasamaye yaH pratyabhignyaayate  
+tasmai shree gurumoortaye nama idaM shree dakshhiNaamoortaye 
+‖ 6 ‖
+
+baalyaadishhvapi jaagradaadishhu tathaa sarvaasvavasthaasvapi  
+vyaavRRittaa svanu vartamaana mahamityaMtaH sphuraMtaM sadaa ❘  
+svaatmaanaM prakaTeekaroti bhajataaM yo mudrayaa bhadrayaa  
+tasmai shree gurumoortaye nama idaM shree dakshhiNaamoortaye 
+‖ 7 ‖
+
+vishvaM pashyati kaaryakaaraNatayaa svasvaamisaMbaMdhataH  
+shishhyachaaryatayaa tathaiva pitRRi putraadyaatmanaa bhedataH ❘  
+svapne jaagrati vaa ya eshha purushho maayaa paribhraamitaH  
+tasmai shree gurumoortaye nama idaM shree dakshhiNaamoortaye 
+‖ 8 ‖
+
+bhooraMbhaaMsyanalo.anilo.aMbara maharnaatho himaaMshuH pumaan  
+ityaabhaati charaacharaatmakamidaM yasyaiva moortyashhTakam ❘  
+naanyatkiMchana vidyate vimRRishataaM yasmaatparasmaadvibho  
+tasmai gurumoortaye nama idaM shree dakshhiNaamoortaye 
+‖ 9 ‖
+
+sarvaatmatvamiti sphuTeekRRitamidaM yasmaadamushhmin stave  
+tenaasva shravaNaattadartha mananaaddhyaanaaccha saMkeertanaat ❘  
+sarvaatmatvamahaavibhooti sahitaM syaadeeshvaratvaM svataH  
+siddhyettatpunarashhTadhaa pariNataM chaishvarya mavyaahatam 
+‖ 10 ‖
+
+
+‖ iti shreemacChaMkaraacaaryaviracitaM dakshhiNaamurtistotraM saMpoorNam ‖
+

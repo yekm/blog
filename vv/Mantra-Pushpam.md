@@ -601,3 +601,205 @@ oM shaaM _ti_ H shaaM _ti_ H shaaMti'H ❘
 
 ఓం శాం _తిః_ శాం _తిః_ శాంతిః' ❘  
 
+### English
+
+#### mantra puśhpam
+
+yo''pāṃ puśhpaṃ veda' puśhpa'vān prajāvā''n paśumān bha'vati ❘  
+chandramā vā apāṃ puśhpam'' ❘  
+puśhpa'vān prajāvā''n paśumān bha'vati ❘  
+ya evaṃ veda' ❘  
+yoapāmāyata'naṃ veda' ❘  
+ āyatana'vān bhavati ❘  
+agnirvā apāmāyata'naṃ ❘  
+āyata'navān bhavati ❘  
+yo''gnerāyata'naṃ veda' ❘  
+āyata'navān bhavati ❘  
+āpovā agnerāyata'naṃ ❘  
+āyata'navān bhavati ❘  
+ya evaṃ veda' ❘  
+yo''pāmāyata'naṃ veda' ❘  
+āyata'navān bhavati ❘  
+vāyurvā apāmāyata'nam ❘  
+āyata'navān bhavati ❘  
+yo vāyorāyata'naṃ veda' ❘  
+āyata'navān bhavati ❘  
+ āpo vai vāyorāyata'naṃ ❘  
+āyata'navān bhavati ❘  
+ya evaṃ veda' ❘  
+yo''pāmāyata'naṃ veda' ❘  
+āyata'navān bhavati ❘  
+asau vai tapa'nnapāmāyata'naṃ āyata'navān bhavati ❘  
+yo''muśhyatapa'ta āyata'naṃ veda' ❘  
+āyata'navān bhavati ❘  
+āpo' vā amuśhyatapa'ta āyata'naṃ |āyata'navān bhavati ❘  
+ya evaṃ veda' ❘  
+yo''pāmāyata'naṃ veda' ❘  
+āyata'navān bhavati ❘  
+chandramā vā apāmāyata'nam ❘  
+ āyata'navān bhavati ❘  
+yaḥ chandrama'sa āyata'naṃ veda' ❘  
+āyata'navān bhavati ❘  
+āpo vai chandrama'sa āyata'naṃ ❘  
+āyata'navān bhavati ❘  
+ya evaṃ veda' ❘  
+yo''pāmāyata'naṃ veda' ❘  
+āyata'navān bhavati ❘  
+nakśhtra'trāṇi vā apāmāyata'naṃ ❘  
+āyata'navān bhavati ❘  
+yo nakśhtra'trāṇāmāyata'naṃ veda' ❘  
+āyata'navān bhavati ❘  
+āpo vai nakśha'trāṇāmāyata'naṃ ❘  
+āyata'navān bhavati ❘  
+ya evaṃ veda' ❘  
+yo''pāmāyata'naṃ veda' ❘  
+āyata'navān bhavati ❘  
+parjanyo vā apāmāyata'naṃ ❘  
+āyata'navān bhavati ❘  
+yaḥ parjanya'syāyata'naṃ veda' ❘  
+āyata'navān bhavati ❘  
+āpo vai parjanyasyāyata'naṃ ❘  
+āyata'navān bhavati ❘  
+ya evaṃ veda' ❘  
+yo''pāmāyata'naṃ veda' ❘  
+āyata'navān bhavati ❘  
+saṃvatsaro vā apāmāyata'naṃ ❘  
+āyata'navān bhavati ❘  
+yaḥ sa'ṃvatsarasyāyata'naṃ veda' ❘  
+ āyata'navān bhavati ❘  
+āpo vai sa'ṃvatsarasyāyata'naṃ veda' ❘  
+āyata'navān bhavati ❘  
+ya evaṃ veda' ❘  
+yo'''psu nāvaṃ prati'śhṭhitāṃ veda' ❘  
+pratyeva ti'śhṭhati ❘  
+oṃ rājādhirājāya' prasahya sāhine'' ❘  
+namo' vayaṃ vai''śravaṇāya' kurmahe ❘  
+sa me kāmān kāma kāmā'ya mahyam'' ❘  
+kāmeśvaro vai''śravaṇo da'dātu ❘  
+kuberāya' vaiśravaṇāya' ❘  
+mahārājāya nama'ḥ ❘  
+o''ṃ tadbrahma ❘  
+o''ṃ tadvāyuḥ ❘  
+o''ṃ tadātmā ❘  
+o''ṃ tadsatyam ❘  
+o''ṃ tatsarvam'' ❘  
+o''ṃ tat-purornamaḥ ‖
+
+antaścharati bhūteśhu guhāyāṃ viśvamūrtiśhu  
+tvaṃ yaGYastvaṃ vaśhaṭkārastva-mindrastvagṃ   
+rudrastvaṃ viśhṇustvaṃ brahmatva'ṃ prajāpatiḥ ❘  
+tvaṃ tadāpa āpo jyotīrasoamṛtaṃ brahma bhūrbhuvassuvarom ❘  
+īśānassarva vidyānāmīśvara ssarvabhūtānāṃ  
+brahmādhipatir-brahmaṇoadhipatir-brahmā śivo me astu sadā śivom ❘  
+tadviśhnoḥ paramaṃ padagṃ sadā paśyanti  
+sūrayaḥ divīvachakśhu rātataṃ tadvi prāso  
+vipasyavo jāgṛhān satsamindhate  
+tadviśhnorya-tparamaṃ padam ❘  
+ṛtagṃ satyaṃ pa'raṃ brahma puruśha'ṃ kṛśhṇapiṅga'lam ❘  
+ūrdhvare'taṃ vi'rūpā'kśhaṃ viśvarū'pāya vai namo nama'ḥ ‖
+
+oṃ nārāyaṇāya' vidmahe' vāsudevāya' dhīmahi ❘  
+tanno' viśhṇuḥ prachodayā''t ‖
+
+oṃ śāntiḥ śāntiḥ śānti'ḥ ❘  
+### PlainEnglish
+
+#### maMtra pushhpam
+
+yo'.apaaM pushhpaM veda' pushhpa'vaan prajaavaa''n pashumaan bha'vati ❘  
+chaMdramaa vaa apaaM pushhpam'' ❘  
+pushhpa'vaan prajaavaa''n pashumaan bha'vati ❘  
+ya evaM veda' ❘  
+yo.apaamaayata'naM veda' ❘  
+ aayatana'vaan bhavati ❘  
+agnirvaa apaamaayata'naM ❘  
+aayata'navaan bhavati ❘  
+yo''gneraayata'naM veda' ❘  
+aayata'navaan bhavati ❘  
+aapovaa agneraayata'naM ❘  
+aayata'navaan bhavati ❘  
+ya evaM veda' ❘  
+yo'.apaamaayata'naM veda' ❘  
+aayata'navaan bhavati ❘  
+vaayurvaa apaamaayata'nam ❘  
+aayata'navaan bhavati ❘  
+yo vaayoraayata'naM veda' ❘  
+aayata'navaan bhavati ❘  
+ aapo vai vaayoraayata'naM ❘  
+aayata'navaan bhavati ❘  
+ya evaM veda' ❘  
+yo'.apaamaayata'naM veda' ❘  
+aayata'navaan bhavati ❘  
+asau vai tapa'nnapaamaayata'naM aayata'navaan bhavati ❘  
+yo'.amushhyatapa'ta aayata'naM veda' ❘  
+aayata'navaan bhavati ❘  
+aapo' vaa amushhyatapa'ta aayata'naM |aayata'navaan bhavati ❘  
+ya evaM veda' ❘  
+yo'.apaamaayata'naM veda' ❘  
+aayata'navaan bhavati ❘  
+chaMdramaa vaa apaamaayata'nam ❘  
+ aayata'navaan bhavati ❘  
+yaH chaMdrama'sa aayata'naM veda' ❘  
+aayata'navaan bhavati ❘  
+aapo vai chaMdrama'sa aayata'naM ❘  
+aayata'navaan bhavati ❘  
+ya evaM veda' ❘  
+yo'.apaamaayata'naM veda' ❘  
+aayata'navaan bhavati ❘  
+nakshhtra'traaNi vaa apaamaayata'naM ❘  
+aayata'navaan bhavati ❘  
+yo nakshhtra'traaNaamaayata'naM veda' ❘  
+aayata'navaan bhavati ❘  
+aapo vai nakshha'traaNaamaayata'naM ❘  
+aayata'navaan bhavati ❘  
+ya evaM veda' ❘  
+yo'.apaamaayata'naM veda' ❘  
+aayata'navaan bhavati ❘  
+parjanyo vaa apaamaayata'naM ❘  
+aayata'navaan bhavati ❘  
+yaH parjanya'syaayata'naM veda' ❘  
+aayata'navaan bhavati ❘  
+aapo vai parjanyasyaayata'naM ❘  
+aayata'navaan bhavati ❘  
+ya evaM veda' ❘  
+yo'.apaamaayata'naM veda' ❘  
+aayata'navaan bhavati ❘  
+saMvatsaro vaa apaamaayata'naM ❘  
+aayata'navaan bhavati ❘  
+yaH sa'Mvatsarasyaayata'naM veda' ❘  
+ aayata'navaan bhavati ❘  
+aapo vai sa'Mvatsarasyaayata'naM veda' ❘  
+aayata'navaan bhavati ❘  
+ya evaM veda' ❘  
+yo''.apsu naavaM prati'shhThitaaM veda' ❘  
+pratyeva ti'shhThati ❘  
+oM raajaadhiraajaaya' prasahya saahine'' ❘  
+namo' vayaM vai''shravaNaaya' kurmahe ❘  
+sa me kaamaan kaama kaamaa'ya mahyam'' ❘  
+kaameshvaro vai''shravaNo da'daatu ❘  
+kuberaaya' vaishravaNaaya' ❘  
+mahaaraajaaya nama'H ❘  
+o''M tadbrahma ❘  
+o''M tadvaayuH ❘  
+o''M tadaatmaa ❘  
+o''M tadsatyam ❘  
+o''M tatsarvam'' ❘  
+o''M tat-purornamaH ‖
+
+aMtashcharati bhooteshhu guhaayaaM vishvamoortishhu  
+tvaM yagnyastvaM vashhaTkaarastva-miMdrastvagM   
+rudrastvaM vishhNustvaM brahmatva'M prajaapatiH ❘  
+tvaM tadaapa aapo jyoteeraso.amRRitaM brahma bhoorbhuvassuvarom ❘  
+eeshaanassarva vidyaanaameeshvara ssarvabhootaanaaM  
+brahmaadhipatir-brahmaNo.adhipatir-brahmaa shivo me astu sadaa shivom ❘  
+tadvishhnoH paramaM padagM sadaa pashyaMti  
+soorayaH diveevachakshhu raatataM tadvi praaso  
+vipasyavo jaagRRihaan satsamiMdhate  
+tadvishhnorya-tparamaM padam ❘  
+RRitagM satyaM pa'raM brahma purushha'M kRRishhNapiMga'lam ❘  
+oordhvare'taM vi'roopaa'kshhaM vishvaroo'paaya vai namo nama'H ‖
+
+oM naaraayaNaaya' vidmahe' vaasudevaaya' dheemahi ❘  
+tanno' vishhNuH prachodayaa''t ‖
+
+oM shaaMtiH shaaMtiH shaaMti'H ❘  

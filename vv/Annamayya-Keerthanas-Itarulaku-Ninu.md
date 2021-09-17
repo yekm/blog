@@ -315,3 +315,51 @@ sthiru l.eruguduru ninu diruveMkaTesha ‖
 స్థిరు లెరుగుదురు నిను దిరువేంకటేశ ‖  
 
 
+### English
+
+#### annamayya kīrtana itarulaku ninu
+
+itarulaku ninu nerugadaramā ‖
+
+satatasatyavratulu sampūrṇamohavira-    
+hituleruguduru ninu nindirāramaṇā ‖
+
+nārīkaṭākśhapaṭunārācabhayarahita-   
+śūruleruguduru ninu jūceṭicūpu ❘  
+ghorasaṃsāra saṅkulaparicChedulagu-    
+dhīruleruguduru nīdivyavigrahamu ‖
+
+rāgabhogavidūra rañjitātmulu mahā-   
+bhāguleruguduru ninu braṇutiñcuvidhamu ❘  
+āgamoktaprakārābhigamyulu mahā-   
+yoguleruguduru nīvuṇḍeṭivuniki ‖
+
+paramabhāgavata padapadmasevānijā-   
+bharaṇu leruguduru nīpalikeṭipaluku ❘  
+paragunityānanda paripūrṇamānasa-   
+sthiru leruguduru ninu diruveṅkaṭeśa ‖
+
+### PlainEnglish
+
+#### annamayya keertana itarulaku ninu
+
+itarulaku ninu n.erugadaramaa ‖
+
+satatasatyavratulu saMpoorNamohavira-    
+hitul.eruguduru ninu niMdiraaramaNaa ‖
+
+naareekaTaakshhapaTunaaraacabhayarahita-   
+shoorul.eruguduru ninu jooceTicoopu ❘  
+gh.orasaMsaara saMkulaparicChedulagu-    
+dheerul.eruguduru needivyavigrahamu ‖
+
+raagabhogavidoora raMjitaatmulu mahaa-   
+bhaagul.eruguduru ninu braNutiMcuvidhamu ❘  
+aagamoktaprakaaraabhigamyulu mahaa-   
+yogul.eruguduru neevuMDeTivuniki ‖
+
+paramabhaagavata padapadmasevaanijaa-   
+bharaNu l.eruguduru neepalikeTipaluku ❘  
+paragunityaanaMda paripoorNamaanasa-   
+sthiru l.eruguduru ninu diruveMkaTesha ‖
+

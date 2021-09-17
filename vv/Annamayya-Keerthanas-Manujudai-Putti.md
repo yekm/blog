@@ -251,3 +251,37 @@ By serving lord venkateshwara, we can attain the abode of the lord which is othe
 అందమైన శ్రీ వేంకటాద్రీశు సేవించి  
 అందరాని పద మందెనటుగాన ‖  
 
+### English
+
+#### annamayya kīrtana manujuḍai puṭṭi
+
+manujuḍai puṭṭi manujuni seviñchi  
+anudinamunu duḥkhamandanelā ‖
+
+juṭṭeḍu kaḍupukai chorani choṭlu jochchi  
+paṭṭeḍu kūṭikai batimāli ❘  
+puṭṭina choṭike porali manasuveṭṭi  
+vaṭṭi lampaṭamu vadalaneraḍugāna ‖
+
+andarilo puṭṭi andarilo cheri  
+andari rūpamulaṭu tānai ❘  
+andamaina śrī veṅkaṭādrīśu seviñchi  
+andarāni pada mandenaṭugāna ‖
+
+### PlainEnglish
+
+#### annamayya keertana manujuDai puTTi
+
+manujuDai puTTi manujuni seviMchi  
+anudinamunu duHkhamaMdanelaa ‖
+
+juTT.eDu kaDupukai ch.orani choTlu j.ochchi  
+paTT.eDu kooTikai batimaali ❘  
+puTTina choTike p.orali manasuv.eTTi  
+vaTTi laMpaTamu vadalaneraDugaana ‖
+
+aMdarilo puTTi aMdarilo cheri  
+aMdari roopamulaTu taanai ❘  
+aMdamaina shree veMkaTaadreeshu seviMchi  
+aMdaraani pada maMd.enaTugaana ‖
+

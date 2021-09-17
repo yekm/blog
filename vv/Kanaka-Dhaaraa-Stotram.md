@@ -1589,3 +1589,285 @@ trisaMdhyaM yaH paThennityaM sa kuberasamo bhavet ‖
 త్రిసంధ్యం యః పఠేన్నిత్యం స కుబేరసమో భవేత్ ‖  
 
 
+### English
+
+#### kanaka dhārā stotram
+
+vande vandāru mandāramindirānanda kandalaṃ  
+amandānanda sandoha bandhuraṃ sindhurānanam  
+aṅgaṃ hareḥ pulakabhūśhaṇamāśrayantī   
+bhṛṅgāṅganeva mukuḻābharaṇaṃ tamālam ❘  
+aṅgīkṛtākhila vibhūtirapāṅgalīlā   
+māṅgalyadāstu mama maṅgaḻadevatāyāḥ 
+‖ 1 ‖
+
+mugdhā muhurvidadhatī vadane murāreḥ   
+prematrapāpraṇihitāni gatāgatāni ❘  
+mālādṛśormadhukarīva mahotpale yā   
+sā me śriyaṃ diśatu sāgara sambhavā yāḥ 
+‖ 2 ‖
+
+āmīlitākśhamadhigyama mudā mukundam   
+ānandakandamanimeśhamanaṅga tantraṃ ❘  
+ākekarasthitakanīnikapakśhmanetraṃ   
+bhūtyai bhavanmama bhujaṅga śayāṅganā yāḥ 
+‖ 3 ‖
+
+bāhvantare madhujitaḥ śritakaustubhe yā   
+hārāvaḻīva harinīlamayī vibhāti ❘  
+kāmapradā bhagavatoapi kaṭākśhamālā   
+kaḻyāṇamāvahatu me kamalālayā yāḥ 
+‖ 4 ‖
+
+kālāmbudāḻi lalitorasi kaiṭabhāreḥ   
+dhārādhare sphurati yā taṭidaṅganeva ❘  
+mātussamastajagatāṃ mahanīyamūrtiḥ   
+bhadrāṇi me diśatu bhārgavanandanā yāḥ 
+‖ 5 ‖
+
+prāptaṃ padaṃ prathamataḥ khalu yatprabhāvāt   
+māṅgalyabhāji madhumāthini manmathena ❘  
+mayyāpatettadiha mantharamīkśhaṇārthaṃ   
+mandālasaṃ cha makarālaya kanyakā yāḥ 
+‖ 6 ‖
+
+viśvāmarendra pada vibhrama dānadakśham   
+ānandaheturadhikaṃ muravidviśhoapi ❘  
+īśhanniśhīdatu mayi kśhaṇamīkśhaṇārthaṃ  
+indīvarodara sahodaramindirā yāḥ 
+‖ 7 ‖
+
+iśhṭā viśiśhṭamatayopi yayā dayārdra   
+dṛśhṭyā triviśhṭapapadaṃ sulabhaṃ labhante ❘  
+dṛśhṭiḥ prahṛśhṭa kamalodara dīptiriśhṭāṃ   
+puśhṭiṃ kṛśhīśhṭa mama puśhkara viśhṭarā yāḥ 
+‖ 8 ‖
+
+dadyāddayānu pavano draviṇāmbudhārāṃ  
+asminnakiñchana vihaṅga śiśau viśhaṇṇe ❘  
+duśhkarmagharmamapanīya chirāya dūraṃ   
+nārāyaṇa praṇayinī nayanāmbuvāhaḥ 
+‖ 9 ‖
+
+gīrdevateti garuḍadhvaja sundarīti   
+śākambarīti śaśiśekhara vallabheti ❘  
+sṛśhṭi sthiti praḻaya keḻiśhu saṃsthitāyai   
+tasyai namastribhuvanaika gurostaruṇyai 
+‖ 10 ‖
+
+śrutyai namoastu śubhakarma phalaprasūtyai   
+ratyai namoastu ramaṇīya guṇārṇavāyai ❘  
+śaktyai namoastu śatapatra niketanāyai   
+puśhṭyai namoastu puruśhottama vallabhāyai 
+‖ 11 ‖
+
+namoastu nāḻīka nibhānanāyai   
+namoastu dugdhodadhi janmabhūmyai ❘  
+namoastu somāmṛta sodarāyai   
+namoastu nārāyaṇa vallabhāyai 
+‖ 12 ‖
+
+namoastu hemāmbuja pīṭhikāyai  
+namoastu bhūmaṇḍala nāyikāyai ❘  
+namoastu devādi dayāparāyai  
+namoastu śārṅgāyudha vallabhāyai 
+‖ 13 ‖
+
+namoastu devyai bhṛgunandanāyai   
+namoastu viśhṇorurasi sthitāyai ❘  
+namoastu lakśhmyai kamalālayāyai  
+namoastu dāmodara vallabhāyai 
+‖ 14 ‖
+
+namoastu kāntyai kamalekśhaṇāyai  
+namoastu bhūtyai bhuvanaprasūtyai ❘  
+namoastu devādibhirarchitāyai  
+namoastu nandātmaja vallabhāyai 
+‖ 15 ‖
+
+sampatkarāṇi sakalendriya nandanāni   
+sāmrājya dānavibhavāni saroruhākśhi ❘  
+tvadvandanāni duritā haraṇodyatāni   
+māmeva mātaraniśaṃ kalayantu mānye 
+‖ 16 ‖
+
+yatkaṭākśha samupāsanā vidhiḥ   
+sevakasya sakalārtha sampadaḥ ❘  
+santanoti vachanāṅga mānasaiḥ   
+tvāṃ murārihṛdayeśvarīṃ bhaje 
+‖ 17 ‖
+
+sarasijanilaye sarojahaste   
+dhavaḻatamāṃśuka gandhamālyaśobhe ❘  
+bhagavati harivallabhe manoGYe  
+tribhuvanabhūtikarī prasīdamahyaṃ 
+‖ 18 ‖
+
+digghastibhiḥ kanaka kumbhamukhāvasṛśhṭa   
+svarvāhinī vimalachārujalāplutāṅgīm ❘  
+prātarnamāmi jagatāṃ jananīmaśeśha   
+lokadhinātha gṛhiṇīmamṛtābdhiputrīṃ 
+‖ 19 ‖
+
+kamale kamalākśha vallabhe tvaṃ   
+karuṇāpūra taraṅgitairapāṅgaiḥ ❘  
+avalokaya māmakiñchanānāṃ   
+prathamaṃ pātramakṛtimaṃ dayāyāḥ 
+‖ 20 ‖
+
+devi prasīda jagadīśvari lokamātaḥ  
+kaḻyāṇagātri kamalekśhaṇa jīvanāthe ❘  
+dāridryabhītihṛdayaṃ śaraṇāgataṃ māṃ  
+ālokaya pratidinaṃ sadayairapāṅgaiḥ 
+‖ 21 ‖
+
+stuvanti ye stutibhiramībhiranvahaṃ   
+trayīmayīṃ tribhuvanamātaraṃ ramāṃ ❘  
+guṇādhikā gurutura bhāgya bhāginaḥ  
+bhavanti te bhuvi budha bhāvitāśayāḥ 
+‖ 22 ‖
+
+suvarṇadhārā stotraṃ yacChaṅkarāchārya nirmitaṃ   
+trisandhyaṃ yaḥ paṭhennityaṃ sa kuberasamo bhavet ‖
+
+### PlainEnglish
+
+#### kanaka dhaaraa stotram
+
+vaMde vaMdaaru maMdaaramiMdiraanaMda kaMdalaM  
+amaMdaanaMda saMdoha baMdhuraM siMdhuraananam  
+aMgaM hareH pulakabhooshhaNamaashrayantee   
+bhRRiMgaaMganeva mukuLaabharaNaM tamaalam ❘  
+aMgeekRRitaakhila vibhootirapaaMgaleelaa   
+maaMgalyadaastu mama maMgaLadevataayaaH 
+‖ 1 ‖
+
+mugdhaa muhurvidadhatee vadane muraareH   
+prematrapaapraNihitaani gataagataani ❘  
+maalaadRRishormadhukareeva mahotpale yaa   
+saa me shriyaM dishatu saagara saMbhavaa yaaH 
+‖ 2 ‖
+
+aameelitaakshhamadhigyama mudaa mukuMdam   
+aanaMdakaMdamanimeshhamanaMga taMtraM ❘  
+aakekarasthitakaneenikapakshhmanetraM   
+bhootyai bhavanmama bhujaMga shayaaMganaa yaaH 
+‖ 3 ‖
+
+baahvaMtare madhujitaH shritakaustubhe yaa   
+haaraavaLeeva harineelamayee vibhaati ❘  
+kaamapradaa bhagavato.api kaTaakshhamaalaa   
+kaLyaaNamaavahatu me kamalaalayaa yaaH 
+‖ 4 ‖
+
+kaalaaMbudaaLi lalitorasi kaiTabhaareH   
+dhaaraadhare sphurati yaa taTidaMganeva ❘  
+maatussamastajagataaM mahaneeyamoortiH   
+bhadraaNi me dishatu bhaargavanaMdanaa yaaH 
+‖ 5 ‖
+
+praaptaM padaM prathamataH khalu yatprabhaavaat   
+maaMgalyabhaaji madhumaathini manmathena ❘  
+mayyaapatettadiha maMtharameekshhaNaarthaM   
+maMdaalasaM cha makaraalaya kanyakaa yaaH 
+‖ 6 ‖
+
+vishvaamareMdra pada vibhrama daanadakshham   
+aanaMdaheturadhikaM muravidvishho.api ❘  
+eeshhannishheedatu mayi kshhaNameekshhaNaarthaM  
+iMdeevarodara sahodaramiMdiraa yaaH 
+‖ 7 ‖
+
+ishhTaa vishishhTamatayopi yayaa dayaardra   
+dRRishhTyaa trivishhTapapadaM sulabhaM labhaMte ❘  
+dRRishhTiH prahRRishhTa kamalodara deeptirishhTaaM   
+pushhTiM kRRishheeshhTa mama pushhkara vishhTaraa yaaH 
+‖ 8 ‖
+
+dadyaaddayaanu pavano draviNaaMbudhaaraaM  
+asminnakiMchana vihaMga shishau vishhaNNe ❘  
+dushhkarmagharmamapaneeya chiraaya dooraM   
+naaraayaNa praNayinee nayanaaMbuvaahaH 
+‖ 9 ‖
+
+geerdevateti garuDadhvaja suMdareeti   
+shaakaMbareeti shashishekhara vallabheti ❘  
+sRRishhTi sthiti praLaya keLishhu saMsthitaayai   
+tasyai namastribhuvanaika gurostaruNyai 
+‖ 10 ‖
+
+shrutyai namo.astu shubhakarma phalaprasootyai   
+ratyai namo.astu ramaNeeya guNaarNavaayai ❘  
+shaktyai namo.astu shatapatra niketanaayai   
+pushhTyai namo.astu purushhottama vallabhaayai 
+‖ 11 ‖
+
+namo.astu naaLeeka nibhaananaayai   
+namo.astu dugdhodadhi janmabhoomyai ❘  
+namo.astu somaamRRita sodaraayai   
+namo.astu naaraayaNa vallabhaayai 
+‖ 12 ‖
+
+namo.astu hemaaMbuja peeThikaayai  
+namo.astu bhoomaMDala naayikaayai ❘  
+namo.astu devaadi dayaaparaayai  
+namo.astu shaarngaayudha vallabhaayai 
+‖ 13 ‖
+
+namo.astu devyai bhRRigunaMdanaayai   
+namo.astu vishhNorurasi sthitaayai ❘  
+namo.astu lakshhmyai kamalaalayaayai  
+namo.astu daamodara vallabhaayai 
+‖ 14 ‖
+
+namo.astu kaaMtyai kamalekshhaNaayai  
+namo.astu bhootyai bhuvanaprasootyai ❘  
+namo.astu devaadibhirarchitaayai  
+namo.astu naMdaatmaja vallabhaayai 
+‖ 15 ‖
+
+saMpatkaraaNi sakaleMdriya naMdanaani   
+saamraajya daanavibhavaani saroruhaakshhi ❘  
+tvadvaMdanaani duritaa haraNodyataani   
+maameva maataranishaM kalayaMtu maanye 
+‖ 16 ‖
+
+yatkaTaakshha samupaasanaa vidhiH   
+sevakasya sakalaartha saMpadaH ❘  
+saMtanoti vachanaaMga maanasaiH   
+tvaaM muraarihRRidayeshvareeM bhaje 
+‖ 17 ‖
+
+sarasijanilaye sarojahaste   
+dhavaLatamaaMshuka gaMdhamaalyashobhe ❘  
+bhagavati harivallabhe manognye  
+tribhuvanabhootikaree praseedamahyaM 
+‖ 18 ‖
+
+digghastibhiH kanaka kuMbhamukhaavasRRishhTa   
+svarvaahinee vimalachaarujalaaplutaaMgeem ❘  
+praatarnamaami jagataaM jananeemasheshha   
+lokadhinaatha gRRihiNeemamRRitaabdhiputreeM 
+‖ 19 ‖
+
+kamale kamalaakshha vallabhe tvaM   
+karuNaapoora taraMgitairapaaMgaiH ❘  
+avalokaya maamakiMchanaanaaM   
+prathamaM paatramakRRitimaM dayaayaaH 
+‖ 20 ‖
+
+devi praseeda jagadeeshvari lokamaataH  
+kaLyaaNagaatri kamalekshhaNa jeevanaathe ❘  
+daaridryabheetihRRidayaM sharaNaagataM maaM  
+aalokaya pratidinaM sadayairapaaMgaiH 
+‖ 21 ‖
+
+stuvaMti ye stutibhirameebhiranvahaM   
+trayeemayeeM tribhuvanamaataraM ramaaM ❘  
+guNaadhikaa gurutura bhaagya bhaaginaH  
+bhavaMti te bhuvi budha bhaavitaashayaaH 
+‖ 22 ‖
+
+suvarNadhaaraa stotraM yacChaMkaraachaarya nirmitaM   
+trisaMdhyaM yaH paThennityaM sa kuberasamo bhavet ‖
+

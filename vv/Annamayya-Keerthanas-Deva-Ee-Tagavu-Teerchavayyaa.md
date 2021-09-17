@@ -289,3 +289,47 @@ galigiti v.ekkaDi kalushhamulayyaa ‖
 బలు శ్రీవేంకటపతి నాయాత్మను  
 గలిగితి వెక్కడి కలుషములయ్యా ‖  
 
+### English
+
+#### annamayya kīrtana deva yī tagavu tīrchavayyā
+
+deva yī tagavu dīrcavayyā   
+vevelaku nidi vinnapamayyā ‖
+
+tanuvuna boḍaminatati nindriyamulu   
+ponigi yekkaḍiki bovunayā ❘  
+penagi tallikaḍa biḍḍalu bhuvilo   
+yenagoni yekkaḍi kegudurayyā ‖
+
+poḍugucu manamuna boḍamina yāsalu   
+adana nekkaḍiki narugunayā ❘  
+vodugucu jalamulanuṇḍu matsyamulu   
+padapaḍi yegati bāsīnayyā ‖
+
+lali nokaṭokaṭiki laṅkelu nive   
+alarucu nemani yandunayā ❘  
+balu śrīveṅkaṭapati nāyātmanu   
+galigiti vekkaḍi kaluśhamulayyā ‖
+
+### PlainEnglish
+
+#### annamayya keertana deva yee tagavu teerchavayyaa
+
+deva yee tagavu deercavayyaa   
+vevelaku nidi vinnapamayyaa ‖
+
+tanuvuna b.oDaminatati niMdriyamulu   
+p.onigi y.ekkaDiki bovunayaa ❘  
+p.enagi tallikaDa biDDalu bhuvilo   
+y.enag.oni y.ekkaDi kegudurayyaa ‖
+
+p.oDugucu manamuna b.oDamina yaasalu   
+adana n.ekkaDiki narugunayaa ❘  
+v.odugucu jalamulanuMDu matsyamulu   
+padapaDi yegati baaseenayyaa ‖
+
+lali n.okaT.okaTiki laMk.elu nive   
+alarucu nemani yaMdunayaa ❘  
+balu shreeveMkaTapati naayaatmanu   
+galigiti v.ekkaDi kalushhamulayyaa ‖
+

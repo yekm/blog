@@ -1979,3 +1979,391 @@ vajrapanjaraakhyasooryakavacaniroopaNaM trayastriMshaH paTalaH ‖
 ఇతి శ్రీరుద్రయామలే తంత్రే శ్రీదేవిరహస్యే  
 వజ్రపంజరాఖ్యసూర్యకవచనిరూపణం త్రయస్త్రింశః పటలః ‖  
 
+### English
+
+#### sūrya kavacham
+
+śrībhairava uvāca   
+yo devadevo bhagavān bhāskaro mahasāṃ nidhiḥ ❘  
+gayatrīnāyako bhāsvān saviteti pragīyate 
+‖ 1 ‖
+
+tasyāhaṃ kavacaṃ divyaṃ vajrapañjarakābhidham ❘  
+sarvamantramayaṃ guhyaṃ mūlavidyārahasyakam 
+‖ 2 ‖
+
+sarvapāpāpahaṃ devi duḥkhadāridryanāśanam ❘  
+mahākuśhṭhaharaṃ puṇyaṃ sarvaroganivarhaṇam 
+‖ 3 ‖
+
+sarvaśatrusamūhaghnaṃ samgrāme vijayapradam ❘  
+sarvatejomayaṃ sarvadevadānavapūjitam 
+‖ 4 ‖
+
+raṇe rājabhaye ghore sarvopadravanāśanam ❘  
+mātṛkāveśhṭitaṃ varma bhairavānananirgatam 
+‖ 5 ‖
+
+grahapīḍāharaṃ devi sarvasaṅkaṭanāśanam ❘  
+dhāraṇādasya deveśi brahmā lokapitāmahaḥ 
+‖ 6 ‖
+
+viśhṇurnārāyaṇo devi raṇe daityāñjiśhyati ❘  
+śaṅkaraḥ sarvalokeśo vāsavoapi divaspatiḥ 
+‖ 7 ‖
+
+ośhadhīśaḥ śaśī devi śivoahaṃ bhairaveśvaraḥ ❘  
+mantrātmakaṃ paraṃ varma savituḥ sāramuttamam 
+‖ 8 ‖
+
+yo dhārayed bhuje mūrdhni ravivāre maheśvari ❘  
+sa rājavallabho loke tejasvī vairimardanaḥ 
+‖ 9 ‖
+
+bahunoktena kiṃ devi kavacasyāsya dhāraṇāt ❘  
+iha lakśhmīdhanārogya-vṛddhirbhavati nānyathā 
+‖ 10 ‖
+
+paratra paramā muktirdevānāmapi durlabhā ❘  
+kavacasyāsya deveśi mūlavidyāmayasya ca 
+‖ 11 ‖
+
+vajrapañjarakākhyasya munirbrahmā samīritaḥ ❘  
+gāyatryaṃ Chanda ityuktaṃ devatā savitā smṛtaḥ 
+‖ 12 ‖
+
+māyā bījaṃ śarat śaktirnamaḥ kīlakamīśvari ❘  
+sarvārthasādhane devi viniyogaḥ prakīrtitaḥ 
+‖ 13 ‖
+
+atha sūrya kavacaṃ  
+oṃ aṃ āṃ iṃ īṃ śiraḥ pātu oṃ sūryo mantravigrahaḥ ❘  
+uṃ ūṃ ṛṃ RRīṃ lalāṭaṃ me hrāṃ raviḥ pātu cinmayaḥ 
+‖ 14 ‖
+
+~ḻuṃ ~ḻūṃ eṃ aiṃ pātu netre hrīṃ mamāruṇasārathiḥ ❘  
+oṃ auṃ aṃ aḥ śrutī pātu saḥ sarvajagadīśvaraḥ 
+‖ 15 ‖
+
+kaṃ khaṃ gaṃ ghaṃ pātu gaṇḍau sūṃ sūraḥ surapūjitaḥ ❘  
+caṃ Chaṃ jaṃ jhaṃ ca nāsāṃ me pātu yārṃ aryamā prabhuḥ 
+‖ 16 ‖
+
+ṭaṃ ṭhaṃ ḍaṃ ḍhaṃ mukhaṃ pāyād yaṃ yogīśvarapūjitaḥ ❘  
+taṃ thaṃ daṃ dhaṃ galaṃ pātu naṃ nārāyaṇavallabhaḥ 
+‖ 17 ‖
+
+paṃ phaṃ baṃ bhaṃ mama skandhau pātu maṃ mahasāṃ nidhiḥ ❘  
+yaṃ raṃ laṃ vaṃ bhujau pātu mūlaṃ sakanāyakaḥ 
+‖ 18 ‖
+
+śaṃ śhaṃ saṃ haṃ pātu vakśho mūlamantramayo dhruvaḥ ❘  
+ḻaṃ kśhaḥ kukśhsiṃ sadā pātu grahātho dineśvaraḥ 
+‖ 19 ‖
+
+ṅaṃ ñaṃ ṇaṃ naṃ maṃ me pātu pṛśhṭhaṃ divasanāyakaḥ ❘  
+aṃ āṃ iṃ īṃ uṃ ūṃ ṛṃ RRīṃ nābhiṃ pātu tamopahaḥ 
+‖ 20 ‖
+
+~ḻuṃ ~ḻūṃ eṃ aiṃ oṃ auṃ aṃ aḥ liṅgaṃ meavyād graheśvaraḥ ❘  
+kaṃ khaṃ gaṃ ghaṃ caṃ Chaṃ jaṃ jhaṃ kaṭiṃ bhānurmamāvatu 
+‖ 21 ‖
+
+ṭaṃ ṭhaṃ ḍaṃ ḍhaṃ taṃ thaṃ daṃ dhaṃ jānū bhāsvān mamāvatu ❘  
+paṃ phaṃ baṃ bhaṃ yaṃ raṃ laṃ vaṃ jaṅghe meavyād vibhākaraḥ 
+‖ 22 ‖
+
+śaṃ śhaṃ saṃ haṃ ḻaṃ kśhaḥ pātu mūlaṃ pādau trayitanuḥ ❘  
+ṅaṃ ñaṃ ṇaṃ naṃ maṃ me pātu savitā sakalaṃ vapuḥ 
+‖ 23 ‖
+
+somaḥ pūrve ca māṃ pātu bhaumoagnau māṃ sadāvatu ❘  
+budho māṃ dakśhiṇe pātu naiṛtyā gurareva mām 
+‖ 24 ‖
+
+paścime māṃ sitaḥ pātu vāyavyāṃ māṃ śanaiścaraḥ ❘  
+uttare māṃ tamaḥ pāyādaiśānyāṃ māṃ śikhī tathā 
+‖ 25 ‖
+
+ūrdhvaṃ māṃ pātu mihiro māmadhastāñjagatpatiḥ ❘  
+prabhāte bhāskaraḥ pātu madhyāhne māṃ dineśvaraḥ 
+‖ 26 ‖
+
+sāyaṃ vedapriyaḥ pātu niśīthe visphurāpatiḥ ❘  
+sarvatra sarvadā sūryaḥ pātu māṃ cakranāyakaḥ 
+‖ 27 ‖
+
+raṇe rājakule dyūte vidāde śatrusaṅkaṭe ❘  
+saṅgāme ca jvare roge pātu māṃ savitā prabhuḥ 
+‖ 28 ‖
+
+oṃ oṃ oṃ uta oṃuaum ha sa ma yaḥ sūroavatānmāṃ bhayād  
+hrāṃ hrīṃ hruṃ hahahā hasauḥ hasahasauḥ haṃsoavatāt sarvataḥ ❘  
+saḥ saḥ saḥ sasasā nṛpādvanacarāccaurādraṇāt saṅkaṭāt  
+pāyānmāṃ kulanāyakoapi savitā oṃ hrīṃ ha sauḥ sarvadā 
+‖ 29 ‖
+
+drāṃ drīṃ drūṃ dadhanaṃ tathā ca taraṇirbhāmbhairbhayād bhāskaro  
+rāṃ rīṃ rūṃ rururūṃ ravirjvarabhayāt kuśhṭhācca śūlāmayāt ❘  
+aṃ aṃ āṃ vivivīṃ mahāmayabhayaṃ māṃ pātu mārtaṇḍako  
+mūlavyāptatanuḥ sadāvatu paraṃ haṃsaḥ sahasrāṃśumān 
+‖ 30‖
+
+atha phalaśṛtiḥ  
+iti śrīkavacaṃ divyaṃ vajrapañjarakābhidham ❘  
+sarvadevarahasyaṃ ca mātṛkāmantraveśhṭitam 
+‖ 31 ‖
+
+mahārogabhayaghnaṃ ca pāpaghnaṃ manmukhoditam ❘  
+guhyaṃ yaśaskaraṃ puṇyaṃ sarvaśreyaskaraṃ śive 
+‖ 32 ‖
+
+likhitvā ravivāre tu tiśhye vā janmabhe priye ❘  
+aśhṭagandhena divyena sudhākśhīreṇa pārvati 
+‖ 33 ‖
+
+arkakśhīreṇa puṇyena bhūrjatvaci maheśvari ❘  
+kanakīkāśhṭhalekhanyā kavacaṃ bhāskarodaye 
+‖ 34 ‖
+
+śvetasūtreṇa raktena śyāmenāveśhṭayed guṭīm ❘  
+sauvarṇenātha saṃveśhṭhya dhārayenmūrdhni vā bhuje 
+‖ 35 ‖
+
+raṇe ripūñjayed devi vāde sadasi jeśhyati ❘  
+rājamānyo bhavennityaṃ sarvatejomayo bhavet 
+‖ 36 ‖
+
+kaṇṭhasthā putradā devi kukśhisthā roganāśinī ❘  
+śiraḥsthā guṭikā divyā rākalokavaśaṅkarī 
+‖ 37 ‖
+
+bhujasthā dhanadā nityaṃ tejobuddhivivardhinī ❘  
+vandhyā vā kākavandhyā vā mṛtavatsā ca yāṅganā 
+‖ 38 ‖
+
+kaṇṭhe sā dhārayennityaṃ bahuputrā prajāyaye ❘  
+yasya dehe bhavennityaṃ guṭikaiśhā maheśvari 
+‖ 39 ‖
+
+mahāstrāṇīndramuktāni brahmāstrādīni pārvati ❘  
+taddehaṃ prāpya vyarthāni bhaviśhyanti na saṃśayaḥ 
+‖ 40 ‖
+
+trikālaṃ yaḥ paṭhennityaṃ kavacaṃ vajrapañjaram ❘  
+tasya sadyo mahādevi savitā varado bhavet 
+‖ 41 ‖
+
+aGYātvā kavacaṃ devi pūjayed yastrayītanum ❘  
+tasya pūjārjitaṃ puṇyaṃ janmakoṭiśhu niśhphalam 
+‖ 42 ‖
+
+śatāvartaṃ paṭhedvarma saptamyāṃ ravivāsare ❘  
+mahākuśhṭhārdito devi mucyate nātra saṃśayaḥ 
+‖ 43 ‖
+
+nirogo yaḥ paṭhedvarma daridro vajrapañjaram ❘  
+lakśhmīvāñjāyate devi sadyaḥ sūryaprasādataḥ 
+‖ 44 ‖
+
+bhaktyā yaḥ prapaṭhed devi kavacaṃ pratyahaṃ priye ❘  
+iha loke śriyaṃ bhuktvā dehānte muktimāpnuyāt 
+‖ 45 ‖
+
+iti śrīrudrayāmale tantre śrīdevirahasye  
+vajrapañjarākhyasūryakavacanirūpaṇaṃ trayastriṃśaḥ paṭalaḥ ‖
+
+### PlainEnglish
+
+#### soorya kavacham
+
+shreebhairava uvaaca   
+yo devadevo bhagavaan bhaaskaro mahasaaM nidhiH ❘  
+gayatreenaayako bhaasvaan saviteti prageeyate 
+‖ 1 ‖
+
+tasyaahaM kavacaM divyaM vajrapanjarakaabhidham ❘  
+sarvamantramayaM guhyaM moolavidyaarahasyakam 
+‖ 2 ‖
+
+sarvapaapaapahaM devi duHkhadaaridryanaashanam ❘  
+mahaakushhThaharaM puNyaM sarvaroganivarhaNam 
+‖ 3 ‖
+
+sarvashatrusamoohaghnaM samgraame vijayapradam ❘  
+sarvatejomayaM sarvadevadaanavapoojitam 
+‖ 4 ‖
+
+raNe raajabhaye ghore sarvopadravanaashanam ❘  
+maatRRikaaveshhTitaM varma bhairavaanananirgatam 
+‖ 5 ‖
+
+grahapeeDaaharaM devi sarvasankaTanaashanam ❘  
+dhaaraNaadasya deveshi brahmaa lokapitaamahaH 
+‖ 6 ‖
+
+vishhNurnaaraayaNo devi raNe daityaanjishhyati ❘  
+shankaraH sarvalokesho vaasavo.api divaspatiH 
+‖ 7 ‖
+
+oshhadheeshaH shashee devi shivo.ahaM bhairaveshvaraH ❘  
+mantraatmakaM paraM varma savituH saaramuttamam 
+‖ 8 ‖
+
+yo dhaarayed bhuje moordhni ravivaare maheshvari ❘  
+sa raajavallabho loke tejasvee vairimardanaH 
+‖ 9 ‖
+
+bahunoktena kiM devi kavacasyaasya dhaaraNaat ❘  
+iha lakshhmeedhanaarogya-vRRiddhirbhavati naanyathaa 
+‖ 10 ‖
+
+paratra paramaa muktirdevaanaamapi durlabhaa ❘  
+kavacasyaasya deveshi moolavidyaamayasya ca 
+‖ 11 ‖
+
+vajrapanjarakaakhyasya munirbrahmaa sameeritaH ❘  
+gaayatryaM Chanda ityuktaM devataa savitaa smRRitaH 
+‖ 12 ‖
+
+maayaa beejaM sharat shaktirnamaH keelakameeshvari ❘  
+sarvaarthasaadhane devi viniyogaH prakeertitaH 
+‖ 13 ‖
+
+atha soorya kavacaM  
+oM aM aaM iM eeM shiraH paatu oM sooryo mantravigrahaH ❘  
+uM ooM RRiM RReeM lalaaTaM me hraaM raviH paatu cinmayaH 
+‖ 14 ‖
+
+~LuM ~LooM eM aiM paatu netre hreeM mamaaruNasaarathiH ❘  
+oM auM aM aH shrutee paatu saH sarvajagadeeshvaraH 
+‖ 15 ‖
+
+kaM khaM gaM ghaM paatu gaNDau sooM sooraH surapoojitaH ❘  
+caM ChaM jaM jhaM ca naasaaM me paatu yaarM aryamaa prabhuH 
+‖ 16 ‖
+
+TaM ThaM DaM DhaM mukhaM paayaad yaM yogeeshvarapoojitaH ❘  
+taM thaM daM dhaM galaM paatu naM naaraayaNavallabhaH 
+‖ 17 ‖
+
+paM phaM baM bhaM mama skandhau paatu maM mahasaaM nidhiH ❘  
+yaM raM laM vaM bhujau paatu moolaM sakanaayakaH 
+‖ 18 ‖
+
+shaM shhaM saM haM paatu vakshho moolamantramayo dhruvaH ❘  
+LaM kshhaH kukshhsiM sadaa paatu grahaatho dineshvaraH 
+‖ 19 ‖
+
+naM naM NaM naM maM me paatu pRRishhThaM divasanaayakaH ❘  
+aM aaM iM eeM uM ooM RRiM RReeM naabhiM paatu tamopahaH 
+‖ 20 ‖
+
+~LuM ~LooM eM aiM oM auM aM aH lingaM me.avyaad graheshvaraH ❘  
+kaM khaM gaM ghaM caM ChaM jaM jhaM kaTiM bhaanurmamaavatu 
+‖ 21 ‖
+
+TaM ThaM DaM DhaM taM thaM daM dhaM jaanoo bhaasvaan mamaavatu ❘  
+paM phaM baM bhaM yaM raM laM vaM janghe me.avyaad vibhaakaraH 
+‖ 22 ‖
+
+shaM shhaM saM haM LaM kshhaH paatu moolaM paadau trayitanuH ❘  
+naM naM NaM naM maM me paatu savitaa sakalaM vapuH 
+‖ 23 ‖
+
+somaH poorve ca maaM paatu bhaumo.agnau maaM sadaavatu ❘  
+budho maaM dakshhiNe paatu naiRRityaa gurareva maam 
+‖ 24 ‖
+
+pashcime maaM sitaH paatu vaayavyaaM maaM shanaishcaraH ❘  
+uttare maaM tamaH paayaadaishaanyaaM maaM shikhee tathaa 
+‖ 25 ‖
+
+oordhvaM maaM paatu mihiro maamadhastaanjagatpatiH ❘  
+prabhaate bhaaskaraH paatu madhyaahne maaM dineshvaraH 
+‖ 26 ‖
+
+saayaM vedapriyaH paatu nisheethe visphuraapatiH ❘  
+sarvatra sarvadaa sooryaH paatu maaM cakranaayakaH 
+‖ 27 ‖
+
+raNe raajakule dyoote vidaade shatrusankaTe ❘  
+sangaame ca jvare roge paatu maaM savitaa prabhuH 
+‖ 28 ‖
+
+oM oM oM uta oMuaum ha sa ma yaH sooro.avataanmaaM bhayaad  
+hraaM hreeM hruM hahahaa hasauH hasahasauH haMso.avataat sarvataH ❘  
+saH saH saH sasasaa nRRipaadvanacaraaccauraadraNaat saMkaTaat  
+paayaanmaaM kulanaayako.api savitaa oM hreeM ha sauH sarvadaa 
+‖ 29 ‖
+
+draaM dreeM drooM dadhanaM tathaa ca taraNirbhaaMbhairbhayaad bhaaskaro  
+raaM reeM rooM rururooM ravirjvarabhayaat kushhThaacca shoolaamayaat ❘  
+aM aM aaM viviveeM mahaamayabhayaM maaM paatu maartaNDako  
+moolavyaaptatanuH sadaavatu paraM haMsaH sahasraaMshumaan 
+‖ 30‖
+
+atha phalashRRitiH  
+iti shreekavacaM divyaM vajrapanjarakaabhidham ❘  
+sarvadevarahasyaM ca maatRRikaamantraveshhTitam 
+‖ 31 ‖
+
+mahaarogabhayaghnaM ca paapaghnaM manmukhoditam ❘  
+guhyaM yashaskaraM puNyaM sarvashreyaskaraM shive 
+‖ 32 ‖
+
+likhitvaa ravivaare tu tishhye vaa janmabhe priye ❘  
+ashhTagandhena divyena sudhaakshheereNa paarvati 
+‖ 33 ‖
+
+arkakshheereNa puNyena bhoorjatvaci maheshvari ❘  
+kanakeekaashhThalekhanyaa kavacaM bhaaskarodaye 
+‖ 34 ‖
+
+shvetasootreNa raktena shyaamenaaveshhTayed guTeem ❘  
+sauvarNenaatha saMveshhThya dhaarayenmoordhni vaa bhuje 
+‖ 35 ‖
+
+raNe ripoonjayed devi vaade sadasi jeshhyati ❘  
+raajamaanyo bhavennityaM sarvatejomayo bhavet 
+‖ 36 ‖
+
+kaNThasthaa putradaa devi kukshhisthaa roganaashinee ❘  
+shiraHsthaa guTikaa divyaa raakalokavashankaree 
+‖ 37 ‖
+
+bhujasthaa dhanadaa nityaM tejobuddhivivardhinee ❘  
+vandhyaa vaa kaakavandhyaa vaa mRRitavatsaa ca yaanganaa 
+‖ 38 ‖
+
+kaNThe saa dhaarayennityaM bahuputraa prajaayaye ❘  
+yasya dehe bhavennityaM guTikaishhaa maheshvari 
+‖ 39 ‖
+
+mahaastraaNeendramuktaani brahmaastraadeeni paarvati ❘  
+taddehaM praapya vyarthaani bhavishhyanti na saMshayaH 
+‖ 40 ‖
+
+trikaalaM yaH paThennityaM kavacaM vajrapanjaram ❘  
+tasya sadyo mahaadevi savitaa varado bhavet 
+‖ 41 ‖
+
+agnyaatvaa kavacaM devi poojayed yastrayeetanum ❘  
+tasya poojaarjitaM puNyaM janmakoTishhu nishhphalam 
+‖ 42 ‖
+
+shataavartaM paThedvarma saptamyaaM ravivaasare ❘  
+mahaakushhThaardito devi mucyate naatra saMshayaH 
+‖ 43 ‖
+
+nirogo yaH paThedvarma daridro vajrapanjaram ❘  
+lakshhmeevaanjaayate devi sadyaH sooryaprasaadataH 
+‖ 44 ‖
+
+bhaktyaa yaH prapaThed devi kavacaM pratyahaM priye ❘  
+iha loke shriyaM bhuktvaa dehaante muktimaapnuyaat 
+‖ 45 ‖
+
+iti shreerudrayaamale tantre shreedevirahasye  
+vajrapanjaraakhyasooryakavacaniroopaNaM trayastriMshaH paTalaH ‖
+

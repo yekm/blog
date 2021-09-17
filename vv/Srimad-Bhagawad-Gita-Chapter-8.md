@@ -1303,3 +1303,249 @@ akshharabrahmayogo naamaashhTamo.adhyaayaH ‖8 ‖
 అక్షరబ్రహ్మయోగో నామాష్టమోఽధ్యాయః ‖8 ‖  
 
 
+### English
+
+#### śrīmad bhagavad gīta aśhṭamoadhyāyaḥ
+
+atha aśhṭamoadhyāyaḥ ❘  
+arjuna uvācha ❘  
+kiṃ tadbrahma kimadhyātmaṃ kiṃ karma puruśhottama ❘  
+adhibhūtaṃ cha kiṃ proktamadhidaivaṃ kimuchyate 
+‖ 1 ‖
+
+adhiyaGYaḥ kathaṃ koatra deheasminmadhusūdana ❘  
+prayāṇakāle cha kathaṃ GYeyoasi niyatātmabhiḥ 
+‖ 2 ‖
+
+śrībhagavānuvācha ❘  
+akśharaṃ brahma paramaṃ svabhāvoadhyātmamuchyate ❘  
+bhūtabhāvodbhavakaro visargaḥ karmasaṃGYitaḥ 
+‖ 3 ‖
+
+adhibhūtaṃ kśharo bhāvaḥ puruśhaśchādhidaivatam ❘  
+adhiyaGYoahamevātra dehe dehabhṛtāṃ vara 
+‖ 4 ‖
+
+antakāle cha māmeva smaranmuktvā kalevaram ❘  
+yaḥ prayāti sa madbhāvaṃ yāti nāstyatra saṃśayaḥ 
+‖ 5 ‖
+
+yaṃ yaṃ vāpi smaranbhāvaṃ tyajatyante kalevaram ❘  
+taṃ tamevaiti kaunteya sadā tadbhāvabhāvitaḥ 
+‖ 6 ‖
+
+tasmātsarveśhu kāleśhu māmanusmara yudhya cha ❘  
+mayyarpitamanobuddhirmāmevaiśhyasyasaṃśayam 
+‖ 7 ‖
+
+abhyāsayogayuktena chetasā nānyagāminā ❘  
+paramaṃ puruśhaṃ divyaṃ yāti pārthānuchintayan 
+‖ 8 ‖
+
+kaviṃ purāṇamanuśāsitāramaṇoraṇīyaṃsamanusmaredyaḥ❘  
+sarvasya dhātāramachintyarūpamādityavarṇaṃ tamasaḥ parastāt 
+‖ 9 ‖
+
+prayāṇakāle manasāchalena bhaktyā yukto yogabalena chaiva❘  
+bhruvormadhye prāṇamāveśya samyaksa taṃ paraṃ puruśhamupaiti divyam 
+‖ 10 ‖
+
+yadakśharaṃ vedavido vadanti viśanti yadyatayo vītarāgāḥ❘  
+yadichChanto brahmacharyaṃ charanti tatte padaṃ saṅgraheṇa pravakśhye 
+‖ 11 ‖
+
+sarvadvārāṇi saṃyamya mano hṛdi nirudhya cha ❘  
+mūrdhnyādhāyātmanaḥ prāṇamāsthito yogadhāraṇām 
+‖ 12 ‖
+
+omityekākśharaṃ brahma vyāharanmāmanusmaran ❘  
+yaḥ prayāti tyajandehaṃ sa yāti paramāṃ gatim 
+‖ 13 ‖
+
+ananyachetāḥ satataṃ yo māṃ smarati nityaśaḥ ❘  
+tasyāhaṃ sulabhaḥ pārtha nityayuktasya yoginaḥ 
+‖ 14 ‖
+
+māmupetya punarjanma duḥkhālayamaśāśvatam ❘  
+nāpnuvanti mahātmānaḥ saṃsiddhiṃ paramāṃ gatāḥ 
+‖ 15 ‖
+
+ābrahmabhuvanāllokāḥ punarāvartinoarjuna ❘  
+māmupetya tu kaunteya punarjanma na vidyate 
+‖ 16 ‖
+
+sahasrayugaparyantamaharyadbrahmaṇo viduḥ ❘  
+rātriṃ yugasahasrāntāṃ teahorātravido janāḥ 
+‖ 17 ‖
+
+avyaktādvyaktayaḥ sarvāḥ prabhavantyaharāgame ❘  
+rātryāgame pralīyante tatraivāvyaktasaṃGYake 
+‖ 18 ‖
+
+bhūtagrāmaḥ sa evāyaṃ bhūtvā bhūtvā pralīyate ❘  
+rātryāgameavaśaḥ pārtha prabhavatyaharāgame 
+‖ 19 ‖
+
+parastasmāttu bhāvoanyoavyaktoavyaktātsanātanaḥ ❘  
+yaḥ sa sarveśhu bhūteśhu naśyatsu na vinaśyati 
+‖ 20 ‖
+
+avyaktoakśhara ityuktastamāhuḥ paramāṃ gatim ❘  
+yaṃ prāpya na nivartante taddhāma paramaṃ mama 
+‖ 21 ‖
+
+puruśhaḥ sa paraḥ pārtha bhaktyā labhyastvananyayā ❘  
+yasyāntaḥsthāni bhūtāni yena sarvamidaṃ tatam 
+‖ 22 ‖
+
+yatra kāle tvanāvṛttimāvṛttiṃ chaiva yoginaḥ ❘  
+prayātā yānti taṃ kālaṃ vakśhyāmi bharatarśhabha 
+‖ 23 ‖
+
+agnirjotirahaḥ śuklaḥ śhaṇmāsā uttarāyaṇam ❘  
+tatra prayātā gachChanti brahma brahmavido janāḥ 
+‖ 24 ‖
+
+dhūmo rātristathā kṛśhṇaḥ śhaṇmāsā dakśhiṇāyanam ❘  
+tatra chāndramasaṃ jyotiryogī prāpya nivartate 
+‖ 25 ‖
+
+śuklakṛśhṇe gatī hyete jagataḥ śāśvate mate ❘  
+ekayā yātyanāvṛttimanyayāvartate punaḥ 
+‖ 26 ‖
+
+naite sṛtī pārtha jānanyogī muhyati kaśchana ❘  
+tasmātsarveśhu kāleśhu yogayukto bhavārjuna 
+‖ 27 ‖
+
+vedeśhu yaGYeśhu tapaḥsu chaiva dāneśhu yatpuṇyaphalaṃ pradiśhṭam❘  
+atyeti tatsarvamidaṃ viditvāyogī paraṃ sthānamupaiti chādyam 
+‖ 28 ‖
+
+oṃ tatsaditi śrīmadbhagavadgītāsūpaniśhatsu brahmavidyāyāṃ yogaśāstre śrīkṛśhṇārjunasaṃvāde   
+akśharabrahmayogo nāmāśhṭamoadhyāyaḥ 
+‖8 ‖
+
+### PlainEnglish
+
+#### shreemad bhagavad geeta ashhTamo.adhyaayaH
+
+atha ashhTamo.adhyaayaH ❘  
+arjuna uvaacha ❘  
+kiM tadbrahma kimadhyaatmaM kiM karma purushhottama ❘  
+adhibhootaM cha kiM proktamadhidaivaM kimuchyate 
+‖ 1 ‖
+
+adhiyagnyaH kathaM ko.atra dehe.asminmadhusoodana ❘  
+prayaaNakaale cha kathaM gnyeyo.asi niyataatmabhiH 
+‖ 2 ‖
+
+shreebhagavaanuvaacha ❘  
+akshharaM brahma paramaM svabhaavo.adhyaatmamuchyate ❘  
+bhootabhaavodbhavakaro visargaH karmasaMgnyitaH 
+‖ 3 ‖
+
+adhibhootaM kshharo bhaavaH purushhashchaadhidaivatam ❘  
+adhiyagnyo.ahamevaatra dehe dehabhRRitaaM vara 
+‖ 4 ‖
+
+antakaale cha maameva smaranmuktvaa kalevaram ❘  
+yaH prayaati sa madbhaavaM yaati naastyatra saMshayaH 
+‖ 5 ‖
+
+yaM yaM vaapi smaranbhaavaM tyajatyante kalevaram ❘  
+taM tamevaiti kaunteya sadaa tadbhaavabhaavitaH 
+‖ 6 ‖
+
+tasmaatsarveshhu kaaleshhu maamanusmara yudhya cha ❘  
+mayyarpitamanobuddhirmaamevaishhyasyasaMshayam 
+‖ 7 ‖
+
+abhyaasayogayuktena chetasaa naanyagaaminaa ❘  
+paramaM purushhaM divyaM yaati paarthaanuchintayan 
+‖ 8 ‖
+
+kaviM puraaNamanushaasitaaramaNoraNeeyaMsamanusmaredyaH❘  
+sarvasya dhaataaramachintyaroopamaadityavarNaM tamasaH parastaat 
+‖ 9 ‖
+
+prayaaNakaale manasaachalena bhaktyaa yukto yogabalena chaiva❘  
+bhruvormadhye praaNamaaveshya samyaksa taM paraM purushhamupaiti divyam 
+‖ 10 ‖
+
+yadakshharaM vedavido vadanti vishanti yadyatayo veetaraagaaH❘  
+yadichChanto brahmacharyaM charanti tatte padaM saMgraheNa pravakshhye 
+‖ 11 ‖
+
+sarvadvaaraaNi saMyamya mano hRRidi nirudhya cha ❘  
+moordhnyaadhaayaatmanaH praaNamaasthito yogadhaaraNaam 
+‖ 12 ‖
+
+omityekaakshharaM brahma vyaaharanmaamanusmaran ❘  
+yaH prayaati tyajandehaM sa yaati paramaaM gatim 
+‖ 13 ‖
+
+ananyachetaaH satataM yo maaM smarati nityashaH ❘  
+tasyaahaM sulabhaH paartha nityayuktasya yoginaH 
+‖ 14 ‖
+
+maamupetya punarjanma duHkhaalayamashaashvatam ❘  
+naapnuvanti mahaatmaanaH saMsiddhiM paramaaM gataaH 
+‖ 15 ‖
+
+aabrahmabhuvanaallokaaH punaraavartino.arjuna ❘  
+maamupetya tu kaunteya punarjanma na vidyate 
+‖ 16 ‖
+
+sahasrayugaparyantamaharyadbrahmaNo viduH ❘  
+raatriM yugasahasraantaaM te.ahoraatravido janaaH 
+‖ 17 ‖
+
+avyaktaadvyaktayaH sarvaaH prabhavantyaharaagame ❘  
+raatryaagame praleeyante tatraivaavyaktasaMgnyake 
+‖ 18 ‖
+
+bhootagraamaH sa evaayaM bhootvaa bhootvaa praleeyate ❘  
+raatryaagame.avashaH paartha prabhavatyaharaagame 
+‖ 19 ‖
+
+parastasmaattu bhaavo.anyo.avyakto.avyaktaatsanaatanaH ❘  
+yaH sa sarveshhu bhooteshhu nashyatsu na vinashyati 
+‖ 20 ‖
+
+avyakto.akshhara ityuktastamaahuH paramaaM gatim ❘  
+yaM praapya na nivartante taddhaama paramaM mama 
+‖ 21 ‖
+
+purushhaH sa paraH paartha bhaktyaa labhyastvananyayaa ❘  
+yasyaantaHsthaani bhootaani yena sarvamidaM tatam 
+‖ 22 ‖
+
+yatra kaale tvanaavRRittimaavRRittiM chaiva yoginaH ❘  
+prayaataa yaanti taM kaalaM vakshhyaami bharatarshhabha 
+‖ 23 ‖
+
+agnirjotirahaH shuklaH shhaNmaasaa uttaraayaNam ❘  
+tatra prayaataa gachChanti brahma brahmavido janaaH 
+‖ 24 ‖
+
+dhoomo raatristathaa kRRishhNaH shhaNmaasaa dakshhiNaayanam ❘  
+tatra chaandramasaM jyotiryogee praapya nivartate 
+‖ 25 ‖
+
+shuklakRRishhNe gatee hyete jagataH shaashvate mate ❘  
+ekayaa yaatyanaavRRittimanyayaavartate punaH 
+‖ 26 ‖
+
+naite sRRitee paartha jaananyogee muhyati kashchana ❘  
+tasmaatsarveshhu kaaleshhu yogayukto bhavaarjuna 
+‖ 27 ‖
+
+vedeshhu yagnyeshhu tapaHsu chaiva daaneshhu yatpuNyaphalaM pradishhTam❘  
+atyeti tatsarvamidaM viditvaayogee paraM sthaanamupaiti chaadyam 
+‖ 28 ‖
+
+oM tatsaditi shreemadbhagavadgeetaasoopanishhatsu brahmavidyaayaaM yogashaastre shreekRRishhNaarjunasaMvaade   
+akshharabrahmayogo naamaashhTamo.adhyaayaH 
+‖8 ‖
+

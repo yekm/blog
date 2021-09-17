@@ -731,3 +731,123 @@ oM shaaM _ti_ H shaaM _ti_ H shaaMti'H ‖
 
 ఓం శాం _తిః_ శాం _తిః_ శాంతిః' ‖  
 
+### English
+
+#### śrī sūktam
+
+oṃ 
+‖ hira'ṇyavarṇāṃ hari'ṇīṃ suvarṇa'rajatasra'jāṃ ❘  
+chandrāṃ hiraṇma'yīṃ lakśhmīṃ jāta'vedo ma āva'ha ‖
+
+tāṃ ma āva'ha jāta'vedo lakśhmīmana'pagāminī''m ❘  
+yasyāṃ hira'ṇyaṃ vindeyaṃ gāmaśvaṃ puru'śhānaham ‖
+
+aśvapūrvāṃ ra'thamadhyāṃ hastinā''da-prabodhi'nīm ❘  
+śriya'ṃ devīmupa'hvaye śrīrmā devīrju'śhatām ‖
+
+kāṃ so''smitāṃ hira'ṇyaprākārā'mārdrāṃ jvala'ntīṃ tṛptāṃ tarpaya'ntīm ❘  
+padme sthitāṃ padmava'rṇāṃ tāmihopa'hvaye śriyam ‖
+
+chandrāṃ pra'bhāsāṃ yaśasā jvala'ntīṃ śriya'ṃ loke devaju'śhṭāmudārām ❘  
+tāṃ padminī'mīṃ śara'ṇamahaṃ prapa'dyealakśhmīrme' naśyatāṃ tvāṃ vṛ'ṇe ‖
+
+ādityava'rṇe tapasoadhi'jāto vanaspatistava' vṛkśhoatha bilvaḥ ❘  
+tasya phalā'ni tapasānu'dantu māyānta'rāyāścha' bāhyā a'lakśhmīḥ ‖
+
+upai'tu māṃ de'vasakhaḥ kīrtiścha maṇi'nā saha ❘  
+prādurbhūtoasmi' rāśhṭre'smin kīrtimṛ'ddhiṃ dadātu' me ‖
+
+kśhutpi'pāsāma'lāṃ jyeśhṭhāma'lakśhīṃ nā'śayāmyaham ❘  
+abhū'timasa'mṛddhiṃ cha sarvāṃ nirṇu'da me gṛhāt ‖
+
+gaṃdhadvārāṃ du'rādharśhāṃ nityapu'śhṭāṃ karīśhiṇī''m ❘  
+īśvarīg'ṃ sarva'bhūtānāṃ tāmihopa'hvaye śriyam ‖
+
+śrī''rme bhajatu ❘  
+alakśhī''rme naśyatu ❘  
+mana'saḥ kāmamākū'tiṃ vāchaḥ satyama'śīmahi ❘  
+paśūnāṃ rūpamanya'sya mayi śrīḥ śra'yatāṃ yaśa'ḥ ‖
+
+kardame'na pra'jābhūtā mayi sambha'va kardama ❘  
+śriya'ṃ vāsaya' me kule mātara'ṃ padmamāli'nīm ‖
+
+āpa'ḥ sṛjantu' snigdāni chiklīta va'sa me gṛhe ❘  
+ni cha' devīṃ mātaraṃ śriya'ṃ vāsaya' me kule ‖
+
+ārdrāṃ puśhkari'ṇīṃ puśhṭiṃ piṃgalām pa'dmamālinīm ❘  
+chandrāṃ hiraṇma'yīṃ lakśhmīṃ jāta'vedo ma āva'ha ‖
+
+ārdrāṃ yaḥ kari'ṇīṃ yaśhṭiṃ suvarṇām he'mamālinīm ❘  
+sūryāṃ hiraṇma'yīṃ lakśhmīṃ jāta'vedo ma āva'ha ‖
+
+tāṃ ma āva'ha jāta'vedo lakśhīmana'pagāminī''m ❘  
+yasyāṃ hira'ṇyaṃ prabhū'taṃ gāvo' dāsyoaśvā''n, viṃdeyaṃ puru'śhānaham ‖
+
+oṃ mahādevyai cha' vidmahe' viśhṇupatnī cha' dhīmahi ❘  
+tanno' lakśhmīḥ prachodayā''t ‖
+
+śrī-rvarcha'sva-māyu'śhya-māro''gyamāvī'dhāt pava'mānaṃ mahīyate'' ❘  
+dhānyaṃ dhanaṃ paśuṃ bahupu'tralābhaṃ śatasa''ṃvatsaraṃ dīrghamāyu'ḥ ‖
+
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+### PlainEnglish
+
+#### shree sooktam
+
+oM 
+‖ hira'NyavarNaaM hari'NeeM suvarNa'rajatasra'jaaM ❘  
+chaMdraaM hiraNma'yeeM lakshhmeeM jaata'vedo ma aava'ha ‖
+
+taaM ma aava'ha jaata'vedo lakshhmeemana'pagaaminee''m ❘  
+yasyaaM hira'NyaM viMdeyaM gaamashvaM puru'shhaanaham ‖
+
+ashvapoorvaaM ra'thamadhyaaM hastinaa''da-prabodhi'neem ❘  
+shriya'M deveemupa'hvaye shreermaa deveerju'shhataam ‖
+
+kaaM so''smitaaM hira'Nyapraakaaraa'maardraaM jvala'MteeM tRRiptaaM tarpaya'Mteem ❘  
+padme sthitaaM padmava'rNaaM taamihopa'hvaye shriyam ‖
+
+chaMdraaM pra'bhaasaaM yashasaa jvala'MteeM shriya'M loke devaju'shhTaamudaaraam ❘  
+taaM padminee'meeM shara'NamahaM prapa'dye.alakshhmeerme' nashyataaM tvaaM vRRi'Ne ‖
+
+aadityava'rNe tapaso.adhi'jaato vanaspatistava' vRRikshho.atha bilvaH ❘  
+tasya phalaa'ni tapasaanu'daMtu maayaaMta'raayaashcha' baahyaa a'lakshhmeeH ‖
+
+upai'tu maaM de'vasakhaH keertishcha maNi'naa saha ❘  
+praadurbhooto.asmi' raashhTre.asmin keertimRRi'ddhiM dadaatu' me ‖
+
+kshhutpi'paasaama'laaM jyeshhThaama'lakshheeM naa'shayaamyaham ❘  
+abhoo'timasa'mRRiddhiM cha sarvaaM nirNu'da me gRRihaat ‖
+
+gaMdhadvaaraaM du'raadharshhaaM nityapu'shhTaaM kareeshhiNee''m ❘  
+eeshvareeg'M sarva'bhootaanaaM taamihopa'hvaye shriyam ‖
+
+shree''rme bhajatu ❘  
+alakshhee''rme nashyatu ❘  
+mana'saH kaamamaakoo'tiM vaachaH satyama'sheemahi ❘  
+pashoonaaM roopamanya'sya mayi shreeH shra'yataaM yasha'H ‖
+
+kardame'na pra'jaabhootaa mayi saMbha'va kardama ❘  
+shriya'M vaasaya' me kule maatara'M padmamaali'neem ‖
+
+aapa'H sRRijaMtu' snigdaani chikleeta va'sa me gRRihe ❘  
+ni cha' deveeM maataraM shriya'M vaasaya' me kule ‖
+
+aardraaM pushhkari'NeeM pushhTiM piMgalaam pa'dmamaalineem ❘  
+chaMdraaM hiraNma'yeeM lakshhmeeM jaata'vedo ma aava'ha ‖
+
+aardraaM yaH kari'NeeM yashhTiM suvarNaam he'mamaalineem ❘  
+sooryaaM hiraNma'yeeM lakshhmeeM jaata'vedo ma aava'ha ‖
+
+taaM ma aava'ha jaata'vedo lakshheemana'pagaaminee''m ❘  
+yasyaaM hira'NyaM prabhoo'taM gaavo' daasyo.ashvaa''n, viMdeyaM puru'shhaanaham ‖
+
+oM mahaadevyai cha' vidmahe' vishhNupatnee cha' dheemahi ❘  
+tanno' lakshhmeeH prachodayaa''t ‖
+
+shree-rvarcha'sva-maayu'shhya-maaro''gyamaavee'dhaat pava'maanaM maheeyate'' ❘  
+dhaanyaM dhanaM pashuM bahupu'tralaabhaM shatasa''MvatsaraM deerghamaayu'H ‖
+
+oM shaaMtiH shaaMtiH shaaMti'H ‖
+

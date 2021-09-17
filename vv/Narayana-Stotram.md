@@ -679,3 +679,199 @@ bhaarata yatavarashaMkara naamaamRRitamakhilaaMtara naaraayaNa ‖ 30 ‖
 నైగమగానవినోద రక్షిత సుప్రహ్లాద నారాయణ ‖ 29 ‖  
 భారత యతవరశంకర నామామృతమఖిలాంతర నారాయణ ‖ 30 ‖  
 
+### English
+
+#### nārāyaṇa stotram
+
+nārāyaṇa nārāyaṇa jaya govinda hare ‖
+
+nārāyaṇa nārāyaṇa jaya gopāla hare ‖
+
+karuṇāpārāvāra varuṇālayagambhīra nārāyaṇa 
+‖ 1 ‖
+
+ghananīradasaṅkāśa kṛtakalikalmaśhanāśana nārāyaṇa 
+‖ 2 ‖
+
+yamunātīravihāra dhṛtakaustubhamaṇihāra nārāyaṇa 
+‖ 3 ‖
+
+pītāmbaraparidhāna surakaḻyāṇanidhāna nārāyaṇa 
+‖ 4 ‖
+
+mañjulaguñjābhūśha māyāmānuśhaveśha nārāyaṇa 
+‖ 5 ‖
+
+rādhādharamadhurasika rajanīkarakulatilaka nārāyaṇa 
+‖ 6 ‖
+
+muraḻīgānavinoda vedastutabhūpāda nārāyaṇa 
+‖ 7 ‖
+
+barhinibarhāpīḍa naṭanāṭakaphaṇikrīḍa nārāyaṇa 
+‖ 8 ‖
+
+vārijabhūśhābharaṇa rājīvarukmiṇīramaṇa nārāyaṇa 
+‖ 9 ‖
+
+jalaruhadaḻanibhanetra jagadārambhakasūtra nārāyaṇa 
+‖ 10 ‖
+
+pātakarajanīsaṃhāra karuṇālaya māmuddhara nārāyaṇa 
+‖ 11 ‖
+
+agha bakahayakaṃsāre keśava kṛśhṇa murāre nārāyaṇa 
+‖ 12 ‖
+
+hāṭakanibhapītāmbara abhayaṃ kuru me māvara nārāyaṇa 
+‖ 13 ‖
+
+daśaratharājakumāra dānavamadasaṃhāra nārāyaṇa 
+‖ 14 ‖
+
+govardhanagiri ramaṇa gopīmānasaharaṇa nārāyaṇa 
+‖ 15 ‖
+
+sarayutīravihāra sajjana^^ṛśhimandāra nārāyaṇa 
+‖ 16 ‖
+
+viśvāmitramakhatra vividhavarānucaritra nārāyaṇa 
+‖ 17 ‖
+
+dhvajavajrāṅkuśapāda dharaṇīsutasahamoda nārāyaṇa 
+‖ 18 ‖
+
+janakasutāpratipāla jaya jaya saṃsmṛtilīla nārāyaṇa 
+‖ 19 ‖
+
+daśarathavāgdhṛtibhāra daṇḍaka vanasañcāra nārāyaṇa 
+‖ 20 ‖
+
+muśhṭikacāṇūrasaṃhāra munimānasavihāra nārāyaṇa 
+‖ 21 ‖
+
+vālivinigrahaśaurya varasugrīvahitārya nārāyaṇa 
+‖ 22 ‖
+
+māṃ muraḻīkara dhīvara pālaya pālaya śrīdhara nārāyaṇa 
+‖ 23 ‖
+
+jalanidhi bandhana dhīra rāvaṇakaṇṭhavidāra nārāyaṇa 
+‖ 24 ‖
+
+tāṭakamardana rāma naṭaguṇavividha surāma nārāyaṇa 
+‖ 25 ‖
+
+gautamapatnīpūjana karuṇāghanāvalokana nārāyaṇa 
+‖ 26 ‖
+
+sambhramasītāhāra sāketapuravihāra nārāyaṇa 
+‖ 27 ‖
+
+acaloddhṛtacañcatkara bhaktānugrahatatpara nārāyaṇa 
+‖ 28 ‖
+
+naigamagānavinoda rakśhita suprahlāda nārāyaṇa 
+‖ 29 ‖
+
+bhārata yatavaraśaṅkara nāmāmṛtamakhilāntara nārāyaṇa 
+‖ 30 ‖
+
+### PlainEnglish
+
+#### naaraayaNa stotram
+
+naaraayaNa naaraayaNa jaya goviMda hare ‖
+
+naaraayaNa naaraayaNa jaya gopaala hare ‖
+
+karuNaapaaraavaara varuNaalayagaMbheera naaraayaNa 
+‖ 1 ‖
+
+ghananeeradasaMkaasha kRRitakalikalmashhanaashana naaraayaNa 
+‖ 2 ‖
+
+yamunaateeravihaara dhRRitakaustubhamaNihaara naaraayaNa 
+‖ 3 ‖
+
+peetaaMbaraparidhaana surakaLyaaNanidhaana naaraayaNa 
+‖ 4 ‖
+
+maMjulaguMjaabhooshha maayaamaanushhaveshha naaraayaNa 
+‖ 5 ‖
+
+raadhaadharamadhurasika rajaneekarakulatilaka naaraayaNa 
+‖ 6 ‖
+
+muraLeegaanavinoda vedastutabhoopaada naaraayaNa 
+‖ 7 ‖
+
+barhinibarhaapeeDa naTanaaTakaphaNikreeDa naaraayaNa 
+‖ 8 ‖
+
+vaarijabhooshhaabharaNa raajeevarukmiNeeramaNa naaraayaNa 
+‖ 9 ‖
+
+jalaruhadaLanibhanetra jagadaaraMbhakasootra naaraayaNa 
+‖ 10 ‖
+
+paatakarajaneesaMhaara karuNaalaya maamuddhara naaraayaNa 
+‖ 11 ‖
+
+agha bakahayakaMsaare keshava kRRishhNa muraare naaraayaNa 
+‖ 12 ‖
+
+haaTakanibhapeetaaMbara abhayaM kuru me maavara naaraayaNa 
+‖ 13 ‖
+
+dasharatharaajakumaara daanavamadasaMhaara naaraayaNa 
+‖ 14 ‖
+
+govardhanagiri ramaNa gopeemaanasaharaNa naaraayaNa 
+‖ 15 ‖
+
+sarayuteeravihaara sajjana^^RRishhimaMdaara naaraayaNa 
+‖ 16 ‖
+
+vishvaamitramakhatra vividhavaraanucaritra naaraayaNa 
+‖ 17 ‖
+
+dhvajavajraaMkushapaada dharaNeesutasahamoda naaraayaNa 
+‖ 18 ‖
+
+janakasutaapratipaala jaya jaya saMsmRRitileela naaraayaNa 
+‖ 19 ‖
+
+dasharathavaagdhRRitibhaara daMDaka vanasaMcaara naaraayaNa 
+‖ 20 ‖
+
+mushhTikacaaNoorasaMhaara munimaanasavihaara naaraayaNa 
+‖ 21 ‖
+
+vaalivinigrahashaurya varasugreevahitaarya naaraayaNa 
+‖ 22 ‖
+
+maaM muraLeekara dheevara paalaya paalaya shreedhara naaraayaNa 
+‖ 23 ‖
+
+jalanidhi baMdhana dheera raavaNakaMThavidaara naaraayaNa 
+‖ 24 ‖
+
+taaTakamardana raama naTaguNavividha suraama naaraayaNa 
+‖ 25 ‖
+
+gautamapatneepoojana karuNaaghanaavalokana naaraayaNa 
+‖ 26 ‖
+
+saMbhramaseetaahaara saaketapuravihaara naaraayaNa 
+‖ 27 ‖
+
+acaloddhRRitacaMcatkara bhaktaanugrahatatpara naaraayaNa 
+‖ 28 ‖
+
+naigamagaanavinoda rakshhita suprahlaada naaraayaNa 
+‖ 29 ‖
+
+bhaarata yatavarashaMkara naamaamRRitamakhilaaMtara naaraayaNa 
+‖ 30 ‖
+

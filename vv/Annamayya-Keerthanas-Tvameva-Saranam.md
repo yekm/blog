@@ -198,3 +198,33 @@ paTutara nityavaibhavaraaya tiruveMkaTagirinilaya jagannaathaa ‖
 వటపత్రశయన భువనపాలన జంతు- ఘటకారకరణ శృంగారాధిపా ❘  
 పటుతర నిత్యవైభవరాయ తిరువేంకటగిరినిలయ జగన్నాథా ‖  
 
+### English
+
+#### annamayya kīrtana tvameva śaraṇam
+
+tvameva śaraṇaṃ tvameva śaraṇaṃ kamalodara śrījagannāthā ‖
+
+vāsudeva kṛśhṇa vāmana narasiṃha śrī satīśa sarasijanetrā ❘  
+bhūsuravallabha puruśhottama pīta- kauśeyavasana jagannāthā ‖
+
+balabhadrānuja paramapuruśha dugdha jaladhivihāra kuñjaravarada ❘  
+sulabha subhadrā sumukha sureśvara kalidośhaharaṇa jagannāthā ‖
+
+vaṭapatraśayana bhuvanapālana jantu- ghaṭakārakaraṇa śṛṅgārādhipā ❘  
+paṭutara nityavaibhavarāya tiruveṅkaṭagirinilaya jagannāthā ‖
+
+### PlainEnglish
+
+#### annamayya keertana tvameva sharaNam
+
+tvameva sharaNaM tvameva sharaNaM kamalodara shreejagannaathaa ‖
+
+vaasudeva kRRishhNa vaamana narasiMha shree sateesha sarasijanetraa ❘  
+bhoosuravallabha purushhottama peeta- kausheyavasana jagannaathaa ‖
+
+balabhadraanuja paramapurushha dugdha jaladhivihaara kuMjaravarada ❘  
+sulabha subhadraa sumukha sureshvara kalidoshhaharaNa jagannaathaa ‖
+
+vaTapatrashayana bhuvanapaalana jaMtu- ghaTakaarakaraNa shRRiMgaaraadhipaa ❘  
+paTutara nityavaibhavaraaya tiruveMkaTagirinilaya jagannaathaa ‖
+

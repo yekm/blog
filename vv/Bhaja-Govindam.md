@@ -2213,3 +2213,407 @@ bodhita aaseecChodita karaNaiH ‖ 33 ‖
 బోధిత ఆసీచ్ఛోదిత కరణైః ‖ 33 ‖  
 
 
+### English
+
+#### bhaja govindam (moha mudgaram)
+
+bhaja govindaṃ bhaja govindaṃ  
+govindaṃ bhaja mūḍhamate ❘  
+samprāpte sannihite kāle  
+nahi nahi rakśhati ḍukriṅkaraṇe 
+‖ 1 ‖
+
+mūḍha jahīhi dhanāgamatṛśhṇāṃ  
+kuru sadbuddhim manasi vitṛśhṇām ❘  
+yallabhase nija karmopāttaṃ  
+vittaṃ tena vinodaya chittam 
+‖ 2 ‖
+
+nārī stanabhara nābhīdeśaṃ  
+dṛśhṭvā mā gā mohāveśam ❘  
+etanmāṃsa vasādi vikāraṃ  
+manasi vichintayā vāraṃ vāram 
+‖ 3 ‖
+
+naḻinī daḻagata jalamati taraḻaṃ  
+tadvajjīvita matiśaya chapalam ❘  
+viddhi vyādhyabhimāna grastaṃ  
+lokaṃ śokahataṃ cha samastam 
+‖ 4 ‖
+
+yāvad-vittopārjana saktaḥ  
+tāvan-nijaparivāro raktaḥ ❘  
+paśchājjīvati jarjara dehe  
+vārtāṃ koapi na pṛcChati gehe 
+‖ 5 ‖
+
+yāvat-pavano nivasati dehe  
+tāvat-pṛchChati kuśalaṃ gehe ❘  
+gatavati vāyau dehāpāye  
+bhāryā bibhyati tasmin kāye 
+‖ 6 ‖
+
+bāla stāvat krīḍāsaktaḥ  
+taruṇa stāvat taruṇīsaktaḥ ❘  
+vṛddha stāvat-chintāmagnaḥ  
+parame brahmaṇi koapi na lagnaḥ 
+‖ 7 ‖
+
+kā te kāntā kaste putraḥ  
+saṃsāroayamatīva vichitraḥ ❘  
+kasya tvaṃ vā kuta āyātaḥ  
+tatvaṃ chintaya tadiha bhrātaḥ 
+‖ 8 ‖
+
+satsaṅgatve nissaṅgatvaṃ  
+nissaṅgatve nirmohatvam ❘  
+nirmohatve niśchalatattvaṃ  
+niśchalatattve jīvanmuktiḥ 
+‖ 9 ‖
+
+vayasi gate kaḥ kāmavikāraḥ  
+śuśhke nīre kaḥ kāsāraḥ ❘  
+kśhīṇe vitte kaḥ parivāraḥ  
+GYāte tattve kaḥ saṃsāraḥ 
+‖ 10 ‖
+
+mā kuru dhanajana yauvana garvaṃ  
+harati nimeśhāt-kālaḥ sarvam ❘  
+māyāmayamidam-akhilaṃ hitvā  
+brahmapadaṃ tvaṃ praviśa viditvā 
+‖ 11 ‖
+
+dina yāminyau sāyaṃ prātaḥ  
+śiśira vasantau punarāyātaḥ ❘  
+kālaḥ krīḍati gacChatyāyuḥ  
+tadapi na muñchatyāśāvāyuḥ 
+‖ 12 ‖
+
+dvādaśa mañjarikābhira śeśhaḥ  
+kathito vaiyā karaṇasyaiśhaḥ ❘  
+upadeśo bhūd-vidyā nipuṇaiḥ  
+śrīmacChaṅkara bhagavacCharaṇaiḥ 
+‖ 13 ‖
+
+kā te kāntā dhana gata chintā  
+vātula kiṃ tava nāsti niyantā ❘  
+trijagati sajjana saṅgatirekā  
+bhavati bhavārṇava taraṇe naukā 
+‖ 14 ‖
+
+jaṭilo muṇḍī luñjita keśaḥ  
+kāśhāyānbara bahukṛta veśhaḥ ❘  
+paśyannapi cha na paśyati mūḍhaḥ  
+udara nimittaṃ bahukṛta veśhaḥ 
+‖ 15 ‖
+
+aṅgaṃ galitaṃ palitaṃ muṇḍaṃ  
+daśana vihīnaṃ jātaṃ tuṇḍam ❘  
+vṛddho yāti gṛhītvā daṇḍaṃ  
+tadapi na muñchatyāśā piṇḍam 
+‖ 16 ‖
+
+agre vahniḥ pṛśhṭhe bhānuḥ  
+rātrau chubuka samarpita jānuḥ ❘  
+karatala bhikśhas-tarutala vāsaḥ  
+tadapi na muñchatyāśā pāśaḥ 
+‖ 17 ‖
+
+kurute gaṅgā sāgara gamanaṃ  
+vrata paripālanam-athavā dānam ❘  
+GYāna vihīnaḥ sarvamatena  
+bhajati na muktiṃ janma śatena 
+‖ 18 ‖
+
+suramandira taru mūla nivāsaḥ  
+śayyā bhūtalam-ajinaṃ vāsaḥ ❘  
+sarva parigraha bhogatyāgaḥ  
+kasya sukhaṃ na karoti virāgaḥ 
+‖ 19 ‖
+
+yogarato vā bhogarato vā  
+saṅgarato vā saṅgavihīnaḥ ❘  
+yasya brahmaṇi ramate chittaṃ  
+nandati nandati nandatyeva 
+‖ 20 ‖
+
+bhagavadgītā kiñchidadhītā  
+gaṅgā jalalava kaṇikā pītā ❘  
+sakṛdapi yena murārī samarchā  
+kriyate tasya yamena na charchā 
+‖ 21 ‖
+
+punarapi jananaṃ punarapi maraṇaṃ  
+punarapi jananī jaṭhare śayanam ❘  
+iha saṃsāre bahu dustāre  
+kṛpayā'pāre pāhi murāre 
+‖ 22 ‖
+
+rathyā charpaṭa virachita kanthaḥ  
+puṇyāpuṇya vivarjita panthaḥ ❘  
+yogī yoga niyojita chittaḥ  
+ramate bālonmattavadeva 
+‖ 23 ‖
+
+kastvaṃ koahaṃ kuta āyātaḥ  
+kā me jananī ko me tātaḥ ❘  
+iti paribhāvaya nija saṃsāraṃ  
+sarvaṃ tyaktvā svapna vichāram 
+‖ 24 ‖
+
+tvayi mayi sarvatraiko viśhṇuḥ  
+vyarthaṃ kupyasi mayyasahiśhṇuḥ ❘  
+bhava samachittaḥ sarvatra tvaṃ  
+vāñChasyachirād-yadi viśhṇutvam 
+‖ 25 ‖
+
+śatrau mitre putre bandhau  
+mā kuru yatnaṃ vigraha sandhau ❘  
+sarvasminnapi paśyātmānaṃ  
+sarvatrot-sṛja bhedāGYānam 
+‖ 26 ‖
+
+kāmaṃ krodhaṃ lobhaṃ mohaṃ  
+tyaktvā''tmānaṃ paśyati soaham ❘  
+ātmaGYnāna vihīnā mūḍhāḥ  
+te pachyante naraka nigūḍhāḥ 
+‖ 27 ‖
+
+geyaṃ gītā nāma sahasraṃ  
+dhyeyaṃ śrīpati rūpam-ajasram ❘  
+neyaṃ sajjana saṅge chittaṃ  
+deyaṃ dīnajanāya cha vittam 
+‖ 28 ‖
+
+sukhataḥ kriyate rāmābhogaḥ  
+paśchāddhanta śarīre rogaḥ ❘  
+yadyapi loke maraṇaṃ śaraṇaṃ  
+tadapi na muñchati pāpācharaṇam 
+‖ 29 ‖
+
+arthamanarthaṃ bhāvaya nityaṃ  
+nāsti tataḥ sukha leśaḥ satyam ❘  
+putrādapi dhanabhājāṃ bhītiḥ  
+sarvatraiśhā vihitā rītiḥ 
+‖ 30 ‖
+
+prāṇāyāmaṃ pratyāhāraṃ  
+nityānitya viveka vichāram ❘  
+jāpyasameta samādhi vidhānaṃ  
+kurva vadhānaṃ mahad-avadhānam 
+‖ 31 ‖
+
+guru charaṇāmbhuja nirbharabhaktaḥ  
+saṃsārād-achirād-bhava muktaḥ ❘  
+sendiya mānasa niyamādevaṃ  
+drakśhyasi nija hṛdayasthaṃ devam 
+‖ 32 ‖
+
+mūḍhaḥ kaśchina vaiyākaraṇo  
+ḍukṛṇkaraṇādhyayana dhurīṇaḥ ❘  
+śrīmacChaṅkara bhagavachchiśhyaiḥ  
+bodhita āsīcChodita karaṇaiḥ 
+‖ 33 ‖
+
+### PlainEnglish
+
+#### bhaja goviMdam (moha mudgaram)
+
+bhaja govindaM bhaja govindaM  
+govindaM bhaja mooDhamate ❘  
+saMpraapte sannihite kaale  
+nahi nahi rakshhati DukrinkaraNe 
+‖ 1 ‖
+
+mooDha jaheehi dhanaagamatRRishhNaaM  
+kuru sadbuddhim manasi vitRRishhNaam ❘  
+yallabhase nija karmopaattaM  
+vittaM tena vinodaya chittam 
+‖ 2 ‖
+
+naaree stanabhara naabheedeshaM  
+dRRishhTvaa maa gaa mohaavesham ❘  
+etanmaaMsa vasaadi vikaaraM  
+manasi vichintayaa vaaraM vaaram 
+‖ 3 ‖
+
+naLinee daLagata jalamati taraLaM  
+tadvajjeevita matishaya chapalam ❘  
+viddhi vyaadhyabhimaana grastaM  
+lokaM shokahataM cha samastam 
+‖ 4 ‖
+
+yaavad-vittopaarjana saktaH  
+taavan-nijaparivaaro raktaH ❘  
+pashchaajjeevati jarjara dehe  
+vaartaaM ko.api na pRRicChati gehe 
+‖ 5 ‖
+
+yaavat-pavano nivasati dehe  
+taavat-pRRichChati kushalaM gehe ❘  
+gatavati vaayau dehaapaaye  
+bhaaryaa bibhyati tasmin kaaye 
+‖ 6 ‖
+
+baala staavat kreeDaasaktaH  
+taruNa staavat taruNeesaktaH ❘  
+vRRiddha staavat-chintaamagnaH  
+parame brahmaNi ko.api na lagnaH 
+‖ 7 ‖
+
+kaa te kaantaa kaste putraH  
+saMsaaro.ayamateeva vichitraH ❘  
+kasya tvaM vaa kuta aayaataH  
+tatvaM chintaya tadiha bhraataH 
+‖ 8 ‖
+
+satsangatve nissangatvaM  
+nissangatve nirmohatvam ❘  
+nirmohatve nishchalatattvaM  
+nishchalatattve jeevanmuktiH 
+‖ 9 ‖
+
+vayasi gate kaH kaamavikaaraH  
+shushhke neere kaH kaasaaraH ❘  
+kshheeNe vitte kaH parivaaraH  
+gnyaate tattve kaH saMsaaraH 
+‖ 10 ‖
+
+maa kuru dhanajana yauvana garvaM  
+harati nimeshhaat-kaalaH sarvam ❘  
+maayaamayamidam-akhilaM hitvaa  
+brahmapadaM tvaM pravisha viditvaa 
+‖ 11 ‖
+
+dina yaaminyau saayaM praataH  
+shishira vasantau punaraayaataH ❘  
+kaalaH kreeDati gacChatyaayuH  
+tadapi na munchatyaashaavaayuH 
+‖ 12 ‖
+
+dvaadasha maMjarikaabhira sheshhaH  
+kathito vaiyaa karaNasyaishhaH ❘  
+upadesho bhood-vidyaa nipuNaiH  
+shreemacChaMkara bhagavacCharaNaiH 
+‖ 13 ‖
+
+kaa te kaantaa dhana gata chintaa  
+vaatula kiM tava naasti niyantaa ❘  
+trijagati sajjana sangatirekaa  
+bhavati bhavaarNava taraNe naukaa 
+‖ 14 ‖
+
+jaTilo muNDee lunjita keshaH  
+kaashhaayaanbara bahukRRita veshhaH ❘  
+pashyannapi cha na pashyati mooDhaH  
+udara nimittaM bahukRRita veshhaH 
+‖ 15 ‖
+
+angaM galitaM palitaM muNDaM  
+dashana viheenaM jaataM tuNDam ❘  
+vRRiddho yaati gRRiheetvaa daNDaM  
+tadapi na munchatyaashaa piNDam 
+‖ 16 ‖
+
+agre vahniH pRRishhThe bhaanuH  
+raatrau chubuka samarpita jaanuH ❘  
+karatala bhikshhas-tarutala vaasaH  
+tadapi na munchatyaashaa paashaH 
+‖ 17 ‖
+
+kurute gangaa saagara gamanaM  
+vrata paripaalanam-athavaa daanam ❘  
+gnyaana viheenaH sarvamatena  
+bhajati na muktiM janma shatena 
+‖ 18 ‖
+
+suramandira taru moola nivaasaH  
+shayyaa bhootalam-ajinaM vaasaH ❘  
+sarva parigraha bhogatyaagaH  
+kasya sukhaM na karoti viraagaH 
+‖ 19 ‖
+
+yogarato vaa bhogarato vaa  
+sangarato vaa sangaviheenaH ❘  
+yasya brahmaNi ramate chittaM  
+nandati nandati nandatyeva 
+‖ 20 ‖
+
+bhagavadgeetaa kinchidadheetaa  
+gangaa jalalava kaNikaa peetaa ❘  
+sakRRidapi yena muraaree samarchaa  
+kriyate tasya yamena na charchaa 
+‖ 21 ‖
+
+punarapi jananaM punarapi maraNaM  
+punarapi jananee jaThare shayanam ❘  
+iha saMsaare bahu dustaare  
+kRRipayaa.apaare paahi muraare 
+‖ 22 ‖
+
+rathyaa charpaTa virachita kanthaH  
+puNyaapuNya vivarjita panthaH ❘  
+yogee yoga niyojita chittaH  
+ramate baalonmattavadeva 
+‖ 23 ‖
+
+kastvaM ko.ahaM kuta aayaataH  
+kaa me jananee ko me taataH ❘  
+iti paribhaavaya nija saMsaaraM  
+sarvaM tyaktvaa svapna vichaaram 
+‖ 24 ‖
+
+tvayi mayi sarvatraiko vishhNuH  
+vyarthaM kupyasi mayyasahishhNuH ❘  
+bhava samachittaH sarvatra tvaM  
+vaanChasyachiraad-yadi vishhNutvam 
+‖ 25 ‖
+
+shatrau mitre putre baMdhau  
+maa kuru yatnaM vigraha sandhau ❘  
+sarvasminnapi pashyaatmaanaM  
+sarvatrot-sRRija bhedaagnyaanam 
+‖ 26 ‖
+
+kaamaM krodhaM lobhaM mohaM  
+tyaktvaa.a.atmaanaM pashyati so.aham ❘  
+aatmagnynaana viheenaa mooDhaaH  
+te pachyante naraka nigooDhaaH 
+‖ 27 ‖
+
+geyaM geetaa naama sahasraM  
+dhyeyaM shreepati roopam-ajasram ❘  
+neyaM sajjana sange chittaM  
+deyaM deenajanaaya cha vittam 
+‖ 28 ‖
+
+sukhataH kriyate raamaabhogaH  
+pashchaaddhanta shareere rogaH ❘  
+yadyapi loke maraNaM sharaNaM  
+tadapi na munchati paapaacharaNam 
+‖ 29 ‖
+
+arthamanarthaM bhaavaya nityaM  
+naasti tataH sukha leshaH satyam ❘  
+putraadapi dhanabhaajaaM bheetiH  
+sarvatraishhaa vihitaa reetiH 
+‖ 30 ‖
+
+praaNaayaamaM pratyaahaaraM  
+nityaanitya viveka vichaaram ❘  
+jaapyasameta samaadhi vidhaanaM  
+kurva vadhaanaM mahad-avadhaanam 
+‖ 31 ‖
+
+guru charaNaambhuja nirbharabhaktaH  
+saMsaaraad-achiraad-bhava muktaH ❘  
+sendiya maanasa niyamaadevaM  
+drakshhyasi nija hRRidayasthaM devam 
+‖ 32 ‖
+
+mooDhaH kashchina vaiyaakaraNo  
+DukRRiNkaraNaadhyayana dhureeNaH ❘  
+shreemacChaMkara bhagavachchishhyaiH  
+bodhita aaseecChodita karaNaiH 
+‖ 33 ‖
+

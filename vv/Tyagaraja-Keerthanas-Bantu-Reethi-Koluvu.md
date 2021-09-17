@@ -185,3 +185,25 @@ viraajillunayya, tyaagaraajunike
 రామ నామమనే, వర ఖఢ్గమి  
 విరాజిల్లునయ్య, త్యాగరాజునికే  
 
+### English
+
+#### tyāgarāja kīrtana baṇṭu rīti koluvu
+
+baṇṭu rīti koluvīya vayya rāma  
+tuṇṭa viṇṭi vāni modalaina  
+madādula baṭṭi nela kūlajeyu nija  
+romāñcamane, ghana kañcukamu  
+rāma bhaktuḍane, mudrabillayu  
+rāma nāmamane, vara khaḍhgami  
+virājillunayya, tyāgarājunike   
+### PlainEnglish
+
+#### tyaagaraaja keertana baMTu reeti k.oluvu
+
+baMTu reeti k.oluveeya vayya raama  
+tuMTa viMTi vaani m.odalaina  
+madaadula baTTi nela koolajeyu nija  
+romaaMcamane, ghana kaMcukamu  
+raama bhaktuDane, mudrabillayu  
+raama naamamane, vara khaDhgami  
+viraajillunayya, tyaagaraajunike   

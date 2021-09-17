@@ -627,3 +627,113 @@ shivalokamavaapnoti shivena saha modate ‖
 శివలోకమవాప్నోతి శివేన సహ మోదతే ‖  
 
 
+### English
+
+#### liṅgāśhṭakam
+
+brahmamurāri surārchita liṅgaṃ  
+nirmalabhāsita śobhita liṅgam ❘  
+janmaja duḥkha vināśaka liṅgaṃ  
+tatpraṇamāmi sadāśiva liṅgam 
+‖ 1 ‖
+
+devamuni pravarārchita liṅgaṃ  
+kāmadahana karuṇākara liṅgam ❘  
+rāvaṇa darpa vināśana liṅgaṃ  
+tatpraṇamāmi sadāśiva liṅgam 
+‖ 2 ‖
+
+sarva sugandha sulepita liṅgaṃ  
+buddhi vivardhana kāraṇa liṅgam ❘  
+siddha surāsura vandita liṅgaṃ  
+tatpraṇamāmi sadāśiva liṅgam 
+‖ 3 ‖
+
+kanaka mahāmaṇi bhūśhita liṅgaṃ  
+phaṇipati veśhṭita śobhita liṅgam ❘  
+dakśhasuyajJṇa vināśana liṅgaṃ  
+tatpraṇamāmi sadāśiva liṅgam 
+‖ 4 ‖
+
+kuṅkuma chandana lepita liṅgaṃ  
+paṅkaja hāra suśobhita liṅgam ❘  
+sañchita pāpa vināśana liṅgaṃ  
+tatpraṇamāmi sadāśiva liṅgam 
+‖ 5 ‖
+
+devagaṇārchita sevita liṅgaṃ  
+bhāvai-rbhaktibhireva cha liṅgam ❘  
+dinakara koṭi prabhākara liṅgaṃ  
+tatpraṇamāmi sadāśiva liṅgam 
+‖ 6 ‖
+
+aśhṭadaldopariveśhṭita liṅgaṃ  
+sarvasamudbhava kāraṇa liṅgam ❘  
+aśhṭadaridra vināśana liṅgaṃ  
+tatpraṇamāmi sadāśiva liṅgam 
+‖ 7 ‖
+
+suraguru suravara pūjita liṅgaṃ  
+suravana puśhpa sadārchita liṅgam ❘  
+parātparaṃ (paramapadaṃ) paramātmaka liṅgaṃ  
+tatpraṇamāmi sadāśiva liṅgam 
+‖ 8 ‖
+
+liṅgāśhṭakamidaṃ puṇyaṃ yaḥ paṭheśśiva sannidhau ❘  
+śivalokamavāpnoti śivena saha modate ‖
+
+### PlainEnglish
+
+#### lingaashhTakam
+
+brahmamuraari suraarchita lingaM  
+nirmalabhaasita shobhita lingam ❘  
+janmaja duHkha vinaashaka lingaM  
+tatpraNamaami sadaashiva lingam 
+‖ 1 ‖
+
+devamuni pravaraarchita lingaM  
+kaamadahana karuNaakara lingam ❘  
+raavaNa darpa vinaashana lingaM  
+tatpraNamaami sadaashiva lingam 
+‖ 2 ‖
+
+sarva sugaMdha sulepita lingaM  
+buddhi vivardhana kaaraNa lingam ❘  
+siddha suraasura vaMdita lingaM  
+tatpraNamaami sadaashiva lingam 
+‖ 3 ‖
+
+kanaka mahaamaNi bhooshhita lingaM  
+phaNipati veshhTita shobhita lingam ❘  
+dakshhasuyajjhNa vinaashana lingaM  
+tatpraNamaami sadaashiva lingam 
+‖ 4 ‖
+
+kunkuma chaMdana lepita lingaM  
+pankaja haara sushobhita lingam ❘  
+sanchita paapa vinaashana lingaM  
+tatpraNamaami sadaashiva lingam 
+‖ 5 ‖
+
+devagaNaarchita sevita lingaM  
+bhaavai-rbhaktibhireva cha lingam ❘  
+dinakara koTi prabhaakara lingaM  
+tatpraNamaami sadaashiva lingam 
+‖ 6 ‖
+
+ashhTadaldopariveshhTita lingaM  
+sarvasamudbhava kaaraNa lingam ❘  
+ashhTadaridra vinaashana lingaM  
+tatpraNamaami sadaashiva lingam 
+‖ 7 ‖
+
+suraguru suravara poojita lingaM  
+suravana pushhpa sadaarchita lingam ❘  
+paraatparaM (paramapadaM) paramaatmaka lingaM  
+tatpraNamaami sadaashiva lingam 
+‖ 8 ‖
+
+lingaashhTakamidaM puNyaM yaH paTheshshiva sannidhau ❘  
+shivalokamavaapnoti shivena saha modate ‖
+

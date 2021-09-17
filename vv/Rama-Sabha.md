@@ -380,3 +380,71 @@ poojyulaina munuluMDu sabha ‖ (raajasabha)
 పుష్ప వర్షములు కురియు సభ  
 పూజ్యులైన మునులుండు సభ ‖ (రాజసభ)  
 
+### English
+
+#### rāma sabha
+
+rājasabha, raghu rāmasabha    
+sītā kānta kalyāṇa sabha ❘  
+ariśhaḍvargamularayu sabha  
+paramapadambunu osagu sabha ‖
+
+  (rājasabha)  
+vedāntulake GYāna sabha  
+vipravarulake dāna sabha ❘  
+durjanulaku virodhi sabha  
+sajjanulaku santośha sabha ‖
+
+  (rājasabha)  
+suralu, asurulu kolacu sabha  
+amarulu, rudrulu pogaḍu sabha ❘  
+veruvaka harivillu viracu sabha  
+janakuni madi meppiñcu sabha ‖
+
+  (rājasabha)  
+bhakti GYānamulosagu sabha  
+sṛśhṭi rahitulai nilacu sabha ❘  
+uttama puruśhula mukti sabha  
+citta viśrāntinosagu sabha ‖
+
+  (rājasabha)  
+gaṃ-dharvulu gānamu ceyu sabha  
+raṃ-bhādulu nāṭyamulāḍu sabha ❘  
+puśhpa varśhamulu kuriyu sabha  
+pūjyulaina munuluṇḍu sabha ‖
+
+  (rājasabha)  
+### PlainEnglish
+
+#### raama sabha
+
+raajasabha, raghu raamasabha    
+seetaa kaaMta kalyaaNa sabha ❘  
+arishhaDvargamularayu sabha  
+paramapadaMbunu .osagu sabha ‖
+
+  (raajasabha)  
+vedaaMtulake gnyaana sabha  
+vipravarulake daana sabha ❘  
+durjanulaku virodhi sabha  
+sajjanulaku saMtoshha sabha ‖
+
+  (raajasabha)  
+suralu, asurulu k.olacu sabha  
+amarulu, rudrulu p.ogaDu sabha ❘  
+v.eruvaka harivillu viracu sabha  
+janakuni madi m.eppiMcu sabha ‖
+
+  (raajasabha)  
+bhakti gnyaanamul.osagu sabha  
+sRRishhTi rahitulai nilacu sabha ❘  
+uttama purushhula mukti sabha  
+citta vishraaMtin.osagu sabha ‖
+
+  (raajasabha)  
+gaM-dharvulu gaanamu ceyu sabha  
+raM-bhaadulu naaTyamulaaDu sabha ❘  
+pushhpa varshhamulu kuriyu sabha  
+poojyulaina munuluMDu sabha ‖
+
+  (raajasabha)  

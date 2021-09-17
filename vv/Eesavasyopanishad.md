@@ -926,3 +926,179 @@ oM _shaa_ ntiH _shaa_ ntiH _shaa_ ntiH ‖
 ఓం _శా_ ంతిః _శా_ ంతిః _శా_ ంతిః ‖  
 
 
+### English
+
+#### īśāvāsyopaniśhad
+
+oṃ pūrṇamadaḥ pūrṇamidaṃ pūrṇātpūrṇamudachyate ❘  
+pūrṇasya pūrṇamādāya pūrṇamevāvaśiśhyate ‖
+
+oṃ śāntiḥ śāntiḥ śāntiḥ ‖
+
+oṃ īśā vāsya'midagṃ sarvaṃ yatkiñcha jaga'tvāṃ jaga't ❘  
+tena' tyaktena' bhuñjīthā mā gṛ'dhaḥ kasya'sviddhanam'' 
+‖ 1 ‖
+
+kurvanneveha karmā''ṇi jijīviśhecchatagṃ samā''ḥ ❘  
+evaṃ tvayi nānyatheto'''sti na karma' lipyate' nare'' 
+‖ 2 ‖
+
+asuryā nāma te lokā andhena tamasā''vṛ'tāḥ ❘  
+tāgṃste pretyābhiga'cChanti ye ke chā''tmahano janā''ḥ 
+‖ 3 ‖
+
+ane''jadekaṃ mana'so javī''yo naina'ddevā ā''pnuvanpūrvamarśha't ❘  
+taddhāva'to'nyānatye''ti tiśhṭhattasmin''napo mā''tariśvā'' dadhāti 
+‖ 4 ‖
+
+tade''jati tanneja'ti taddūre tadva'ntike ❘  
+tadantara'sya sarva'sya tadu sarva'syāsya bāhyataḥ 
+‖ 5 ‖
+
+yastu sarvā''ṇi bhūtānyātmanyevānupaśya'ti ❘  
+sarvabhūteśhu' chātmānaṃ tato na vihu'gupsate 
+‖ 6 ‖
+
+yasminsarvā''ṇi bhūtānyātmaivābhū''dvijānataḥ ❘  
+tatra ko mohaḥ kaḥ śoka'ḥ ekatvama'nupaśya'taḥ 
+‖ 7 ‖
+
+sa parya'gācchukrama'kāyama'praṇama'snāviragṃ śuddhamapā''paviddham ❘  
+kavirma'nīśhī pa'ribhūḥ sva'yambhū-ryā''thātathyatoarthān   
+vya'dadhācChāśvatībhyaḥ samā''bhyaḥ 
+‖ 8 ‖
+
+andhaṃ tamaḥ pravi'śanti yeavi'dyāmupāsa'te ❘  
+tato bhūya' iva te tamo ya u' vidyāyā''gṃ ratāḥ 
+‖ 9 ‖
+
+anyadevāyuridyayā'nyadā''huravi'dyayā ❘  
+iti' śuśuma dhīrā''ṇāṃ ye nastadvi'chachakśhire 
+‖ 10 ‖
+
+vidyāṃ chāvi'dyāṃ cha yastadvedobhaya'gṃ saha ❘  
+avi'dyayā mṛtyuṃ tīrtvā vidyayā'mṛta'maśnute 
+‖ 11 ‖
+
+andhaṃ tamaḥ pravi'śanti yeasam''bhūtimupāsa'te ❘  
+tato bhūya' iva te tamo ya u sambhū''tyāgṃ ratāḥ 
+‖ 12 ‖
+
+anyadevāhuḥ sam''bhavādanyadā''hurasam''bhavāt ❘  
+iti' śuśruma dhīrā''ṇāṃ ye nastadvi'chachakśhire 
+‖ 13 ‖
+
+sambhū''tiṃ cha viṇāśaṃ cha yastadvedobhaya'gṃ saha ❘  
+vināśena' mṛtyuṃ tīrtvā sambhū''tyā'mṛta'maśnute 
+‖ 14 ‖
+
+hiraṇmaye''na pātre''ṇa satyasyāpi'hitaṃ mukham'' ❘  
+tatvaṃ pū''śhannapāvṛ'ṇu satyadha''rmāya dṛśhṭaye'' 
+‖ 15 ‖
+
+pūśha'nnekarśhe yama sūrya prājā''patya vyū''ha raśmīn  
+samū''ha tejo yatte'' rūpaṃ kalyā''ṇatamaṃ tatte'' paśyāmi ❘  
+yo'sāvasau puru'śhaḥ so'hama'smi 
+‖ 16 ‖
+
+vāyurani'lamamṛtamathedaṃ bhasmā''ntagṃ śarī'ram ❘  
+oṃ 3 krato smara' kṛtagṃ sma'ra krato smara' kṛtagṃ sma'ra 
+‖ 17 ‖
+
+agne naya' supathā'' rāye asmān viśvā'ni deva vayanā'ni vidvān ❘  
+yuyodhyasmajju'hurāṇameno bhūyi'śhṭāṃ te nama'uktiṃ vidhema 
+‖ 18 ‖
+
+oṃ pūrṇamadaḥ pūrṇamidaṃ pūrṇātpūrṇamudachyate ❘  
+pūrṇasya pūrṇamādāya pūrṇamevāvaśiśhyate ‖
+
+oṃ śāntiḥ śāntiḥ śāntiḥ ‖
+
+### PlainEnglish
+
+#### eeshaavaasyopanishhad
+
+oM poorNamadaH poorNamidaM poorNaatpoorNamudachyate ❘  
+poorNasya poorNamaadaaya poorNamevaavashishhyate ‖
+
+oM shaantiH shaantiH shaantiH ‖
+
+oM eeshaa vaasya'midagM sarvaM yatkiMcha jaga'tvaaM jaga't ❘  
+tena' tyaktena' bhuMjeethaa maa gRRi'dhaH kasya'sviddhanam'' 
+‖ 1 ‖
+
+kurvanneveha karmaa''Ni jijeevishhecchatagM samaa''H ❘  
+evaM tvayi naanyatheto''.asti na karma' lipyate' nare'' 
+‖ 2 ‖
+
+asuryaa naama te lokaa aMdhena tamasaa.a.avRRi'taaH ❘  
+taagMste pretyaabhiga'cChaMti ye ke chaa''tmahano janaa''H 
+‖ 3 ‖
+
+ane''jadekaM mana'so javee''yo naina'ddevaa aa''pnuvanpoorvamarshha't ❘  
+taddhaava'to.anyaanatye''ti tishhThattasmin''napo maa''tarishvaa'' dadhaati 
+‖ 4 ‖
+
+tade''jati tanneja'ti taddoore tadva'Mtike ❘  
+tadaMtara'sya sarva'sya tadu sarva'syaasya baahyataH 
+‖ 5 ‖
+
+yastu sarvaa''Ni bhootaanyaatmanyevaanupashya'ti ❘  
+sarvabhooteshhu' chaatmaanaM tato na vihu'gupsate 
+‖ 6 ‖
+
+yasminsarvaa''Ni bhootaanyaatmaivaabhoo''dvijaanataH ❘  
+tatra ko mohaH kaH shoka'H ekatvama'nupashya'taH 
+‖ 7 ‖
+
+sa parya'gaacchukrama'kaayama'praNama'snaaviragM shuddhamapaa''paviddham ❘  
+kavirma'neeshhee pa'ribhooH sva'yaMbhoo-ryaa''thaatathyato.arthaan   
+vya'dadhaacChaashvateebhyaH samaa''bhyaH 
+‖ 8 ‖
+
+aMdhaM tamaH pravi'shaMti ye.avi'dyaamupaasa'te ❘  
+tato bhooya' iva te tamo ya u' vidyaayaa''gM rataaH 
+‖ 9 ‖
+
+anyadevaayuridyayaa.anyadaa''huravi'dyayaa ❘  
+iti' shushuma dheeraa''NaaM ye nastadvi'chachakshhire 
+‖ 10 ‖
+
+vidyaaM chaavi'dyaaM cha yastadvedobhaya'gM saha ❘  
+avi'dyayaa mRRityuM teertvaa vidyayaa.amRRita'mashnute 
+‖ 11 ‖
+
+aMdhaM tamaH pravi'shaMti ye.asam''bhootimupaasa'te ❘  
+tato bhooya' iva te tamo ya u saMbhoo''tyaagM rataaH 
+‖ 12 ‖
+
+anyadevaahuH sam''bhavaadanyadaa''hurasam''bhavaat ❘  
+iti' shushruma dheeraa''NaaM ye nastadvi'chachakshhire 
+‖ 13 ‖
+
+sambhoo''tiM cha viNaashaM cha yastadvedobhaya'gM saha ❘  
+vinaashena' mRRityuM teertvaa sambhoo''tyaa.amRRita'mashnute 
+‖ 14 ‖
+
+hiraNmaye''na paatre''Na satyasyaapi'hitaM mukham'' ❘  
+tatvaM poo''shhannapaavRRi'Nu satyadha''rmaaya dRRishhTaye'' 
+‖ 15 ‖
+
+pooshha'nnekarshhe yama soorya praajaa''patya vyoo''ha rashmeen  
+samoo''ha tejo yatte'' roopaM kalyaa''NatamaM tatte'' pashyaami ❘  
+yo.asaavasau puru'shhaH so.ahama'smi 
+‖ 16 ‖
+
+vaayurani'lamamRRitamathedaM bhasmaa''ntagM sharee'ram ❘  
+oM 3 krato smara' kRRitagM sma'ra krato smara' kRRitagM sma'ra 
+‖ 17 ‖
+
+agne naya' supathaa'' raaye asmaan vishvaa'ni deva vayanaa'ni vidvaan ❘  
+yuyodhyasmajju'huraaNameno bhooyi'shhTaaM te nama'uktiM vidhema 
+‖ 18 ‖
+
+oM poorNamadaH poorNamidaM poorNaatpoorNamudachyate ❘  
+poorNasya poorNamaadaaya poorNamevaavashishhyate ‖
+
+oM shaantiH shaantiH shaantiH ‖
+

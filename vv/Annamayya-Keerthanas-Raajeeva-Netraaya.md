@@ -289,3 +289,47 @@ vitata vaavilipaaTi veera raamaaya ‖
 హితకర శ్రీ వేంకటేశ్వరాయ నమో  
 వితత వావిలిపాటి వీర రామాయ ‖  
 
+### English
+
+#### annamayya kīrtana rājīva netrāya
+
+rājīva netrāya rāghavāya namo ❘  
+saujanya nilayāya jānakīśāya ‖
+
+daśaratha tanūjāya tāṭaka damanāya   
+kuśika sambhava yaGYa gopanāya ❘  
+paśupati mahā dhanurbhañjanāya namo   
+viśada bhārgavarāma vijaya karuṇāya ‖
+
+bharita dharmāya śurpaṇakhāṅga haraṇāya   
+kharadūśhaṇāya ripu khaṇḍanāya ❘  
+taraṇi sambhava sainya rakśhakāyanamo   
+nirupama mahā vārinidhi bandhanāya ‖
+
+hata rāvaṇāya saṃyami nātha varadāya   
+atulita ayodhyā purādhipāya ❘  
+hitakara śrī veṅkaṭeśvarāya namo   
+vitata vāvilipāṭi vīra rāmāya ‖
+
+### PlainEnglish
+
+#### annamayya keertana raajeeva netraaya
+
+raajeeva netraaya raaghavaaya namo ❘  
+saujanya nilayaaya jaanakeeshaaya ‖
+
+dasharatha tanoojaaya taaTaka damanaaya   
+kushika saMbhava yagnya gopanaaya ❘  
+pashupati mahaa dhanurbhaMjanaaya namo   
+vishada bhaargavaraama vijaya karuNaaya ‖
+
+bharita dharmaaya shurpaNakhaaMga haraNaaya   
+kharadooshhaNaaya ripu khaMDanaaya ❘  
+taraNi saMbhava sainya rakshhakaayanamo   
+nirupama mahaa vaarinidhi baMdhanaaya ‖
+
+hata raavaNaaya saMyami naatha varadaaya   
+atulita ayodhyaa puraadhipaaya ❘  
+hitakara shree veMkaTeshvaraaya namo   
+vitata vaavilipaaTi veera raamaaya ‖
+

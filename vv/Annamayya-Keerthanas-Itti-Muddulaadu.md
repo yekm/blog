@@ -315,3 +315,49 @@ tappakuMDa b.eTT.e (baTTi) vaani talak.ettare ‖
 అప్పడైన వేంకటాద్రి అసవాలకుడు గాన  
 తప్పకుండ బెట్టె (బట్టి) వాని తలకెత్తరే ‖  
 
+### English
+
+#### annamayya kīrtana iṭṭi muddulāḍu
+
+rāgaṃ: devagāndhāri  
+iṭṭi muddulāḍi bālu ḍeḍavāḍu vāni   
+baṭṭi tecci poṭṭaniṇḍa bālu voyare ‖
+
+gāmiḍai pāriteñci kāgeḍi vennelalona   
+cema pūvu kaḍiyāla ceyi peṭṭi ❘  
+cīma guṭṭenani tana cekkiṭa gannīru jāra   
+vemaru vāpoye vāni veḍḍu veṭṭare ‖
+
+muccuvale vacci tana muṅga muruvula ceyi   
+tacceḍi perugulona dagabeṭṭi ❘  
+noccenani ceyidīsi nora nella jollugāra   
+vocceli vāpovuvāni nūraḍiñcare ‖
+
+eppuḍu vacceno mā yillu cocci peṭṭeloni   
+cepparāni vuṅgarāla ceyi peṭṭi ❘  
+appaḍaina veṅkaṭādri asavālakuḍu gāna   
+tappakuṇḍa beṭṭe (baṭṭi) vāni talakettare ‖
+
+### PlainEnglish
+
+#### annamayya keertana iTTi muddulaaDu
+
+raagaM: devagaaMdhaari  
+iTTi muddulaaDi baalu DeDavaaDu vaani   
+baTTi t.ecci p.oTTaniMDa baalu voyare ‖
+
+gaamiDai paarit.eMci kaag.eDi v.enn.elalona   
+cema poovu kaDiyaala ceyi p.eTTi ❘  
+ceema guTT.enani tana c.ekkiTa ganneeru jaara   
+vemaru vaapoye vaani v.eDDu v.eTTare ‖
+
+muccuval.e vacci tana muMga muruvula ceyi   
+tacc.eDi p.erugulona dagab.eTTi ❘  
+n.occ.enani ceyideesi nora n.ella j.ollugaara   
+v.occ.eli vaapovuvaani nooraDiMcare ‖
+
+.eppuDu vacc.eno maa yillu c.occi p.eTT.eloni   
+c.epparaani vuMgaraala ceyi p.eTTi ❘  
+appaDaina veMkaTaadri asavaalakuDu gaana   
+tappakuMDa b.eTT.e (baTTi) vaani talak.ettare ‖
+

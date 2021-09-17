@@ -1511,3 +1511,275 @@ shree lalitaashhTottara shatanaamaavaLi saMpoorNam
 
 శ్రీ లలితాష్టోత్తర శతనామావళి సంపూర్ణమ్  
 
+### English
+
+#### lalitā aśhṭottara śata nāmāvaḻi
+
+oṃ rajatācala śṛṅgāgra madhyasthāyai namaḥ  
+oṃ himācala mahāvaṃśa pāvanāyai namaḥ  
+oṃ śaṅkarārdhāṅga saundarya śarīrāyai namaḥ  
+oṃ lasanmarakata svacca vigrahāyai namaḥ  
+oṃ mahātiśaya saundarya lāvaṇyāyai namaḥ  
+oṃ śaśāṅkaśekhara prāṇavallabhāyai namaḥ  
+oṃ sadā pañcadaśātmaikya svarūpāyai namaḥ  
+oṃ vajramāṇikya kaṭaka kirīṭāyai namaḥ  
+oṃ kastūrī tilakollāsita niṭalāyai namaḥ  
+oṃ bhasmarekhāṅkita lasanmastakāyai namaḥ 
+‖ 10 ‖
+
+oṃ vikacāmbhoruhadaḻa locanāyai namaḥ   
+oṃ śaraccāmpeya puśhpābha nāsikāyai namaḥ  
+oṃ lasatkāñcana tāṭaṅka yugaḻāyai namaḥ  
+oṃ maṇidarpaṇa saṅkāśa kapolāyai namaḥ  
+oṃ tāmbūlapūritasmera vadanāyai namaḥ  
+oṃ supakvadāḍimībīja vadanāyai namaḥ  
+oṃ kambupūga samacChāya kandharāyai namaḥ  
+oṃ sthūlamuktāphalodāra suhārāyai namaḥ  
+oṃ girīśabaddamāṅgaḻya maṅgaḻāyai namaḥ  
+oṃ padmapāśāṅkuśa lasatkarābjāyai namaḥ 
+‖ 20 ‖
+
+oṃ padmakairava mandāra sumālinyai namaḥ  
+oṃ suvarṇa kumbhayugmābha sukucāyai namaḥ  
+oṃ ramaṇīyacaturbhāhu saṃyuktāyai namaḥ  
+oṃ kanakāṅgada keyūra bhūśhitāyai namaḥ  
+oṃ bṛhatsauvarṇa saundarya vasanāyai namaḥ  
+oṃ bṛhannitamba vilasajjaghanāyai namaḥ  
+oṃ saubhāgyajāta śṛṅgāra madhyamāyai namaḥ  
+oṃ divyabhūśhaṇasandoha rañjitāyai namaḥ  
+oṃ pārijātaguṇādhikya padābjāyai namaḥ  
+oṃ supadmarāgasaṅkāśa caraṇāyai namaḥ 
+‖ 30 ‖
+
+oṃ kāmakoṭi mahāpadma pīṭhasthāyai namaḥ       
+oṃ śrīkaṇṭhanetra kumuda candrikāyai namaḥ  
+oṃ sacāmara  ramāvāṇī virājitāyai namaḥ  
+oṃ bhakta rakśhaṇa dākśhiṇya kaṭākśhāyai namaḥ  
+oṃ bhūteśāliṅganodhbūta pulakāṅgyai namaḥ  
+oṃ anaṅgabhaṅgajana kāpāṅga vīkśhaṇāyai namaḥ  
+oṃ brahmopendra śiroratna rañjitāyai namaḥ   
+oṃ śacīmukhyāmaravadhū sevitāyai namaḥ  
+oṃ līlākalpita  brahmāṇḍamaṇḍalāyai namaḥ  
+oṃ amṛtādi mahāśakti saṃvṛtāyai namaḥ 
+‖ 40 ‖
+
+oṃ ekāpatra sāmrājyadāyikāyai namaḥ  
+oṃ sanakādi samārādhya pādukāyai namaḥ  
+oṃ devarśhabhistūyamāna vaibhavāyai namaḥ  
+oṃ kalaśodbhava durvāsa pūjitāyai namaḥ  
+oṃ mattebhavaktra śhaḍvaktra vatsalāyai namaḥ   
+oṃ cakrarāja mahāyantra madhyavaryai namaḥ  
+oṃ cidagnikuṇḍasambhūta sudehāyai namaḥ  
+oṃ śaśāṅkakhaṇḍasaṃyukta makuṭāyai namaḥ  
+oṃ mattahaṃsavadhū mandagamanāyai namaḥ  
+oṃ vandārujanasandoha vanditāyai namaḥ 
+‖ 50 ‖
+
+oṃ antarmukha janānanda phaladāyai namaḥ  
+oṃ pativratāṅganābhīśhṭa phaladāyai namaḥ  
+oṃ avyājakaruṇāpūrapūritāyai namaḥ  
+oṃ nitānta saccidānanda saṃyuktāyai namaḥ  
+oṃ sahasrasūrya saṃyukta prakāśāyai namaḥ  
+oṃ ratnacintāmaṇi gṛhamadhyasthāyai namaḥ  
+oṃ hānivṛddhi guṇādhikya rahitāyai namaḥ  
+oṃ mahāpadmāṭavīmadhya nivāsāyai namaḥ  
+oṃ jāgrat svapna suśhuptīnāṃ sākśhibhūtyai namaḥ  
+oṃ mahāpāpaughapāpānāṃ vināśinyai namaḥ 
+‖ 60 ‖
+
+oṃ duśhṭabhīti mahābhīti bhañjanāyai namaḥ  
+oṃ samasta  devadanuja prerakāyai namaḥ  
+oṃ samasta hṛdayāmbhoja nilayāyai namaḥ  
+oṃ anāhata mahāpadma mandirāyai namaḥ  
+oṃ sahasrāra sarojāta vāsitāyai namaḥ  
+oṃ punarāvṛttirahita purasthāyai namaḥ  
+oṃ vāṇī gāyatrī sāvitrī sannutāyai namaḥ  
+oṃ ramābhūmisutārādhya padābjāyai namaḥ  
+oṃ lopāmudrārcita śrīmaccaraṇāyai namaḥ  
+oṃ sahasrarati saundarya śarīrāyai namaḥ 
+‖ 70 ‖
+
+oṃ bhāvanāmātra santuśhṭa hṛdayāyai namaḥ  
+oṃ satyasampūrṇa viGYāna siddhidāyai namaḥ  
+oṃ trilocana kṛtollāsa phaladāyai namaḥ  
+oṃ sudhābdhi maṇidvīpa madhyagāyai namaḥ  
+oṃ dakśhādhvara vinirbheda sādhanāyai namaḥ  
+oṃ śrīnātha sodarībhūta śobhitāyai namaḥ  
+oṃ candraśekhara bhaktārti bhañjanāyai namaḥ  
+oṃ sarvopādhi vinirmukta caitanyāyai namaḥ  
+oṃ nāmapārāyaṇābhīśhṭa phaladāyai namaḥ  
+oṃ sṛśhṭi  sthiti tirodhāna saṅkalpāyai namaḥ 
+‖ 80 ‖
+
+oṃ śrīśhoḍaśākśhari mantra madhyagāyai namaḥ  
+oṃ anādyanta svayambhūta divyamūrtyai namaḥ  
+oṃ bhaktahaṃsa parīmukhya viyogāyai namaḥ  
+oṃ mātṛ maṇḍala saṃyukta lalitāyai namaḥ  
+oṃ bhaṇḍadaitya mahasattva nāśanāyai namaḥ  
+oṃ krūrabhaṇḍa śiraChceda nipuṇāyai namaḥ  
+oṃ dhātryacyuta surādhīśa sukhadāyai namaḥ  
+oṃ caṇḍamuṇḍaniśumbhādi khaṇḍanāyai namaḥ  
+oṃ raktākśha raktajihvādi śikśhaṇāyai namaḥ  
+oṃ mahiśhāsuradorvīrya nigrahayai namaḥ 
+‖ 90 ‖
+
+oṃ abhrakeśa  mahotsāha kāraṇāyai namaḥ  
+oṃ maheśayukta  naṭana tatparāyai namaḥ  
+oṃ nijabhartṛ mukhāmbhoja cintanāyai namaḥ  
+oṃ vṛśhabhadhvaja viGYāna bhāvanāyai namaḥ  
+oṃ janmamṛtyujarāroga bhañjanāyai namaḥ  
+oṃ videhamukti viGYāna siddhidāyai namaḥ  
+oṃ kāmakrodhādi śhaḍvarga nāśanāyai namaḥ  
+oṃ rājarājārcita padasarojāyai namaḥ  
+oṃ sarvavedānta saṃsidda sutattvāyai namaḥ  
+oṃ śrī vīrabhakta viGYāna nidhānāyai namaḥ 
+‖ 100 ‖
+
+oṃ āśeśha duśhṭadanuja sūdanāyai namaḥ  
+oṃ sākśhāccrīdakśhiṇāmūrti manoGYāyai namaḥ  
+oṃ hayamethāgra sampūjya mahimāyai namaḥ  
+oṃ dakśhaprajāpatisuta veśhāḍhyāyai namaḥ  
+oṃ sumabāṇekśhu kodaṇḍa maṇḍitāyai namaḥ  
+oṃ nityayauvana māṅgalya maṅgaḻāyai namaḥ  
+oṃ mahādeva samāyukta śarīrāyai namaḥ  
+oṃ mahādeva ratyautsukya mahadevyai namaḥ   
+oṃ chaturviṃśatantryaika rūpāyai 
+‖108 ‖
+
+śrī lalitāśhṭottara śatanāmāvaḻi sampūrṇam  
+### PlainEnglish
+
+#### lalitaa ashhTottara shata naamaavaLi
+
+oM rajataacala shRRiMgaagra madhyasthaayai namaH  
+oM himaacala mahaavaMsha paavanaayai namaH  
+oM shaMkaraardhaaMga sauMdarya shareeraayai namaH  
+oM lasanmarakata svacca vigrahaayai namaH  
+oM mahaatishaya sauMdarya laavaNyaayai namaH  
+oM shashaaMkashekhara praaNavallabhaayai namaH  
+oM sadaa paMcadashaatmaikya svaroopaayai namaH  
+oM vajramaaNikya kaTaka kireeTaayai namaH  
+oM kastooree tilakollaasita niTalaayai namaH  
+oM bhasmarekhaaMkita lasanmastakaayai namaH 
+‖ 10 ‖
+
+oM vikacaaMbhoruhadaLa locanaayai namaH   
+oM sharaccaaMpeya pushhpaabha naasikaayai namaH  
+oM lasatkaaMcana taaTaMka yugaLaayai namaH  
+oM maNidarpaNa saMkaasha kapolaayai namaH  
+oM taaMboolapooritasmera vadanaayai namaH  
+oM supakvadaaDimeebeeja vadanaayai namaH  
+oM kaMbupooga samacChaaya kaMdharaayai namaH  
+oM sthoolamuktaaphalodaara suhaaraayai namaH  
+oM gireeshabaddamaaMgaLya maMgaLaayai namaH  
+oM padmapaashaaMkusha lasatkaraabjaayai namaH 
+‖ 20 ‖
+
+oM padmakairava maMdaara sumaalinyai namaH  
+oM suvarNa kuMbhayugmaabha sukucaayai namaH  
+oM ramaNeeyacaturbhaahu saMyuktaayai namaH  
+oM kanakaaMgada keyoora bhooshhitaayai namaH  
+oM bRRihatsauvarNa sauMdarya vasanaayai namaH  
+oM bRRihannitaMba vilasajjaghanaayai namaH  
+oM saubhaagyajaata shRRiMgaara madhyamaayai namaH  
+oM divyabhooshhaNasaMdoha raMjitaayai namaH  
+oM paarijaataguNaadhikya padaabjaayai namaH  
+oM supadmaraagasaMkaasha caraNaayai namaH 
+‖ 30 ‖
+
+oM kaamakoTi mahaapadma peeThasthaayai namaH       
+oM shreekaMThanetra kumuda caMdrikaayai namaH  
+oM sacaamara  ramaavaaNee viraajitaayai namaH  
+oM bhakta rakshhaNa daakshhiNya kaTaakshhaayai namaH  
+oM bhooteshaaliMganodhboota pulakaaMgyai namaH  
+oM anaMgabhaMgajana kaapaaMga veekshhaNaayai namaH  
+oM brahmopeMdra shiroratna raMjitaayai namaH   
+oM shaceemukhyaamaravadhoo sevitaayai namaH  
+oM leelaakalpita  brahmaaMDamaMDalaayai namaH  
+oM amRRitaadi mahaashakti saMvRRitaayai namaH 
+‖ 40 ‖
+
+oM ekaapatra saamraajyadaayikaayai namaH  
+oM sanakaadi samaaraadhya paadukaayai namaH  
+oM devarshhabhistooyamaana vaibhavaayai namaH  
+oM kalashodbhava durvaasa poojitaayai namaH  
+oM mattebhavaktra shhaDvaktra vatsalaayai namaH   
+oM cakraraaja mahaayaMtra madhyavaryai namaH  
+oM cidagnikuMDasaMbhoota sudehaayai namaH  
+oM shashaaMkakhaMDasaMyukta makuTaayai namaH  
+oM mattahaMsavadhoo maMdagamanaayai namaH  
+oM vaMdaarujanasaMdoha vaMditaayai namaH 
+‖ 50 ‖
+
+oM aMtarmukha janaanaMda phaladaayai namaH  
+oM pativrataaMganaabheeshhTa phaladaayai namaH  
+oM avyaajakaruNaapoorapooritaayai namaH  
+oM nitaaMta saccidaanaMda saMyuktaayai namaH  
+oM sahasrasoorya saMyukta prakaashaayai namaH  
+oM ratnaciMtaamaNi gRRihamadhyasthaayai namaH  
+oM haanivRRiddhi guNaadhikya rahitaayai namaH  
+oM mahaapadmaaTaveemadhya nivaasaayai namaH  
+oM jaagrat svapna sushhupteenaaM saakshhibhootyai namaH  
+oM mahaapaapaughapaapaanaaM vinaashinyai namaH 
+‖ 60 ‖
+
+oM dushhTabheeti mahaabheeti bhaMjanaayai namaH  
+oM samasta  devadanuja prerakaayai namaH  
+oM samasta hRRidayaaMbhoja nilayaayai namaH  
+oM anaahata mahaapadma maMdiraayai namaH  
+oM sahasraara sarojaata vaasitaayai namaH  
+oM punaraavRRittirahita purasthaayai namaH  
+oM vaaNee gaayatree saavitree sannutaayai namaH  
+oM ramaabhoomisutaaraadhya padaabjaayai namaH  
+oM lopaamudraarcita shreemaccaraNaayai namaH  
+oM sahasrarati sauMdarya shareeraayai namaH 
+‖ 70 ‖
+
+oM bhaavanaamaatra saMtushhTa hRRidayaayai namaH  
+oM satyasaMpoorNa vignyaana siddhidaayai namaH  
+oM trilocana kRRitollaasa phaladaayai namaH  
+oM sudhaabdhi maNidveepa madhyagaayai namaH  
+oM dakshhaadhvara vinirbheda saadhanaayai namaH  
+oM shreenaatha sodareebhoota shobhitaayai namaH  
+oM caMdrashekhara bhaktaarti bhaMjanaayai namaH  
+oM sarvopaadhi vinirmukta caitanyaayai namaH  
+oM naamapaaraayaNaabheeshhTa phaladaayai namaH  
+oM sRRishhTi  sthiti tirodhaana saMkalpaayai namaH 
+‖ 80 ‖
+
+oM shreeshhoDashaakshhari maMtra madhyagaayai namaH  
+oM anaadyaMta svayaMbhoota divyamoortyai namaH  
+oM bhaktahaMsa pareemukhya viyogaayai namaH  
+oM maatRRi maMDala saMyukta lalitaayai namaH  
+oM bhaMDadaitya mahasattva naashanaayai namaH  
+oM kroorabhaMDa shiraChceda nipuNaayai namaH  
+oM dhaatryacyuta suraadheesha sukhadaayai namaH  
+oM caMDamuMDanishuMbhaadi khaMDanaayai namaH  
+oM raktaakshha raktajihvaadi shikshhaNaayai namaH  
+oM mahishhaasuradorveerya nigrahayai namaH 
+‖ 90 ‖
+
+oM abhrakesha  mah.otsaaha kaaraNaayai namaH  
+oM maheshayukta  naTana tatparaayai namaH  
+oM nijabhartRRi mukhaaMbhoja ciMtanaayai namaH  
+oM vRRishhabhadhvaja vignyaana bhaavanaayai namaH  
+oM janmamRRityujaraaroga bhaMjanaayai namaH  
+oM videhamukti vignyaana siddhidaayai namaH  
+oM kaamakrodhaadi shhaDvarga naashanaayai namaH  
+oM raajaraajaarcita padasarojaayai namaH  
+oM sarvavedaaMta saMsidda sutattvaayai namaH  
+oM shree veerabhakta vignyaana nidhaanaayai namaH 
+‖ 100 ‖
+
+oM aasheshha dushhTadanuja soodanaayai namaH  
+oM saakshhaaccreedakshhiNaamoorti manognyaayai namaH  
+oM hayamethaagra saMpoojya mahimaayai namaH  
+oM dakshhaprajaapatisuta veshhaaDhyaayai namaH  
+oM sumabaaNekshhu kodaMDa maMDitaayai namaH  
+oM nityayauvana maaMgalya maMgaLaayai namaH  
+oM mahaadeva samaayukta shareeraayai namaH  
+oM mahaadeva ratyautsukya mahadevyai namaH   
+oM chaturviMshataMtryaika roopaayai 
+‖108 ‖
+
+shree lalitaashhTottara shatanaamaavaLi saMpoorNam  

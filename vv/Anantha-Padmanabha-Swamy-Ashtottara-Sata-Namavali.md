@@ -1537,3 +1537,279 @@ shree anaMta padmanaabha ashhTottara shatanaamaavaLi saMpoorNam
 
 శ్రీ అనంత పద్మనాభ అష్టోత్తర శతనామావళి సంపూర్ణమ్  
 
+### English
+
+#### ananta padmanābha svāmi aśhṭottara śata nāmāvaḻi
+
+oṃ kṛśhṇāya namaḥ  
+oṃ kamalanāthāya namaḥ  
+oṃ vāsudevāya namaḥ  
+oṃ sanātanāya namaḥ  
+oṃ vasudevātmajāya namaḥ  
+oṃ puṇyāya namaḥ  
+oṃ līlāmānuśha vigrahāya namaḥ  
+oṃ vatsa kaustubhadharāya namaḥ  
+oṃ yaśodāvatsalāya namaḥ  
+oṃ hariye namaḥ 
+‖ 10 ‖
+
+oṃ caturbhujātta sakrāsigadā namaḥ  
+oṃ śaṅkhāmbujāyudhāyujā namaḥ  
+oṃ devakīnandanāya namaḥ  
+oṃ śrīśāya namaḥ  
+oṃ nandagopapriyātmajāya namaḥ  
+oṃ yamunāveda saṃhāriṇe namaḥ  
+oṃ balabhadra priyānujāya namaḥ  
+oṃ pūtanājīvita harāya namaḥ  
+oṃ śakaṭāsura bhañjanāya namaḥ  
+oṃ nandavrajajanānandine namaḥ 
+‖ 20 ‖
+
+oṃ saccidānanda vigrahāya namaḥ  
+oṃ navanīta viliptāṅgāya namaḥ  
+oṃ anaghāya namaḥ  
+oṃ navanītaharāya namaḥ  
+oṃ mucukunda prasādakāya namaḥ  
+oṃ śhoḍaśastrī sahasreśāya namaḥ  
+oṃ tribhaṅgine namaḥ  
+oṃ madhurākrutaye namaḥ  
+oṃ śukavāgamṛtābdīndave namaḥ 
+‖ 30 ‖
+
+oṃ govindāya namaḥ  
+oṃ yogināmpataye namaḥ  
+oṃ vatsavāṭicarāya namaḥ  
+oṃ anantaya namaḥ  
+oṃ dhenukāsura bhañjanāya namaḥ  
+oṃ tṛṇīkṛta tṛṇāvartāya namaḥ  
+oṃ yamaḻārjuna bhañjanāya namaḥ  
+oṃ uttalottālabhetre namaḥ  
+oṃ tamālaśyāmalā kṛtiye namaḥ  
+oṃ gopagopīśvarāya namaḥ  
+oṃ yogine namaḥ  
+oṃ koṭisūrya samaprabhāya namaḥ 
+‖ 40 ‖
+
+oṃ ilāpataye namaḥ  
+oṃ parañjyotiśhe namaḥ  
+oṃ yādavendrāya namaḥ  
+oṃ yadūdvahāya namaḥ  
+oṃ vanamāline namaḥ  
+oṃ pītavasane namaḥ  
+oṃ pārijātāpaharakāya namaḥ  
+oṃ govarthanāca loddartre namaḥ  
+oṃ gopālāya namaḥ  
+oṃ sarvapālakāya namaḥ 
+‖ 50 ‖
+
+oṃ ajāya namaḥ  
+oṃ nirañjanāya namaḥ  
+oṃ kāmajanakāya namaḥ  
+oṃ kañjalocanāya namaḥ  
+oṃ madhughne namaḥ  
+oṃ madhurānāthāya namaḥ  
+oṃ dvārakānāyakāya namaḥ  
+oṃ baline namaḥ  
+oṃ bṛndāvanānta sañcāriṇe namaḥ 
+‖ 60 ‖
+
+tulasīdāmabhūśhanāya namaḥ  
+oṃ śamantakamaṇerhartre namaḥ  
+oṃ naranārayaṇātmakāya namaḥ  
+oṃ kujja kṛśhṇāmbaradharāya namaḥ  
+oṃ māyine namaḥ  
+oṃ parama puruśhāya namaḥ  
+oṃ muśhṭikāsura cāṇūra namaḥ  
+oṃ mallayuddaviśāradāya namaḥ  
+oṃ saṃsāravairiṇe namaḥ  
+oṃ kaṃsāraye namaḥ  
+oṃ murāraye namaḥ 
+‖ 70 ‖
+
+oṃ narakāntakāya namaḥ  
+oṃ kriśhṇāvyasana karśakāya namaḥ  
+oṃ śiśupālaśira ccetre namaḥ  
+oṃ duryodana kulāntakāya namaḥ  
+oṃ vidurākrūravaradāya namaḥ  
+oṃ viśvarūpapradarśakāya namaḥ  
+oṃ satyavāce namaḥ  
+oṃ satyasaṅkalpāya namaḥ  
+oṃ satyabhāmāratāya namaḥ  
+oṃ jayine namaḥ  
+oṃ  subhadrā pūrvajāya namaḥ 
+‖ 80 ‖
+
+oṃ viśhṇave namaḥ  
+oṃ bhīśhmamukti pradāyakāya namaḥ  
+oṃ jagadgurave namaḥ  
+oṃ jagannāthāya namaḥ  
+oṃ veṇunāda viśāradāya namaḥ  
+oṃ vṛśhabhāsura vidvaṃsine namaḥ  
+oṃ bāṇāsura karāntakṛte namaḥ  
+oṃ yudhiśhṭira pratiśhṭātre namaḥ  
+oṃ barhibarhā vataṃsakāya namaḥ  
+oṃ pārdhasāradiye namaḥ 
+‖ 90 ‖
+
+oṃ avyaktāya namaḥ  
+oṃ gītāmṛta mahodhadhiye namaḥ  
+oṃ kāḻīya phaṇimāṇikyaraṃ namaḥ  
+oṃ jita śrīpadāmbujāya namaḥ  
+oṃ dāmodarāya namaḥ  
+oṃ yaGYa bhoktre namaḥ  
+oṃ dānavendra vināśakāya namaḥ  
+oṃ nārāyaṇāya namaḥ  
+oṃ parabrahmaṇe namaḥ  
+oṃ pannagāśana vāhanāya namaḥ 
+‖ 100 ‖
+
+oṃ jalakrīḍā samāsakta gopī  
+vastrāpahara kāya namaḥ  
+oṃ puṇya ślokāya namaḥ  
+oṃ tīrdha kṛte namaḥ  
+oṃ veda vedyāya namaḥ  
+oṃ dayānidhaye namaḥ  
+oṃ sarva tīrdhātmakāya namaḥ  
+oṃ sarvagra harūpiṇe namaḥ  
+oṃ oṃ parātparāya namaḥ 
+‖ 108 ‖
+
+śrī ananta padmanābha aśhṭottara śatanāmāvaḻi sampūrṇam  
+### PlainEnglish
+
+#### anaMta padmanaabha svaami ashhTottara shata naamaavaLi
+
+oM kRRishhNaaya namaH  
+oM kamalanaathaaya namaH  
+oM vaasudevaaya namaH  
+oM sanaatanaaya namaH  
+oM vasudevaatmajaaya namaH  
+oM puNyaaya namaH  
+oM leelaamaanushha vigrahaaya namaH  
+oM vatsa kaustubhadharaaya namaH  
+oM yashodaavatsalaaya namaH  
+oM hariye namaH 
+‖ 10 ‖
+
+oM caturbhujaatta sakraasigadaa namaH  
+oM shaMkhaaMbujaayudhaayujaa namaH  
+oM devakeenaMdanaaya namaH  
+oM shreeshaaya namaH  
+oM naMdagopapriyaatmajaaya namaH  
+oM yamunaaveda saMhaariNe namaH  
+oM balabhadra priyaanujaaya namaH  
+oM pootanaajeevita haraaya namaH  
+oM shakaTaasura bhaMjanaaya namaH  
+oM naMdavrajajanaanaMdine namaH 
+‖ 20 ‖
+
+oM saccidaanaMda vigrahaaya namaH  
+oM navaneeta viliptaaMgaaya namaH  
+oM anaghaaya namaH  
+oM navaneetaharaaya namaH  
+oM mucukuMda prasaadakaaya namaH  
+oM shhoDashastree sahasreshaaya namaH  
+oM tribhaMgine namaH  
+oM madhuraakrutaye namaH  
+oM shukavaagamRRitaabdeeMdave namaH 
+‖ 30 ‖
+
+oM goviMdaaya namaH  
+oM yoginaaMpataye namaH  
+oM vatsavaaTicaraaya namaH  
+oM anaMtaya namaH  
+oM dhenukaasura bhaMjanaaya namaH  
+oM tRRiNeekRRita tRRiNaavartaaya namaH  
+oM yamaLaarjuna bhaMjanaaya namaH  
+oM uttalottaalabhetre namaH  
+oM tamaalashyaamalaa kRRitiye namaH  
+oM gopagopeeshvaraaya namaH  
+oM yogine namaH  
+oM koTisoorya samaprabhaaya namaH 
+‖ 40 ‖
+
+oM ilaapataye namaH  
+oM paraMjyotishhe namaH  
+oM yaadaveMdraaya namaH  
+oM yadoodvahaaya namaH  
+oM vanamaaline namaH  
+oM peetavasane namaH  
+oM paarijaataapaharakaaya namaH  
+oM govarthanaaca loddartre namaH  
+oM gopaalaaya namaH  
+oM sarvapaalakaaya namaH 
+‖ 50 ‖
+
+oM ajaaya namaH  
+oM niraMjanaaya namaH  
+oM kaamajanakaaya namaH  
+oM kaMjalocanaaya namaH  
+oM madhughne namaH  
+oM madhuraanaathaaya namaH  
+oM dvaarakaanaayakaaya namaH  
+oM baline namaH  
+oM bRRiMdaavanaaMta saMcaariNe namaH 
+‖ 60 ‖
+
+tulaseedaamabhooshhanaaya namaH  
+oM shamaMtakamaNerhartre namaH  
+oM naranaarayaNaatmakaaya namaH  
+oM kujja kRRishhNaaMbaradharaaya namaH  
+oM maayine namaH  
+oM parama purushhaaya namaH  
+oM mushhTikaasura caaNoora namaH  
+oM mallayuddavishaaradaaya namaH  
+oM saMsaaravairiNe namaH  
+oM kaMsaaraye namaH  
+oM muraaraye namaH 
+‖ 70 ‖
+
+oM narakaaMtakaaya namaH  
+oM krishhNaavyasana karshakaaya namaH  
+oM shishupaalashira ccetre namaH  
+oM duryodana kulaaMtakaaya namaH  
+oM viduraakrooravaradaaya namaH  
+oM vishvaroopapradarshakaaya namaH  
+oM satyavaace namaH  
+oM satyasaMkalpaaya namaH  
+oM satyabhaamaarataaya namaH  
+oM jayine namaH  
+oM  subhadraa poorvajaaya namaH 
+‖ 80 ‖
+
+oM vishhNave namaH  
+oM bheeshhmamukti pradaayakaaya namaH  
+oM jagadgurave namaH  
+oM jagannaathaaya namaH  
+oM veNunaada vishaaradaaya namaH  
+oM vRRishhabhaasura vidvaMsine namaH  
+oM baaNaasura karaaMtakRRite namaH  
+oM yudhishhTira pratishhTaatre namaH  
+oM barhibarhaa vataMsakaaya namaH  
+oM paardhasaaradiye namaH 
+‖ 90 ‖
+
+oM avyaktaaya namaH  
+oM geetaamRRita mah.odhadhiye namaH  
+oM kaaLeeya phaNimaaNikyaraM namaH  
+oM jita shreepadaaMbujaaya namaH  
+oM daamodaraaya namaH  
+oM yagnya bhoktre namaH  
+oM daanaveMdra vinaashakaaya namaH  
+oM naaraayaNaaya namaH  
+oM parabrahmaNe namaH  
+oM pannagaashana vaahanaaya namaH 
+‖ 100 ‖
+
+oM jalakreeDaa samaasakta gopee  
+vastraapahara kaaya namaH  
+oM puNya shlokaaya namaH  
+oM teerdha kRRite namaH  
+oM veda vedyaaya namaH  
+oM dayaanidhaye namaH  
+oM sarva teerdhaatmakaaya namaH  
+oM sarvagra haroopiNe namaH  
+oM oM paraatparaaya namaH 
+‖ 108 ‖
+
+shree anaMta padmanaabha ashhTottara shatanaamaavaLi saMpoorNam  

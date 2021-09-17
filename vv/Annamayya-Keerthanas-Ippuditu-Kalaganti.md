@@ -315,3 +315,49 @@ hari gaMTi guru gaMTi naMtaTa melkaMTi ‖
 తిరువేంకటాచలాధిపుని జూడగ గంటి ❘  
 హరి గంటి గురు గంటి నంతట మేల్కంటి ‖  
 
+### English
+
+#### annamayya kīrtana ippuḍiṭu kalaganṭi
+
+rāgaṃ: bhūpāḻaṃ  
+ippuḍiṭu kalagaṇṭi nellalokamulaku ❘  
+appaḍagu tiruveṅkaṭādrīśu gaṇṭi ‖
+
+atiśayambaina śeśhādriśikharamu gaṇṭi ❘  
+pratileni gopura prabhalu gaṇṭi ❘  
+śatakoṭi sūrya tejamulu velugaga gaṇṭi ❘  
+caturāsyu boḍagaṇṭi cayyana melkoṇṭi ‖
+
+kanakaratna kavāṭa kāntu lirugaḍagaṇṭi ❘  
+ghanamaina dīpasaṅghamulu gaṇṭi ❘  
+anupama maṇīmayammagu kirīṭamu gaṇṭi ❘  
+kanakāmbaramu gaṇṭi grakkana melkoṇṭi ‖
+
+arudaina śaṅkha cakrādu lirugaḍa gaṇṭi ❘  
+sarileni yabhaya hastamu gaṇṭi ❘  
+tiruveṅkaṭācalādhipuni jūḍaga gaṇṭi ❘  
+hari gaṇṭi guru gaṇṭi nantaṭa melkaṇṭi ‖
+
+### PlainEnglish
+
+#### annamayya keertana ippuDiTu kalaganTi
+
+raagaM: bhoopaaLaM  
+ippuDiTu kalagaMTi n.ellalokamulaku ❘  
+appaDagu tiruveMkaTaadreeshu gaMTi ‖
+
+atishayaMbaina sheshhaadrishikharamu gaMTi ❘  
+pratileni gopura prabhalu gaMTi ❘  
+shatakoTi soorya tejamulu v.elugaga gaMTi ❘  
+caturaasyu b.oDagaMTi cayyana melk.oMTi ‖
+
+kanakaratna kavaaTa kaaMtu lirugaDagaMTi ❘  
+ghanamaina deepasaMghamulu gaMTi ❘  
+anupama maNeemayammagu kireeTamu gaMTi ❘  
+kanakaaMbaramu gaMTi grakkana melk.oMTi ‖
+
+arudaina shaMkha cakraadu lirugaDa gaMTi ❘  
+sarileni yabhaya hastamu gaMTi ❘  
+tiruveMkaTaacalaadhipuni jooDaga gaMTi ❘  
+hari gaMTi guru gaMTi naMtaTa melkaMTi ‖
+

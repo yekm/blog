@@ -302,3 +302,47 @@ v.edaki v.edaki seviMchuDee ‖
 వెదకి వెదకి సేవించుడీ ‖  
 
 
+### English
+
+#### annamayya kīrtana vedaṃ bevvani
+
+vedaṃ bevvani vedakeḍivi ❘  
+ādevuni goniyāḍuḍī ‖
+
+alarina chaitanyātmaku ḍevvaḍu ❘  
+kalaḍevva ḍechaṭa galaḍanina ❘  
+talatu revvanini danuviyogadaśa ❘  
+yila nātani bhajiyiñchuḍī ‖
+
+kaḍagi sakalarakśhaku ḍindevvaḍu ❘  
+vaḍi nintayu nevvanimayamu ❘  
+piḍikiṭa tṛptulu pitaru levvanini ❘  
+daḍavina ghanuḍātani ganuḍu ‖
+
+kadasi sakalalokambula vāralu ❘  
+yidivo kolicheda revvanini ❘  
+tridaśavandyuḍagu tiruveṅkaṭapati ❘  
+vedaki vedaki seviñchuḍī ‖
+
+### PlainEnglish
+
+#### annamayya keertana vedaM b.evvani
+
+vedaM b.evvani v.edak.eDivi ❘  
+aadevuni g.oniyaaDuDee ‖
+
+alarina chaitanyaatmaku D.evvaDu ❘  
+kalaD.evva D.echaTa galaDanina ❘  
+talatu r.evvanini danuviyogadasha ❘  
+yila naatani bhajiyiMchuDee ‖
+
+kaDagi sakalarakshhaku DiMd.evvaDu ❘  
+vaDi niMtayu n.evvanimayamu ❘  
+piDikiTa tRRiptulu pitaru l.evvanini ❘  
+daDavina ghanuDaatani ganuDu ‖
+
+kadasi sakalalokaMbula vaaralu ❘  
+yidivo k.olich.eda r.evvanini ❘  
+tridashavaMdyuDagu tiruveMkaTapati ❘  
+v.edaki v.edaki seviMchuDee ‖
+

@@ -328,3 +328,49 @@ baalunival.e dirigee badma naabhuDu ‖
 బాలునివలె దిరిగీ బద్మ నాభుడు ‖  
 
 
+### English
+
+#### annamayya kīrtana muddugāre yaśoda
+
+rāgaṃ: sāḻaṅganāṭa  
+muddugāre yaśoda muṅgiṭi mutyamu vīḍu ❘  
+tiddarāni mahimala devakī sutuḍu ‖
+
+anta ninta golletala aracheti māṇikyamu ❘  
+panta māḍe kaṃsuni pāli vajramu ❘  
+kāntula mūḍu lokāla garuḍa pachcha būsa ❘  
+chentala mālo nunna chinni kṛśhṇuḍu ‖
+
+ratikeḻi rukmiṇiki raṅgu movi pagaḍamu ❘  
+miti govardhanapu gomedhikamu ❘  
+satamai śaṅkha chakrāla sandula vaiḍūryamu ❘  
+gatiyai mammu gācheṭi kamalākśhuḍu ‖
+
+kāḻiṅguni talalapai gappina puśhyarāgamu ❘  
+yeleṭi śrī veṅkaṭādri yindranīlamu ❘  
+pāla jalanidhi lona bāyani divya ratnamu ❘  
+bālunivale dirigī badma nābhuḍu ‖
+
+### PlainEnglish
+
+#### annamayya keertana muddugaare yashoda
+
+raagaM: saaLaMganaaTa  
+muddugaare yashoda muMgiTi mutyamu veeDu ❘  
+tiddaraani mahimala devakee sutuDu ‖
+
+aMta niMta g.oll.etala aracheti maaNikyamu ❘  
+paMta maaDe kaMsuni paali vajramu ❘  
+kaaMtula mooDu lokaala garuDa pachcha boosa ❘  
+ch.eMtala maalo nunna chinni kRRishhNuDu ‖
+
+ratikeLi rukmiNiki raMgu movi pagaDamu ❘  
+miti govardhanapu gomedhikamu ❘  
+satamai shaMkha chakraala saMdula vaiDooryamu ❘  
+gatiyai mammu gaacheTi kamalaakshhuDu ‖
+
+kaaLiMguni talalapai gappina pushhyaraagamu ❘  
+yeleTi shree veMkaTaadri yiMdraneelamu ❘  
+paala jalanidhi lona baayani divya ratnamu ❘  
+baalunival.e dirigee badma naabhuDu ‖
+

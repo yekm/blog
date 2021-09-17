@@ -354,3 +354,73 @@ saMgraame saMkaTe chaiva vighnastasya na jaayate ‖ 7 ‖
 
 ‖ ఇతి ముద్గలపురాణోక్తం శ్రీగణేశద్వాదశనామస్తోత్రం సంపూర్ణమ్ ‖  
 
+### English
+
+#### gaṇeśa dvādaśanāma stotram
+
+śuklāmbaradharaṃ viśhṇuṃ śaśivarṇaṃ caturbhujaṃ ❘  
+prasannavadanaṃ dhyāyetsarvavighnopaśāntayeḥ 
+‖ 1 ‖
+
+abhīpsitārtha sidhyarthaṃ pūjito yaḥ surāsuraiḥ ❘  
+sarvavighnaharastasmai gaṇādhipataye namaḥ 
+‖ 2 ‖
+
+gaṇānāmadhipaśchaṇḍo gajavaktrastrilochanaḥ ❘  
+prasanno bhava me nityaṃ varadātarvināyaka 
+‖ 3 ‖
+
+sumukhaścaikadantaśca kapilo gajakarṇakaḥ ❘  
+lambodaraśca vikaṭo vighnanāśo vināyakaḥ 
+‖ 4 ‖
+
+dhūmraketurgaṇādhyakśho phālacandro gajānanaḥ ❘  
+dvādaśaitāni nāmāni gaṇeśasya tu yaḥ paṭhet 
+‖ 5 ‖
+
+vidyārthī labhate vidyāṃ dhanārthī vipulaṃ dhanam ❘  
+iśhṭakāmaṃ tu kāmārthī dharmārthī mokśhamakśhayam 
+‖ 6 ‖
+
+vidhyārambhe vivāhe cha praveśe nirgame tathā ❘  
+saṅgrāme saṅkaṭe chaiva vighnastasya na jāyate 
+‖ 7 ‖
+
+
+‖ iti mudgalapurāṇoktaṃ śrīgaṇeśadvādaśanāmastotraṃ sampūrṇam ‖
+
+### PlainEnglish
+
+#### gaNesha dvaadashanaama stotram
+
+shuklaaMbaradharaM vishhNuM shashivarNaM caturbhujaM ❘  
+prasannavadanaM dhyaayetsarvavighnopashaantayeH 
+‖ 1 ‖
+
+abheepsitaartha sidhyarthaM poojito yaH suraasuraiH ❘  
+sarvavighnaharastasmai gaNaadhipataye namaH 
+‖ 2 ‖
+
+gaNaanaamadhipashchaMDo gajavaktrastrilochanaH ❘  
+prasanno bhava me nityaM varadaatarvinaayaka 
+‖ 3 ‖
+
+sumukhashcaikadaMtashca kapilo gajakarNakaH ❘  
+laMbodarashca vikaTo vighnanaasho vinaayakaH 
+‖ 4 ‖
+
+dhoomraketurgaNaadhyakshho phaalacaMdro gajaananaH ❘  
+dvaadashaitaani naamaani gaNeshasya tu yaH paThet 
+‖ 5 ‖
+
+vidyaarthee labhate vidyaaM dhanaarthee vipulaM dhanam ❘  
+ishhTakaamaM tu kaamaarthee dharmaarthee mokshhamakshhayam 
+‖ 6 ‖
+
+vidhyaaraMbhe vivaahe cha praveshe nirgame tathaa ❘  
+saMgraame saMkaTe chaiva vighnastasya na jaayate 
+‖ 7 ‖
+
+
+‖ iti mudgalapuraaNoktaM shreegaNeshadvaadashanaamastotraM saMpoorNam ‖
+

@@ -861,3 +861,91 @@ kalikaavataaruDan.eda
 కలికావతారుడనెద  
 
 
+### English
+
+#### gopāla kṛśhṇa daśāvatāram
+
+mallepūlahārameyyave   
+oyamma nannu matsyāvatāruḍanave  
+mallepūlahāramesedā gopālakṛśhṇa  
+matsyāvatāruḍaneda  
+kuppikuccula jaḍaluveyyave   
+oyamma nannu kūrmāvatāruḍanave  
+kuppikuccula jaḍaluvesedā gopālakṛśhṇa  
+kūrmāvatāruḍaneda  
+varamulicci dīviñcave   
+oyamma nannu varahāvatāruḍanave  
+varamulicci dīviñceda gopālakṛśhṇa  
+varahāvatāruḍaneda  
+nāṇyamaina nagaluveyave   
+oyamma nannu narasiṃhāvatāruḍanave  
+nāṇyamaina nagaluvesedā gopālakṛśhṇa  
+narasiṃhāvatāruḍaneda  
+vāyuvega rathamuniyyave   
+oyamma nannu vāmanavatāruḍanave  
+vāyuvega rathamuniccedā gopālakṛśhṇa  
+vāmanāvatāruḍaneda  
+pālu posi buvvapeṭṭave   
+oyamma nannu paraśurāmāvatāruḍanave  
+pālu posi buvvapeṭṭeda gopālakṛśhṇa  
+paraśurāmāvatāruḍaneda  
+ānandabāluḍanave   
+oyamma nannu ayodhyavāsuḍanave  
+ānandabāluḍaneda gopālakṛśhṇa   
+ayodhyavāsuḍaneda  
+govulukāce bāluḍanave   
+oyamma nannu gopālakṛśhṇuḍanave  
+govulukāce bāluḍaneda   
+nā taṇḍri ninnu gopālakṛśhṇuḍaneda  
+budhdhulu kalipi muddapeṭṭave   
+oyamma nannu budhdhāvatāruḍanave  
+budhdhulu kalipi muddapeṭṭeda gopālakṛśhṇa   
+budhdhāvatāruḍaneda  
+kāllaku pasiḍigajjelu kaṭṭave   
+oyamma nannu kalikāvatāruḍanave  
+kāllaku pasiḍigajjelu kaṭṭeda gopālakṛśhṇa   
+kalikāvatāruḍaneda  
+### PlainEnglish
+
+#### gopaala kRRishhNa dashaavataaram
+
+mall.epoolahaaram.eyyave   
+oyamma nannu matsyaavataaruDanave  
+mall.epoolahaarames.edaa gopaalakRRishhNa  
+matsyaavataaruDan.eda  
+kuppikuccula jaDaluv.eyyave   
+oyamma nannu koormaavataaruDanave  
+kuppikuccula jaDaluves.edaa gopaalakRRishhNa  
+koormaavataaruDan.eda  
+varamulicci deeviMcave   
+oyamma nannu varahaavataaruDanave  
+varamulicci deeviMc.eda gopaalakRRishhNa  
+varahaavataaruDan.eda  
+naaNyamaina nagaluveyave   
+oyamma nannu narasiMhaavataaruDanave  
+naaNyamaina nagaluves.edaa gopaalakRRishhNa  
+narasiMhaavataaruDan.eda  
+vaayuvega rathamuniyyave   
+oyamma nannu vaamanavataaruDanave  
+vaayuvega rathamunicc.edaa gopaalakRRishhNa  
+vaamanaavataaruDan.eda  
+paalu posi buvvap.eTTave   
+oyamma nannu parashuraamaavataaruDanave  
+paalu posi buvvap.eTT.eda gopaalakRRishhNa  
+parashuraamaavataaruDan.eda  
+aanaMdabaaluDanave   
+oyamma nannu ayodhyavaasuDanave  
+aanaMdabaaluDan.eda gopaalakRRishhNa   
+ayodhyavaasuDan.eda  
+govulukaac.e baaluDanav.e   
+oyamma nannu gopaalakRRishhNuDanave  
+govulukaac.e baaluDan.eda   
+naa taMDri ninnu gopaalakRRishhNuDan.eda  
+budhdhulu kalipi muddap.eTTave   
+oyamma nannu budhdhaavataaruDanave  
+budhdhulu kalipi muddap.eTT.eda gopaalakRRishhNa   
+budhdhaavataaruDan.eda  
+kaallaku pasiDigajj.elu kaTTave   
+oyamma nannu kalikaavataaruDanave  
+kaallaku pasiDigajj.elu kaTT.eda gopaalakRRishhNa   
+kalikaavataaruDan.eda  

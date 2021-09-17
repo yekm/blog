@@ -653,3 +653,129 @@ iti shreedurgaashhTottara shatanaamastotraM saMpoorNam ‖
 ఇతి శ్రీదుర్గాష్టోత్తర శతనామస్తోత్రం సంపూర్ణమ్ ‖  
 
 
+### English
+
+#### śrī durgā aśhṭottara śata nāma stotram
+
+durgā śivā mahālakśhmī-rmahāgaurī ca caṇḍikā ❘  
+sarvaGYā sarvalokeśī sarvakarmaphalapradā 
+‖ 1 ‖
+
+sarvatīrthamayī puṇyā devayoni-rayonijā ❘  
+bhūmijā nirguṇādhāraśaktiścānīśvarī tathā 
+‖ 2 ‖
+
+nirguṇā nirahaṅkārā sarvagarvavimardinī ❘  
+sarvalokapriyā vāṇī sarvavidyādhidevatā 
+‖ 3 ‖
+
+pārvatī devamātā ca vanīśā vindhyavāsinī ❘  
+tejovatī mahāmātā koṭisūryasamaprabhā 
+‖ 4 ‖
+
+devatā vahnirūpā ca sarojā varṇarūpiṇī ❘  
+guṇāśrayā guṇamadhyā guṇatrayavivarjitā 
+‖ 5 ‖
+
+karmaGYānapradā kāntā sarvasaṃhārakāriṇī ❘  
+dharmaGYānā dharmaniśhṭā sarvakarmavivarjitā 
+‖ 6 ‖
+
+kāmākśhī kāmasaṃhartrī kāmakrodhavivarjitā ❘  
+śāṅkarī śāmbhavī śāntā candrasūryāgnilocanā 
+‖ 7 ‖
+
+sujayā jayabhūmiśhṭhā jāhnavī janapūjitā ❘  
+śāstrā śāstramayā nityā śubhā candrārdhamastakā 
+‖ 8 ‖
+
+bhāratī bhrāmarī kalpā karāḻī kṛśhṇapiṅgaḻā ❘  
+brāhmī nārāyaṇī raudrī candrāmṛtaparivṛtā 
+‖ 9 ‖
+
+jyeśhṭhendirā mahāmāyā jagatsṛśhṭyādhikāriṇī ❘  
+brahmāṇḍakoṭisaṃsthānā kāminī kamalālayā 
+‖ 10 ‖
+
+kātyāyanī kalātītā kālasaṃhārakāriṇī ❘  
+yoganiśhṭhā yogagamyā yogadhyeyā tapasvinī 
+‖ 11 ‖
+
+GYānarūpā nirākārā bhaktābhīśhṭaphalapradā ❘  
+bhūtātmikā bhūtamātā bhūteśā bhūtadhāriṇī 
+‖ 12 ‖
+
+svadhānārīmadhyagatā śhaḍādhārādivardhinī ❘  
+mohitāṃśubhavā śubhrā sūkśhmā mātrā nirālasā 
+‖ 13 ‖
+
+nimnagā nīlasaṅkāśā nityānandā harā parā ❘  
+sarvaGYānapradānandā satyā durlabharūpiṇī 
+‖ 14 ‖
+
+sarasvatī sarvagatā sarvābhīśhṭapradāyinī ❘  
+iti śrīdurgāśhṭottara śatanāmastotraṃ sampūrṇam ‖
+
+### PlainEnglish
+
+#### shree durgaa ashhTottara shata naama stotram
+
+durgaa shivaa mahaalakshhmee-rmahaagauree ca caMDikaa ❘  
+sarvagnyaa sarvalokeshee sarvakarmaphalapradaa 
+‖ 1 ‖
+
+sarvateerthamayee puNyaa devayoni-rayonijaa ❘  
+bhoomijaa nirguNaadhaarashaktishcaaneeshvaree tathaa 
+‖ 2 ‖
+
+nirguNaa nirahaMkaaraa sarvagarvavimardinee ❘  
+sarvalokapriyaa vaaNee sarvavidyaadhidevataa 
+‖ 3 ‖
+
+paarvatee devamaataa ca vaneeshaa viMdhyavaasinee ❘  
+tejovatee mahaamaataa koTisooryasamaprabhaa 
+‖ 4 ‖
+
+devataa vahniroopaa ca sarojaa varNaroopiNee ❘  
+guNaashrayaa guNamadhyaa guNatrayavivarjitaa 
+‖ 5 ‖
+
+karmagnyaanapradaa kaaMtaa sarvasaMhaarakaariNee ❘  
+dharmagnyaanaa dharmanishhTaa sarvakarmavivarjitaa 
+‖ 6 ‖
+
+kaamaakshhee kaamasaMhartree kaamakrodhavivarjitaa ❘  
+shaaMkaree shaaMbhavee shaaMtaa caMdrasooryaagnilocanaa 
+‖ 7 ‖
+
+sujayaa jayabhoomishhThaa jaahnavee janapoojitaa ❘  
+shaastraa shaastramayaa nityaa shubhaa caMdraardhamastakaa 
+‖ 8 ‖
+
+bhaaratee bhraamaree kalpaa karaaLee kRRishhNapiMgaLaa ❘  
+braahmee naaraayaNee raudree caMdraamRRitaparivRRitaa 
+‖ 9 ‖
+
+jyeshhTheMdiraa mahaamaayaa jagatsRRishhTyaadhikaariNee ❘  
+brahmaaMDakoTisaMsthaanaa kaaminee kamalaalayaa 
+‖ 10 ‖
+
+kaatyaayanee kalaateetaa kaalasaMhaarakaariNee ❘  
+yoganishhThaa yogagamyaa yogadhyeyaa tapasvinee 
+‖ 11 ‖
+
+gnyaanaroopaa niraakaaraa bhaktaabheeshhTaphalapradaa ❘  
+bhootaatmikaa bhootamaataa bhooteshaa bhootadhaariNee 
+‖ 12 ‖
+
+svadhaanaareemadhyagataa shhaDaadhaaraadivardhinee ❘  
+mohitaaMshubhavaa shubhraa sookshhmaa maatraa niraalasaa 
+‖ 13 ‖
+
+nimnagaa neelasaMkaashaa nityaanaMdaa haraa paraa ❘  
+sarvagnyaanapradaanaMdaa satyaa durlabharoopiNee 
+‖ 14 ‖
+
+sarasvatee sarvagataa sarvaabheeshhTapradaayinee ❘  
+iti shreedurgaashhTottara shatanaamastotraM saMpoorNam ‖
+

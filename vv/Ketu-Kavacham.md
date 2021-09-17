@@ -367,3 +367,73 @@ sarvashatruvinaashaM ca dhaaraNaadvijayee bhavet ‖ 6 ‖
 
 ‖ ఇతి శ్రీబ్రహ్మాండపురాణే కేతుకవచం సంపూర్ణమ్ ‖  
 
+### English
+
+#### ketu kavacham
+
+dhyānaṃ  
+ketuṃ karālavadanaṃ citravarṇaṃ kirīṭinam ❘  
+praṇamāmi sadā ketuṃ dhvajākāraṃ graheśvaram 
+‖ 1 ‖
+
+❘  
+atha ketu kavacam ❘  
+citravarṇaḥ śiraḥ pātu bhālaṃ dhūmrasamadyutiḥ ❘  
+pātu netre piṅgalākśhaḥ śrutī me raktalocanaḥ 
+‖ 2 ‖
+
+ghrāṇaṃ pātu suvarṇābhaścibukaṃ siṃhikāsutaḥ ❘  
+pātu kaṇṭhaṃ ca me ketuḥ skandhau pātu grahādhipaḥ 
+‖ 3 ‖
+
+hastau pātu suraśreśhṭhaḥ kukśhiṃ pātu mahāgrahaḥ ❘  
+siṃhāsanaḥ kaṭiṃ pātu madhyaṃ pātu mahāsuraḥ 
+‖ 4 ‖
+
+ūrū pātu mahāśīrśho jānunī meatikopanaḥ ❘  
+pātu pādau ca me krūraḥ sarvāṅgaṃ narapiṅgalaḥ 
+‖ 5 ‖
+
+phalaśrutiḥ  
+ya idaṃ kavacaṃ divyaṃ sarvarogavināśanam ❘  
+sarvaśatruvināśaṃ ca dhāraṇādvijayī bhavet 
+‖ 6 ‖
+
+
+‖ iti śrībrahmāṇḍapurāṇe ketukavacaṃ sampūrṇam ‖
+
+### PlainEnglish
+
+#### ketu kavacham
+
+dhyaanaM  
+ketuM karaalavadanaM citravarNaM kireeTinam ❘  
+praNamaami sadaa ketuM dhvajaakaaraM graheshvaram 
+‖ 1 ‖
+
+❘  
+atha ketu kavacam ❘  
+citravarNaH shiraH paatu bhaalaM dhoomrasamadyutiH ❘  
+paatu netre pingalaakshhaH shrutee me raktalocanaH 
+‖ 2 ‖
+
+ghraaNaM paatu suvarNaabhashcibukaM siMhikaasutaH ❘  
+paatu kaNThaM ca me ketuH skandhau paatu grahaadhipaH 
+‖ 3 ‖
+
+hastau paatu surashreshhThaH kukshhiM paatu mahaagrahaH ❘  
+siMhaasanaH kaTiM paatu madhyaM paatu mahaasuraH 
+‖ 4 ‖
+
+ooroo paatu mahaasheershho jaanunee me.atikopanaH ❘  
+paatu paadau ca me krooraH sarvaangaM narapingalaH 
+‖ 5 ‖
+
+phalashrutiH  
+ya idaM kavacaM divyaM sarvarogavinaashanam ❘  
+sarvashatruvinaashaM ca dhaaraNaadvijayee bhavet 
+‖ 6 ‖
+
+
+‖ iti shreebrahmaaNDapuraaNe ketukavacaM sampoorNam ‖
+

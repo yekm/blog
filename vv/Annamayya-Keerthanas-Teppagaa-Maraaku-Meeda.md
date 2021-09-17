@@ -289,3 +289,47 @@ yekaalamubaayani y.enalenivaaDu ‖
 ఏకమై వేంకటగిరి నిందిరారమణి గూడి ❘  
 యేకాలముబాయని యెనలేనివాడు ‖  
 
+### English
+
+#### annamayya kīrtana teppagā marrāku mīda
+
+teppagā marrāku mīda telāḍuvāḍu ❘  
+eppuḍu lokamulella neleṭivāḍu ‖
+
+motanīṭi maḍugulo yītagaracinavāḍu ❘  
+pātagile nūtikrinda bāyanivāḍu ❘  
+mūtidosipaṭṭi maṇṭimudda pellagiñcuvāḍu ❘  
+rotayaina pegula perulu galavāḍu ‖
+
+koḍikūta norivāni kurratammuḍainavāḍu ❘  
+būḍida būsinavāni buddhulavāḍu ❘  
+māḍavanne leḍiveṇṭa māyalabaḍinavāḍu ❘  
+dūḍala nāvulagāci dorayainavāḍu ‖
+
+ākasānabāre vūri ativala mānamula ❘  
+kākuseyuvāḍu turagamupaivāḍu ❘  
+ekamai veṅkaṭagiri nindirāramaṇi gūḍi ❘  
+yekālamubāyani yenalenivāḍu ‖
+
+### PlainEnglish
+
+#### annamayya keertana t.eppagaa marraaku meeda
+
+t.eppagaa marraaku meeda telaaDuvaaDu ❘  
+.eppuDu lokamul.ella neleTivaaDu ‖
+
+motaneeTi maDugulo yeetagaracinavaaDu ❘  
+paatagile nootikriMda baayanivaaDu ❘  
+mootidosipaTTi maMTimudda p.ellagiMcuvaaDu ❘  
+rotayaina pegula perulu galavaaDu ‖
+
+koDikoota norivaani kurratammuDainavaaDu ❘  
+booDida boosinavaani buddhulavaaDu ❘  
+maaDavann.e leDiv.eMTa maayalabaDinavaaDu ❘  
+dooDala naavulagaaci d.orayainavaaDu ‖
+
+aakasaanabaare voori ativala maanamula ❘  
+kaakuseyuvaaDu turagamupaivaaDu ❘  
+ekamai veMkaTagiri niMdiraaramaNi gooDi ❘  
+yekaalamubaayani y.enalenivaaDu ‖
+

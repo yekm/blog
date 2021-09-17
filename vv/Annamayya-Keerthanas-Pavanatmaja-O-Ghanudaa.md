@@ -289,3 +289,45 @@ needeham.ekka nilicitigaa ‖
 ఈ దేహముతో ఇన్నిలోకములు  
 నీదేహమెక్క నిలిచితిగా ‖  
 
+### English
+
+#### annamayya kīrtana pavanātmaja o ghanuḍā
+
+o pavanātmaja o ghanuḍā  
+bāpu bāpanagā parigitigā ❘  
+o hanumantuḍa udayācala ni-  
+rvāhaka nija sarva prabalā ❘  
+dehamu mocina teguvaku niṭuvale  
+sāhasa miṭuvale cāṭitigā ‖
+
+o ravi grahaṇa odanujāntaka  
+māruleka mati malasitigā ❘  
+dāruṇapu vinatā tanayādulu  
+gāravimpa niṭu kaligitigā ‖
+
+o daśamukha hara o veṅkaṭapati-  
+pādasaroruha pālakuḍā ❘  
+ī dehamuto innilokamulu  
+nīdehamekka nilicitigā ‖
+
+### PlainEnglish
+
+#### annamayya keertana pavanaatmaja o ghanuDaa
+
+o pavanaatmaja o ghanuDaa  
+baapu baapanagaa parigitigaa ❘  
+o hanumaMtuDa udayaacala ni-  
+rvaahaka nija sarva prabalaa ❘  
+dehamu mocina t.eguvaku niTuval.e  
+saahasa miTuval.e caaTitigaa ‖
+
+o ravi grahaNa odanujaaMtaka  
+maaruleka mati malasitigaa ❘  
+daaruNapu vinataa tanayaadulu  
+gaaraviMpa niTu kaligitigaa ‖
+
+o dashamukha hara o veMkaTapati-  
+paadasaroruha paalakuDaa ❘  
+ee dehamuto innilokamulu  
+needeham.ekka nilicitigaa ‖
+

@@ -437,3 +437,67 @@ Let there be peace in all three realms (Adhi-bhautika: physical, Adhi-daivika: d
 
 ఓం శాం _తిః_ శాం _తిః_ శాంతిః' ‖  
 
+### English
+
+#### durgā sūktam
+
+oṃ ‖
+
+ jātave'dase sunavāma soma' marātīyato nida'hāti veda'ḥ ❘  
+sa na'ḥ par-śhadati' durgāṇi viśvā' nāveva sindhu'ṃ duritā'tyagniḥ ‖
+
+tāmagniva'rṇāṃ tapa'sā jvalantīṃ vai'rochanīṃ ka'rmaphaleśhu juśhṭā''m ❘  
+durgāṃ devīgṃ śara'ṇamahaṃ prapa'dye sutara'si tarase' nama'ḥ ‖
+
+agne tvaṃ pā'rayā navyo' asmānth-svastibhirati' durgāṇi viśvā'' ❘  
+pūścha' pṛthvī ba'hulā na' urvī bhavā' tokāya tana'yāya śaṃyoḥ ‖
+
+viśvā'ni no durgahā' jātavedaḥ sindhunna nāvā du'ritā'ti'par-śhi ❘  
+agne' atrivanmana'sā gṛṇāno'''smāka'ṃ bodhyavitā tanūnā''m ‖
+
+pṛtanā jitagṃ saha'mānamugramagnigṃ hu'vema paramāth-sadhasthā''t ❘  
+sa na'ḥ par-śhadati' durgāṇi viśvā kśhāma'ddevo ati' duritā'tyagniḥ ‖
+
+pratnośhi' kamīḍyo' adhvareśhu' sanāccha hotā navya'ścha satsi' ❘  
+svāñchā'''gne tanuva'ṃ pipraya'svāsmabhya'ṃ cha saubha'gamāya'jasva ‖
+
+gobhirjuśhṭa'mayujo niśhi'ktaṃ tave''ndra viśhṇoranusañcha'rema ❘  
+nāka'sya pṛśhṭhamabhi saṃvasā'no vaiśhṇa'vīṃ loka iha mā'dayantām ‖
+
+oṃ kātyāyanāya' vidmahe' kanyakumāri' dhīmahi ❘  
+tanno' durgiḥ prachodayā''t ‖
+
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+### PlainEnglish
+
+#### durgaa sooktam
+
+oM ‖
+
+ jaatave'dase sunavaama soma' maraateeyato nida'haati veda'H ❘  
+sa na'H par-shhadati' durgaaNi vishvaa' naaveva siMdhu'M duritaa.atyagniH ‖
+
+taamagniva'rNaaM tapa'saa jvalaMteeM vai'rochaneeM ka'rmaphaleshhu jushhTaa''m ❘  
+durgaaM deveegM shara'NamahaM prapa'dye sutara'si tarase' nama'H ‖
+
+agne tvaM paa'rayaa navyo' asmaaMth-svastibhirati' durgaaNi vishvaa'' ❘  
+pooshcha' pRRithvee ba'hulaa na' urvee bhavaa' tokaaya tana'yaaya shaMyoH ‖
+
+vishvaa'ni no durgahaa' jaatavedaH siMdhunna naavaa du'ritaa.ati'par-shhi ❘  
+agne' atrivanmana'saa gRRiNaano''.asmaaka'M bodhyavitaa tanoonaa''m ‖
+
+pRRitanaa jitagM saha'maanamugramagnigM hu'vema paramaath-sadhasthaa''t ❘  
+sa na'H par-shhadati' durgaaNi vishvaa kshhaama'ddevo ati' duritaa.atyagniH ‖
+
+pratnoshhi' kameeDyo' adhvareshhu' sanaaccha hotaa navya'shcha satsi' ❘  
+svaaMchaa''.agne tanuva'M pipraya'svaasmabhya'M cha saubha'gamaaya'jasva ‖
+
+gobhirjushhTa'mayujo nishhi'ktaM tave''Mdra vishhNoranusaMcha'rema ❘  
+naaka'sya pRRishhThamabhi saMvasaa'no vaishhNa'veeM loka iha maa'dayaMtaam ‖
+
+oM kaatyaayanaaya' vidmahe' kanyakumaari' dheemahi ❘  
+tanno' durgiH prachodayaa''t ‖
+
+oM shaaMtiH shaaMtiH shaaMti'H ‖
+

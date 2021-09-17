@@ -1472,3 +1472,271 @@ oM shree samartha sadguru saayinaathaaya namaH ‖ 108 ‖
 ఓం సచ్చిదానంద స్వరూపాయ నమః  
 ఓం శ్రీ సమర్థ సద్గురు సాయినాథాయ నమః ‖ 108 ‖  
 
+### English
+
+#### sāyi bābā aśhṭottara śata nāmāvaḻi
+
+oṃ sāyināthāya namaḥ  
+oṃ lakśhmī nārāyaṇāya namaḥ  
+oṃ śrī rāmakṛśhṇa mārutyādi rūpāya namaḥ  
+oṃ śeśhaśāyine namaḥ  
+oṃ godāvarītaṭa śiraḍī vāsine  namaḥ  
+oṃ bhakta hṛdālayāya namaḥ  
+oṃ sarvahṛdvāsine namaḥ  
+oṃ bhūtāvāsāya namaḥ  
+oṃ bhūta bhaviśhyadbhāvavarjatāya namaḥ       
+oṃ kālātī tāya namaḥ 
+‖ 10  ‖
+
+oṃ kālāya namaḥ  
+oṃ kālakālāya namaḥ    
+oṃ kāla darpadamanāya namaḥ  
+oṃ mṛtyuñjayāya namaḥ     
+oṃ amartyāya namaḥ  
+oṃ martyābhaya pradāya namaḥ  
+oṃ jīvādhārāya namaḥ  
+oṃ sarvādhārāya namaḥ  
+oṃ bhaktā vana  samarthāya namaḥ  
+oṃ bhaktāvana pratiGYāya namaḥ 
+‖ 20  ‖
+
+oṃ annavastradāya namaḥ       
+oṃ ārogyakśhemadāya namaḥ     
+oṃ dhana māṅgalyadāya namaḥ  
+oṃ buddhī siddhī dāya namaḥ      
+oṃ putra mitra kaḻatra bandhudāya namaḥ     
+oṃ yogakśhema mavahāya namaḥ  
+oṃ āpadbhāndhavāya namaḥ  
+oṃ mārga bandhave namaḥ  
+oṃ bhukti mukti sarvāpavargadāya namaḥ  
+oṃ priyāya namaḥ 
+‖ 30  ‖
+
+oṃ prītivarda nāya namaḥ  
+oṃ antaryānāya namaḥ     
+oṃ saccidātmane namaḥ  
+oṃ ānanda dāya namaḥ  
+oṃ ānandadāya namaḥ  
+oṃ parameśvarāya namaḥ  
+oṃ GYāna svarūpiṇe namaḥ  
+oṃ jagataḥ pitre namaḥ 
+‖ 40  ‖
+
+oṃ bhaktā nāṃ mātṛ dātṛ pitāmahāya namaḥ        
+oṃ bhaktā bhayapradāya namaḥ    
+oṃ bhakta parādhī nāya namaḥ  
+oṃ bhaktānugra hakātarāya namaḥ     
+oṃ śaraṇāgata vatsalāya namaḥ  
+oṃ bhakti śakti pradāya namaḥ  
+oṃ GYāna vairāgyadāya namaḥ  
+oṃ premapradāya namaḥ     
+oṃ saṃśaya hṛdaya daurbhalya  pāpakarmavāsanākśhayaka rāya namaḥ  
+oṃ hṛdaya grandhabheda kāya namaḥ 
+‖ 50 ‖
+
+oṃ karma dhvaṃsine namaḥ    
+oṃ śuddhasatva sdhitāya namaḥ  
+oṃ guṇātī taguṇātmane namaḥ  
+oṃ ananta kaḻyāṇaguṇāya namaḥ  
+oṃ amita parākra māya namaḥ           
+oṃ jayine namaḥ     
+oṃ jayine namaḥ  
+oṃ durdarśhā kśhobhyāya namaḥ  
+oṃ aparājitāya namaḥ  
+oṃ trilokesu avighātagataye namaḥ      
+oṃ aśakyara hitāya namaḥ 
+‖ 60 ‖
+
+oṃ sarvaśakti mūrta yai namaḥ  
+oṃ surūpasundarāya namaḥ  
+oṃ sulocanāya namaḥ    
+oṃ mahārūpa viśvamūrtaye namaḥ    
+oṃ  arūpavyaktāya namaḥ  
+oṃ cintyāya namaḥ  
+oṃ sūkśhmāya namaḥ  
+oṃ sarvānta ryāmine namaḥ  
+oṃ mano vāgatītāya namaḥ     
+oṃ prema mūrtaye namaḥ 
+‖ 70 ‖
+
+oṃ sulabha durla bhāya namaḥ  
+oṃ asahāya sahāyāya namaḥ    
+oṃ anādha nādhaye namaḥ    
+oṃ sarvabhāra bhrate namaḥ    
+oṃ akarmāne kakarmānu karmiṇe namaḥ  
+oṃ puṇya śravaṇa kīrta nāya namaḥ  
+oṃ tīrdhāya namaḥ        
+oṃ vāsudevāya namaḥ  
+oṃ satāṅga taye namaḥ  
+oṃ satparāyaṇāya namaḥ 
+‖ 80 ‖
+
+oṃ lokanādhāya namaḥ  
+oṃ pāva nāna ghāya namaḥ    
+oṃ amṛtāṃśuve namaḥ  
+oṃ bhāskara prabhāya namaḥ  
+oṃ brahmacaryataścaryādi suvratāya namaḥ  
+oṃ satyadharmaparāyaṇāya namaḥ  
+oṃ siddeśvarāya namaḥ  
+oṃ sidda saṅkalpāya namaḥ    
+oṃ yogeśvarāya namaḥ  
+oṃ bhagavate namaḥ 
+‖ 90 ‖
+
+oṃ bhaktāvaśyāya namaḥ  
+oṃ satpuruśhāya namaḥ  
+oṃ  puruśhottamāya namaḥ  
+oṃ satyatattvabodha kāya namaḥ  
+oṃ kāmādiśha ḍaivara dhvaṃsine namaḥ  
+oṃ abhe dānandānubhava pradāya namaḥ  
+oṃ sarvamata sammatāya namaḥ  
+oṃ śrīdakśhiṇāmūrtaye namaḥ  
+oṃ śrī veṅkaṭeśvara maṇāya namaḥ  
+oṃ adbhutānanda caryāya namaḥ 
+‖ 100 ‖
+
+oṃ prapannārti haraya namaḥ  
+oṃ saṃsāra sarva du:khakśhayakāra kāya namaḥ  
+oṃ sarva vitsarvatomukhāya namaḥ  
+oṃ sarvāntarbha histhitaya namaḥ  
+oṃ sarvamaṅgaḻa karāya namaḥ  
+oṃ sarvābhīśhṭa pradāya namaḥ  
+oṃ samara sanmārga sthāpanāya namaḥ  
+oṃ saccidānanda svarūpāya namaḥ  
+oṃ śrī samartha sadguru sāyināthāya namaḥ 
+‖ 108 ‖
+
+### PlainEnglish
+
+#### saayi baabaa ashhTottara shata naamaavaLi
+
+oM saayinaathaaya namaH  
+oM lakshhmee naaraayaNaaya namaH  
+oM shree raamakRRishhNa maarutyaadi roopaaya namaH  
+oM sheshhashaayine namaH  
+oM godaavareetaTa shiraDee vaasine  namaH  
+oM bhakta hRRidaalayaaya namaH  
+oM sarvahRRidvaasine namaH  
+oM bhootaavaasaaya namaH  
+oM bhoota bhavishhyadbhaavavarjataaya namaH       
+oM kaalaatee taaya namaH 
+‖ 10  ‖
+
+oM kaalaaya namaH  
+oM kaalakaalaaya namaH    
+oM kaala darpadamanaaya namaH  
+oM mRRityuMjayaaya namaH     
+oM amartyaaya namaH  
+oM martyaabhaya pradaaya namaH  
+oM jeevaadhaaraaya namaH  
+oM sarvaadhaaraaya namaH  
+oM bhaktaa vana  samarthaaya namaH  
+oM bhaktaavana pratignyaaya namaH 
+‖ 20  ‖
+
+oM annavastradaaya namaH       
+oM aarogyakshhemadaaya namaH     
+oM dhana maaMgalyadaaya namaH  
+oM buddhee siddhee daaya namaH      
+oM putra mitra kaLatra baMdhudaaya namaH     
+oM yogakshhema mavahaaya namaH  
+oM aapadbhaaMdhavaaya namaH  
+oM maarga baMdhave namaH  
+oM bhukti mukti sarvaapavargadaaya namaH  
+oM priyaaya namaH 
+‖ 30  ‖
+
+oM preetivarda naaya namaH  
+oM aMtaryaanaaya namaH     
+oM saccidaatmane namaH  
+oM aanaMda daaya namaH  
+oM aanaMdadaaya namaH  
+oM parameshvaraaya namaH  
+oM gnyaana svaroopiNe namaH  
+oM jagataH pitre namaH 
+‖ 40  ‖
+
+oM bhaktaa naaM maatRRi daatRRi pitaamahaaya namaH        
+oM bhaktaa bhayapradaaya namaH    
+oM bhakta paraadhee naaya namaH  
+oM bhaktaanugra hakaataraaya namaH     
+oM sharaNaagata vatsalaaya namaH  
+oM bhakti shakti pradaaya namaH  
+oM gnyaana vairaagyadaaya namaH  
+oM premapradaaya namaH     
+oM saMshaya hRRidaya daurbhalya  paapakarmavaasanaakshhayaka raaya namaH  
+oM hRRidaya graMdhabheda kaaya namaH 
+‖ 50 ‖
+
+oM karma dhvaMsine namaH    
+oM shuddhasatva sdhitaaya namaH  
+oM guNaatee taguNaatmane namaH  
+oM anaMta kaLyaaNaguNaaya namaH  
+oM amita paraakra maaya namaH           
+oM jayine namaH     
+oM jayine namaH  
+oM durdarshhaa kshhobhyaaya namaH  
+oM aparaajitaaya namaH  
+oM trilokesu avighaatagataye namaH      
+oM ashakyara hitaaya namaH 
+‖ 60 ‖
+
+oM sarvashakti moorta yai namaH  
+oM suroopasuMdaraaya namaH  
+oM sulocanaaya namaH    
+oM mahaaroopa vishvamoortaye namaH    
+oM  aroopavyaktaaya namaH  
+oM ciMtyaaya namaH  
+oM sookshhmaaya namaH  
+oM sarvaaMta ryaamine namaH  
+oM mano vaagateetaaya namaH     
+oM prema moortaye namaH 
+‖ 70 ‖
+
+oM sulabha durla bhaaya namaH  
+oM asahaaya sahaayaaya namaH    
+oM anaadha naadhaye namaH    
+oM sarvabhaara bhrate namaH    
+oM akarmaane kakarmaanu karmiNe namaH  
+oM puNya shravaNa keerta naaya namaH  
+oM teerdhaaya namaH        
+oM vaasudevaaya namaH  
+oM sataaMga taye namaH  
+oM satparaayaNaaya namaH 
+‖ 80 ‖
+
+oM lokanaadhaaya namaH  
+oM paava naana ghaaya namaH    
+oM amRRitaaMshuve namaH  
+oM bhaaskara prabhaaya namaH  
+oM brahmacaryatashcaryaadi suvrataaya namaH  
+oM satyadharmaparaayaNaaya namaH  
+oM siddeshvaraaya namaH  
+oM sidda saMkalpaaya namaH    
+oM yogeshvaraaya namaH  
+oM bhagavate namaH 
+‖ 90 ‖
+
+oM bhaktaavashyaaya namaH  
+oM satpurushhaaya namaH  
+oM  purushhottamaaya namaH  
+oM satyatattvabodha kaaya namaH  
+oM kaamaadishha Daivara dhvaMsine namaH  
+oM abhe daanaMdaanubhava pradaaya namaH  
+oM sarvamata sammataaya namaH  
+oM shreedakshhiNaamoortaye namaH  
+oM shree veMkaTeshvara maNaaya namaH  
+oM adbhutaanaMda caryaaya namaH 
+‖ 100 ‖
+
+oM prapannaarti haraya namaH  
+oM saMsaara sarva du:khakshhayakaara kaaya namaH  
+oM sarva vitsarvatomukhaaya namaH  
+oM sarvaaMtarbha histhitaya namaH  
+oM sarvamaMgaLa karaaya namaH  
+oM sarvaabheeshhTa pradaaya namaH  
+oM samara sanmaarga sthaapanaaya namaH  
+oM saccidaanaMda svaroopaaya namaH  
+oM shree samartha sadguru saayinaathaaya namaH 
+‖ 108 ‖
+

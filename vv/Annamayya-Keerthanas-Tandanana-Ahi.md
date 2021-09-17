@@ -497,3 +497,77 @@ jaDiyu shree veMkaTeshvaru naama m.okaTe ‖
 జడియు శ్రీ వేంకటేశ్వరు నామ మొకటే ‖  
 
 
+### English
+
+#### annamayya kīrtana tandanānā ahi
+
+tandanāna ahi, tandanāna pure  
+tandanāna bhaḻā, tandanāna ‖
+
+brahma mokaṭe, para   
+brahma mokaṭe, para  
+brahma mokaṭe, para   
+brahma mokaṭe ‖
+
+kanduvagu hīnādhikamu lindu levu  
+andariki śrīhare antarātma ❘  
+indulo jantukula mantā okaṭe  
+andarikī śrīhare antarātma ‖
+
+niṇḍāra rāju nidriñchu nidrayunokaṭe  
+aṇḍane baṇṭu nidra - adiyu nokaṭe ❘  
+meṇḍaina brāhmaṇuḍu meṭṭu bhūmiyokaṭe  
+chaṇḍāluḍuṇḍeṭi saribhūmi yokaṭe ‖
+
+anugu devatalakunu ala kāma sukha mokaṭe   
+ghana kīṭa paśuvulaku kāma sukha mokaṭe ❘  
+dina mahorātramulu - tegi dhanāḍhyuna kokaṭe  
+vonara nirupedakunu okkaṭe aviyu ‖
+
+korali śiśhṭānnamulu tunu nāka lokaṭe  
+tirugu duśhṭānnamulu tinu nāka lokaṭe ❘  
+paraga durgandhamulapai vāyu vokaṭe  
+varasa parimaḻamupai vāyu vokaṭe ‖
+
+kaḍagi enugu mīda kāyu eṇḍokaṭe  
+puḍami śunakamu mīda bolayu neṇḍokaṭe ❘  
+kaḍu puṇyulanu - pāpa karmulanu sari gāva  
+jaḍiyu śrī veṅkaṭeśvaru nāma mokaṭe ‖
+
+### PlainEnglish
+
+#### annamayya keertana taMdanaanaa ahi
+
+taMdanaana ahi, taMdanaana pur.e  
+taMdanaana bhaLaa, taMdanaana ‖
+
+brahma m.okaTe, para   
+brahma m.okaTe, para  
+brahma m.okaTe, para   
+brahma m.okaTe ‖
+
+kaMduvagu heenaadhikamu liMdu levu  
+aMdariki shreehare aMtaraatma ❘  
+iMdulo jaMtukula maMtaa .okaTe  
+aMdarikee shreehare aMtaraatma ‖
+
+niMDaara raaju nidriMchu nidrayun.okaTe  
+aMDane baMTu nidra - adiyu n.okaTe ❘  
+m.eMDaina braahmaNuDu m.eTTu bhoomiy.okaTe  
+chaMDaaluDuMDeTi saribhoomi y.okaTe ‖
+
+anugu devatalakunu ala kaama sukha m.okaTe   
+ghana keeTa pashuvulaku kaama sukha m.okaTe ❘  
+dina mahoraatramulu - t.egi dhanaaDhyuna k.okaTe  
+v.onara nirupedakunu .okkaTe aviyu ‖
+
+k.orali shishhTaannamulu tunu naaka l.okaTe  
+tirugu dushhTaannamulu tinu naaka l.okaTe ❘  
+paraga durgaMdhamulapai vaayu v.okaTe  
+varasa parimaLamupai vaayu v.okaTe ‖
+
+kaDagi enugu meeda kaayu .eMD.okaTe  
+puDami shunakamu meeda b.olayu n.eMD.okaTe ❘  
+kaDu puNyulanu - paapa karmulanu sari gaava  
+jaDiyu shree veMkaTeshvaru naama m.okaTe ‖
+

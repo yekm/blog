@@ -443,3 +443,83 @@ lamedvaacChitaathaM padaM brahmasaMgnyaM, guroruktavaakye mano yasya lagnam ‖ 
 గురోరష్టకం యః పఠేత్పురాయదేహీ, యతిర్భూపతిర్బ్రహ్మచారీ చ గేహీ ❘  
 లమేద్వాచ్ఛితాథం పదం బ్రహ్మసంజ్ఞం, గురోరుక్తవాక్యే మనో యస్య లగ్నమ్ ‖ 9 ‖  
 
+### English
+
+#### gurvaśhṭakam
+
+śarīraṃ surūpaṃ tathā vā kalatraṃ, yaśaścāru citraṃ dhanaṃ meru tulyam ❘  
+manaścena lagnaṃ guroraghripadme, tataḥ kiṃ tataḥ kiṃ tataḥ kiṃ tataḥ kim 
+‖ 1 ‖
+
+kalatraṃ dhanaṃ putra pautrādisarvaṃ, gṛho bāndhavāḥ sarvametaddhi jātam ❘  
+manaścena lagnaṃ guroraghripadme, tataḥ kiṃ tataḥ kiṃ tataḥ kiṃ tataḥ kim 
+‖ 2 ‖
+
+śhaḍxaṅgādivedo mukhe śāstravidyā, kavitvādi gadyaṃ supadyaṃ karoti ❘  
+manaścena lagnaṃ guroraghripadme, tataḥ kiṃ tataḥ kiṃ tataḥ kiṃ tataḥ kim 
+‖ 3 ‖
+
+videśeśhu mānyaḥ svadeśeśhu dhanyaḥ, sadācāravṛtteśhu matto na cānyaḥ ❘  
+manaścena lagnaṃ guroraghripadme, tataḥ kiṃ tataḥ kiṃ tataḥ kiṃ tataḥ kim 
+‖ 4 ‖
+
+kśhamāmaṇḍale bhūpabhūpalabṛbdaiḥ, sadā sevitaṃ yasya pādāravindam ❘  
+manaścena lagnaṃ guroraghripadme, tataḥ kiṃ tataḥ kiṃ tataḥ kiṃ tataḥ kim 
+‖ 5 ‖
+
+yaśo me gataṃ dikśhu dānapratāpāt, jagadvastu sarvaṃ kare yatprasādāt ❘  
+manaścena lagnaṃ guroraghripadme, tataḥ kiṃ tataḥ kiṃ tataḥ kiṃ tataḥ kim 
+‖ 6 ‖
+
+na bhoge na yoge na vā vājirājau, na kantāmukhe naiva vitteśhu cittam ❘  
+manaścena lagnaṃ guroraghripadme, tataḥ kiṃ tataḥ kiṃ tataḥ kiṃ tataḥ kim 
+‖ 7 ‖
+
+araṇye na vā svasya gehe na kārye, na dehe mano vartate me tvanardhye ❘  
+manaścena lagnaṃ guroraghripadme, tataḥ kiṃ tataḥ kiṃ tataḥ kiṃ tataḥ kim 
+‖ 8 ‖
+
+guroraśhṭakaṃ yaḥ paṭhetpurāyadehī, yatirbhūpatirbrahmacārī ca gehī ❘  
+lamedvācChitāthaṃ padaṃ brahmasaṃGYaṃ, guroruktavākye mano yasya lagnam 
+‖ 9 ‖
+
+### PlainEnglish
+
+#### gurvashhTakam
+
+shareeraM suroopaM tathaa vaa kalatraM, yashashcaaru citraM dhanaM meru tulyam ❘  
+manashcena lagnaM guroraghripadme, tataH kiM tataH kiM tataH kiM tataH kim 
+‖ 1 ‖
+
+kalatraM dhanaM putra pautraadisarvaM, gRRiho baandhavaaH sarvametaddhi jaatam ❘  
+manashcena lagnaM guroraghripadme, tataH kiM tataH kiM tataH kiM tataH kim 
+‖ 2 ‖
+
+shhaDxaMgaadivedo mukhe shaastravidyaa, kavitvaadi gadyaM supadyaM karoti ❘  
+manashcena lagnaM guroraghripadme, tataH kiM tataH kiM tataH kiM tataH kim 
+‖ 3 ‖
+
+videsheshhu maanyaH svadesheshhu dhanyaH, sadaacaaravRRitteshhu matto na caanyaH ❘  
+manashcena lagnaM guroraghripadme, tataH kiM tataH kiM tataH kiM tataH kim 
+‖ 4 ‖
+
+kshhamaamaNDale bhoopabhoopalabRRibdaiH, sadaa sevitaM yasya paadaaravindam ❘  
+manashcena lagnaM guroraghripadme, tataH kiM tataH kiM tataH kiM tataH kim 
+‖ 5 ‖
+
+yasho me gataM dikshhu daanaprataapaat, jagadvastu sarvaM kare yatprasaadaat ❘  
+manashcena lagnaM guroraghripadme, tataH kiM tataH kiM tataH kiM tataH kim 
+‖ 6 ‖
+
+na bhoge na yoge na vaa vaajiraajau, na kantaamukhe naiva vitteshhu cittam ❘  
+manashcena lagnaM guroraghripadme, tataH kiM tataH kiM tataH kiM tataH kim 
+‖ 7 ‖
+
+araNye na vaa svasya gehe na kaarye, na dehe mano vartate me tvanardhye ❘  
+manashcena lagnaM guroraghripadme, tataH kiM tataH kiM tataH kiM tataH kim 
+‖ 8 ‖
+
+gurorashhTakaM yaH paThetpuraayadehee, yatirbhoopatirbrahmacaaree ca gehee ❘  
+lamedvaacChitaathaM padaM brahmasaMgnyaM, guroruktavaakye mano yasya lagnam 
+‖ 9 ‖
+

@@ -289,3 +289,47 @@ biTTu veDuka muriyu chuMDebittari svaamini ‖
 దట్టముగ మేను నిండపట్టించి దిద్ది ❘  
 బిట్టు వేడుక మురియు చుండేబిత్తరి స్వామిని ‖  
 
+### English
+
+#### annamayya kīrtana kaṇṭi śukravāramu
+
+kaṇṭi śukravāramu gaḍiya leḍiṇṭa ❘  
+aṇṭi alamelmaṅga aṇḍanuṇḍe svāmini ‖
+
+sommulannī kaḍapeṭṭi somputo goṇamugaṭṭi ❘  
+kammani kadambamu kappu kannīru ❘  
+chemmatonu veśhṭuvalu rommutala molajuṭṭi ❘  
+tummeda maichāyatona nemmadinuṇḍe svāmini ‖
+
+pachchakappurame nūripasiḍi ginnelaniñchi ❘  
+techchi śirasādiga diganaladi ❘  
+achcherapaḍi chūḍanandari kanulakimpai ❘  
+nichchamalle pūvuvale niṭutānuṇḍe svāmini ‖
+
+taṭṭupunuge kūrichichaṭṭalu cherichinippu ❘  
+paṭṭi karigiñchu veṇḍi paḻyālaniñchi ❘  
+daṭṭamuga menu niṇḍapaṭṭiñchi diddi ❘  
+biṭṭu veḍuka muriyu chuṇḍebittari svāmini ‖
+
+### PlainEnglish
+
+#### annamayya keertana kaMTi shukravaaramu
+
+kaMTi shukravaaramu gaDiya leDiMTa ❘  
+aMTi alamelmaMga aMDanuMDe svaamini ‖
+
+s.ommulannee kaDap.eTTi s.oMputo goNamugaTTi ❘  
+kammani kadaMbamu kappu kanneeru ❘  
+ch.emmatonu veshhTuvalu r.ommutala m.olajuTTi ❘  
+tumm.eda maichaayatona n.emmadinuMDe svaamini ‖
+
+pachchakappurame nooripasiDi ginn.elaniMchi ❘  
+t.echchi shirasaadiga diganaladi ❘  
+achch.erapaDi chooDanaMdari kanulakiMpai ❘  
+nichchamall.e poovuval.e niTutaanuMDe svaamini ‖
+
+taTTupunuge koorichichaTTalu cherichinippu ❘  
+paTTi karigiMchu v.eMDi paLyaalaniMchi ❘  
+daTTamuga menu niMDapaTTiMchi diddi ❘  
+biTTu veDuka muriyu chuMDebittari svaamini ‖
+

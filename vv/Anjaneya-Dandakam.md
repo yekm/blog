@@ -731,3 +731,111 @@ namaste namovaayuputraa namaste namaH
 నమస్తే నమోవాయుపుత్రా నమస్తే నమః  
 
 
+### English
+
+#### āñjaneya daṇḍakam
+
+śrī āñjaneyaṃ prasannāñjaneyaṃ  
+prabhādivyakāyaṃ prakīrti pradāyaṃ  
+bhaje vāyuputraṃ bhaje vālagātraṃ bhajehaṃ pavitraṃ  
+bhaje sūryamitraṃ bhaje rudrarūpaṃ  
+bhaje brahmatejaṃ baṭañchun prabhātambu  
+sāyantramun nīnāmasaṅkīrtanal jesi  
+nī rūpu varṇiñchi nīmīda ne daṇḍakaṃ bokkaṭin jeya  
+nī mūrtigāviñchi nīsundaraṃ beñchi nī dāsadāsuṇḍavai  
+rāmabhaktuṇḍanai ninnu negolchedan  
+nī kaṭākśhambunan jūchite veḍukal chesite  
+nā morāliñchite nannu rakśhiñchite  
+añjanādevi garbhānvayā deva  
+ninneñcha nenentavāḍan  
+dayāśālivai jūchiyun dātavai brochiyun  
+daggaran nilchiyun dolli sugrīvukun-mantrivai  
+svāmi kāryārthamai yegi  
+śrīrāma saumitrulaṃ jūchi vārinvichāriñchi  
+sarveśu būjiñchi yabbhānujuṃ baṇṭu gāviñchi  
+vālinin jampiñchi kākutthsa tilakun kṛpādṛśhṭi vīkśhiñchi  
+kiśhkindhaketeñchi śrīrāma kāryārthamai laṅka keteñchiyun  
+laṅkiṇin jampiyun laṅkanun gālchiyun  
+yabhbhūmijaṃ jūchi yānandamuppoṅgi yāyuṅgarambichchi  
+yāratnamun dechchi śrīrāmunakunnichchi santośhamun^^jesi  
+sugrīvunin yaṅgadun jāmbavantu nnalunnīlulan gūḍi  
+yāsetuvun dāṭi vānarul^mūkalai penmūkalai  
+yādaityulan druñchagā rāvaṇuṇḍanta kālāgni rudruṇḍugā vachchi  
+brahmāṇḍamainaṭṭi yā śaktinin^vaichi yālakśhaṇun mūrChanondimpagānappuḍe nīvu  
+sañjīvinin^dechchi saumitrikinnichchi prāṇambu rakśhimpagā  
+kumbhakarṇādula nvīrulaṃ bora śrīrāma bāṇāgni  
+vārandarin rāvaṇun jampagā nanta lokambu lānandamai yuṇḍa  
+navveḻanu nvibhīśhuṇun veḍukan doḍukan vachchi paṭṭābhiśhekambu cheyiñchi,  
+sītāmahādevinin dechchi śrīrāmukunnichchi,  
+yantannayodhyāpurin^jochchi paṭṭābhiśhekambu saṃrambhamaiyunna  
+nīkanna nākevvarun gūrmi lerañchu manniñchi śrīrāmabhakta praśastambugā  
+ninnu seviñchi nī kīrtanal chesinan pāpamul^lbāyune bhayamulun  
+dīrune bhāgyamul galgune sāmrājyamul galgu sampattulun kalguno  
+vānarākāra yobhakta mandāra yopuṇya sañchāra yodhīra yovīra  
+nīve samastambugā noppi yātāraka brahma mantrambu paṭhiyiñchuchun sthirammugan  
+vajradehambunun dālchi śrīrāma śrīrāmayañchun manaḥpūtamaina eppuḍun tappakan  
+talatunā jihvayanduṇḍi nī dīrghadehammu trailokya sañchārivai rāma  
+nāmāṅkitadhyānivai brahmatejambunan raudranījvāla  
+kallola hāvīra hanumanta oṅkāra śabdambulan bhūta pretambulan ben  
+piśāchambulan śākinī ḍhākinītyādulan gālidayyambulan  
+nīdu vālambunan juṭṭi nelambaḍaṃ goṭṭi nīmuśhṭi ghātambulan  
+bāhudaṇḍambulan romakhaṇḍambulan druñchi kālāgni  
+rudruṇḍavai nīvu brahmaprabhābhāsitambaina nīdivya tejambunun jūchi  
+rārori nāmuddu narasiṃha yan^chun dayādṛśhṭi  
+vīkśhiñchi nannelu nāsvāmiyo yāñjaneyā  
+namaste sadā brahmachārī  
+namaste namovāyuputrā namaste namaḥ   
+### PlainEnglish
+
+#### aaMjaneya daMDakam
+
+shree aaMjaneyaM prasannaaMjaneyaM  
+prabhaadivyakaayaM prakeerti pradaayaM  
+bhaje vaayuputraM bhaje vaalagaatraM bhajehaM pavitraM  
+bhaje sooryamitraM bhaje rudraroopaM  
+bhaje brahmatejaM baTaMchun prabhaataMbu  
+saayaMtramun neenaamasaMkeertanal jesi  
+nee roopu varNiMchi neemeeda ne daMDakaM b.okkaTin jeya  
+nee moortigaaviMchi neesuMdaraM b.eMchi nee daasadaasuMDavai  
+raamabhaktuMDanai ninnu neg.olch.edan  
+nee kaTaakshhaMbunan joochite veDukal chesite  
+naa m.oraaliMchite nannu rakshhiMchite  
+aMjanaadevi garbhaanvayaa deva  
+ninn.eMcha nen.eMtavaaDan  
+dayaashaalivai joochiyun daatavai brochiyun  
+daggaran nilchiyun d.olli sugreevukun-maMtrivai  
+svaami kaaryaarthamai yegi  
+shreeraama saumitrulaM joochi vaarinvichaariMchi  
+sarveshu boojiMchi yabbhaanujuM baMTu gaaviMchi  
+vaalinin jaMpiMchi kaakutthsa tilakun kRRipaadRRishhTi veekshhiMchi  
+kishhkiMdhaket.eMchi shreeraama kaaryaarthamai laMka ket.eMchiyun  
+laMkiNin jaMpiyun laMkanun gaalchiyun  
+yabhbhoomijaM joochi yaanaMdamupp.oMgi yaayuMgaraMbichchi  
+yaaratnamun d.echchi shreeraamunakunnichchi saMtoshhamun^^jesi  
+sugreevunin yaMgadun jaaMbavaMtu nnalunneelulan gooDi  
+yaasetuvun daaTi vaanarul^mookalai p.enmookalai  
+yaadaityulan druMchagaa raavaNuMDaMta kaalaagni rudruMDugaa vachchi  
+brahmaaMDamainaTTi yaa shaktinin^vaichi yaalakshhaNun moorChan.oMdiMpagaanappuDe neevu  
+saMjeevinin^d.echchi saumitrikinnichchi praaNaMbu rakshhiMpagaa  
+kuMbhakarNaadula nveerulaM bora shreeraama baaNaagni  
+vaaraMdarin raavaNun jaMpagaa naMta lokaMbu laanaMdamai yuMDa  
+navveLanu nvibheeshhuNun veDukan doDukan vachchi paTTaabhishhekaMbu cheyiMchi,  
+seetaamahaadevinin d.echchi shreeraamukunnichchi,  
+yaMtannayodhyaapurin^j.ochchi paTTaabhishhekaMbu saMraMbhamaiyunna  
+neekanna naak.evvarun goormi leraMchu manniMchi shreeraamabhakta prashastaMbugaa  
+ninnu seviMchi nee keertanal chesinan paapamul^lbaayune bhayamulun  
+deerune bhaagyamul galgune saamraajyamul galgu saMpattulun kalguno  
+vaanaraakaara yobhakta maMdaara yopuNya saMchaara yodheera yoveera  
+neeve samastaMbugaa n.oppi yaataaraka brahma maMtraMbu paThiyiMchuchun sthirammugan  
+vajradehaMbunun daalchi shreeraama shreeraamayaMchun manaHpootamaina .eppuDun tappakan  
+talatunaa jihvayaMduMDi nee deerghadehammu trailokya saMchaarivai raama  
+naamaaMkitadhyaanivai brahmatejaMbunan raudraneejvaala  
+kallola haaveera hanumaMta oMkaara shabdaMbulan bhoota pretaMbulan b.en  
+pishaachaMbulan shaakinee Dhaakineetyaadulan gaalidayyaMbulan  
+needu vaalaMbunan juTTi nelaMbaDaM g.oTTi neemushhTi ghaataMbulan  
+baahudaMDaMbulan romakhaMDaMbulan druMchi kaalaagni  
+rudruMDavai neevu brahmaprabhaabhaasitaMbaina needivya tejaMbunun joochi  
+raarori naamuddu narasiMha yan^chun dayaadRRishhTi  
+veekshhiMchi nannelu naasvaamiyo yaaMjaneyaa  
+namaste sadaa brahmachaaree  
+namaste namovaayuputraa namaste namaH   

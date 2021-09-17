@@ -289,3 +289,47 @@ p.eTTina nidhaanamayina p.eMDli kooturu ‖
 గట్టిగ వేంకటపతి కౌగిటను ❘  
 పెట్టిన నిధానమయిన పెండ్లి కూతురు ‖  
 
+### English
+
+#### annamayya kīrtana piḍikiṭa talambrāla
+
+piḍikiṭa talambrāla peṇḍli kūturu konta ❘  
+paḍamarali navvīne peṇḍli kūturu ‖
+
+perukala javarāle peṇḍli kūturu pedda ❘  
+perula mutyāla meḍa peṇḍli kūturu ❘  
+peraṇṭāṇḍla naḍimi peṇḍli kūturu vibhu ❘  
+perukuchchu sigguvaḍī beṇḍli kūturu ‖
+
+birudu peṇḍamu veṭṭe beṇḍli kūturu nera ❘  
+birudu magani kaṇṭe beṇḍli kūturu ❘  
+piridūri nappuḍe peṇḍli kūturū pati ❘  
+berarechī nidivo peṇḍli kūturu ‖
+
+peṭṭene pedda turumu peṇḍli kūturu neḍe ❘  
+peṭṭeḍu chīralu gaṭṭi peṇḍli kūturu ❘  
+gaṭṭiga veṅkaṭapati kaugiṭanu ❘  
+peṭṭina nidhānamayina peṇḍli kūturu ‖
+
+### PlainEnglish
+
+#### annamayya keertana piDikiTa talaMbraala
+
+piDikiTa talaMbraala p.eMDli kooturu k.oMta ❘  
+paDamarali navveen.e p.eMDli kooturu ‖
+
+perukala javaraal.e p.eMDli kooturu p.edda ❘  
+perula mutyaala meDa p.eMDli kooturu ❘  
+peraMTaaMDla naDimi p.eMDli kooturu vibhu ❘  
+perukuchchu sigguvaDee b.eMDli kooturu ‖
+
+birudu p.eMDamu v.eTT.e b.eMDli kooturu n.era ❘  
+birudu magani kaMT.e b.eMDli kooturu ❘  
+piridoori nappuDe p.eMDli kooturoo pati ❘  
+b.erarechee nidivo p.eMDli kooturu ‖
+
+p.eTT.ene p.edda turumu p.eMDli kooturu neD.e ❘  
+p.eTT.eDu cheeralu gaTTi p.eMDli kooturu ❘  
+gaTTiga veMkaTapati kaugiTanu ❘  
+p.eTTina nidhaanamayina p.eMDli kooturu ‖
+

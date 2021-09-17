@@ -1472,3 +1472,227 @@ oM aalivelu maMgaa sahita veMkaTeshvaraaya namaH
 ఓం జగదీశ్వరాయ నమః  
 ఓం ఆలివేలు మంగా సహిత వేంకటేశ్వరాయ నమః  
 
+### English
+
+#### śrī veṅkaṭeśvara aśhṭottara śata nāmāvaḻi
+
+oṃ śrī veṅkaṭeśāya namaḥ  
+oṃ śrīnivāsāya namaḥ  
+oṃ lakśhmipataye namaḥ  
+oṃ anānuyāya namaḥ  
+oṃ amṛtāṃśane namaḥ  
+oṃ mādhavāya namaḥ  
+oṃ kṛśhṇāya namaḥ  
+oṃ śrīharaye namaḥ  
+oṃ GYānapañjarāya namaḥ  
+oṃ śrīvatsa vakśhase namaḥ  
+oṃ jagadvandyāya namaḥ  
+oṃ govindāya namaḥ  
+oṃ śāśvatāya namaḥ  
+oṃ prabhave namaḥ  
+oṃ śeśādrinilāyāya namaḥ  
+oṃ devāya namaḥ  
+oṃ keśavāya namaḥ  
+oṃ madhusūdanāya namaḥ  
+oṃ amṛtāya namaḥ  
+oṃ viśhṇave namaḥ  
+oṃ achyutāya namaḥ  
+oṃ padminīpriyāya namaḥ  
+oṃ sarveśāya namaḥ  
+oṃ gopālāya namaḥ  
+oṃ puruśhottamāya namaḥ  
+oṃ gopīśvarāya namaḥ  
+oṃ parañjyotiśhe namaḥ  
+oṃ vtekuṇṭha pataye namaḥ  
+oṃ avyayāya namaḥ  
+oṃ sudhātanave namaḥ  
+oṃ yāda vendrāya namaḥ  
+oṃ nitya yauvanarūpavate namaḥ  
+oṃ nirañjanāya namaḥ  
+oṃ virābhāsāya namaḥ  
+oṃ nitya tṛpttāya namaḥ  
+oṃ dharāpataye namaḥ  
+oṃ surapataye namaḥ  
+oṃ nirmalāya namaḥ  
+oṃ devapūjitāya namaḥ  
+oṃ chaturbhujāya namaḥ  
+oṃ chakradharāya namaḥ  
+oṃ chaturvedātmakāya namaḥ  
+oṃ tridhāmne namaḥ  
+oṃ triguṇāśrayāya namaḥ  
+oṃ nirvikalpāya namaḥ  
+oṃ niśhkaḻaṅkāya namaḥ  
+oṃ nirāntakāya namaḥ  
+oṃ ārtalokābhayapradāya namaḥ  
+oṃ nirupradavāya namaḥ  
+oṃ nirguṇāya namaḥ  
+oṃ gadādharāya namaḥ  
+oṃ śārñṅapāṇaye namaḥ  
+oṃ nandakinī namaḥ  
+oṃ śaṅkhadārakāya namaḥ  
+oṃ anekamūrtaye namaḥ  
+oṃ avyaktāya namaḥ  
+oṃ kaṭihastāya namaḥ  
+oṃ varapradāya namaḥ  
+oṃ anekātmane namaḥ  
+oṃ dīnabandhave namaḥ  
+oṃ jagadvyāpine namaḥ  
+oṃ ākāśarājavaradāya namaḥ  
+oṃ yogihṛtpadśamandirāya namaḥ  
+oṃ dāmodarāya namaḥ  
+oṃ jagatpālāya namaḥ  
+oṃ pāpaghnāya namaḥ  
+oṃ bhaktavatsalāya namaḥ  
+oṃ trivikramāya namaḥ  
+oṃ śiṃśumārāya namaḥ  
+oṃ jaṭāmakuṭa śobhitāya namaḥ  
+oṃ śaṅkha madyolla sanmañju kiṅkiṇyāḍhya namaḥ  
+oṃ kāruṇḍakāya namaḥ  
+oṃ nīlamoghaśyāma tanave namaḥ  
+oṃ bilvapattrārchana priyāya namaḥ  
+oṃ jagatkartre namaḥ  
+oṃ jagatsākśhiṇe namaḥ  
+oṃ jagatpataye namaḥ  
+oṃ chintitārdha pradāyakāya namaḥ  
+oṃ jiśhṇave namaḥ  
+oṃ dāśārhāya namaḥ  
+oṃ daśarūpavate namaḥ  
+oṃ devakī nandanāya namaḥ  
+oṃ śauraye namaḥ  
+oṃ hayarīvāya namaḥ  
+oṃ janārdhanāya namaḥ  
+oṃ kanyāśraṇatārejyāya namaḥ  
+oṃ pītāmbaradharāya namaḥ  
+oṃ anaghāya namaḥ  
+oṃ vanamāline namaḥ  
+oṃ padmanābhāya namaḥ  
+oṃ mṛgayāsakta mānasāya namaḥ  
+oṃ aśvarūḍhāya namaḥ  
+oṃ khaḍgadhāriṇe namaḥ  
+oṃ dhanārjana samutsukāya namaḥ  
+oṃ ghanatārala sanmadhyakastūrī tilakojjvalāya namaḥ  
+oṃ sachchitānandarūpāya namaḥ  
+oṃ jaganmaṅgaḻa dāyakāya namaḥ  
+oṃ yaGYabhokre namaḥ  
+oṃ chinmayāya namaḥ  
+oṃ parameśvarāya namaḥ  
+oṃ paramārdhapradāyakāya namaḥ  
+oṃ śāntāya namaḥ  
+oṃ śrīmate namaḥ  
+oṃ dordaṇḍa vikramāya namaḥ  
+oṃ parabrahmaṇe namaḥ  
+oṃ śrīvibhave namaḥ  
+oṃ jagadīśvarāya namaḥ  
+oṃ ālivelu maṅgā sahita veṅkaṭeśvarāya namaḥ  
+### PlainEnglish
+
+#### shree veMkaTeshvara ashhTottara shata naamaavaLi
+
+oM shree veMkaTeshaaya namaH  
+oM shreenivaasaaya namaH  
+oM lakshhmipataye namaH  
+oM anaanuyaaya namaH  
+oM amRRitaaMshane namaH  
+oM maadhavaaya namaH  
+oM kRRishhNaaya namaH  
+oM shreeharaye namaH  
+oM gnyaanapaMjaraaya namaH  
+oM shreevatsa vakshhase namaH  
+oM jagadvaMdyaaya namaH  
+oM goviMdaaya namaH  
+oM shaashvataaya namaH  
+oM prabhave namaH  
+oM sheshaadrinilaayaaya namaH  
+oM devaaya namaH  
+oM keshavaaya namaH  
+oM madhusoodanaaya namaH  
+oM amRRitaaya namaH  
+oM vishhNave namaH  
+oM achyutaaya namaH  
+oM padmineepriyaaya namaH  
+oM sarveshaaya namaH  
+oM gopaalaaya namaH  
+oM purushhottamaaya namaH  
+oM gopeeshvaraaya namaH  
+oM paraMjyotishhe namaH  
+oM vt.ekuMTha pataye namaH  
+oM avyayaaya namaH  
+oM sudhaatanave namaH  
+oM yaada veMdraaya namaH  
+oM nitya yauvanaroopavate namaH  
+oM niraMjanaaya namaH  
+oM viraabhaasaaya namaH  
+oM nitya tRRipttaaya namaH  
+oM dharaapataye namaH  
+oM surapataye namaH  
+oM nirmalaaya namaH  
+oM devapoojitaaya namaH  
+oM chaturbhujaaya namaH  
+oM chakradharaaya namaH  
+oM chaturvedaatmakaaya namaH  
+oM tridhaamne namaH  
+oM triguNaashrayaaya namaH  
+oM nirvikalpaaya namaH  
+oM nishhkaLaMkaaya namaH  
+oM niraaMtakaaya namaH  
+oM aartalokaabhayapradaaya namaH  
+oM nirupradavaaya namaH  
+oM nirguNaaya namaH  
+oM gadaadharaaya namaH  
+oM shaarnnapaaNaye namaH  
+oM naMdakinee namaH  
+oM shaMkhadaarakaaya namaH  
+oM anekamoortaye namaH  
+oM avyaktaaya namaH  
+oM kaTihastaaya namaH  
+oM varapradaaya namaH  
+oM anekaatmane namaH  
+oM deenabaMdhave namaH  
+oM jagadvyaapine namaH  
+oM aakaasharaajavaradaaya namaH  
+oM yogihRRitpadshamaMdiraaya namaH  
+oM daamodaraaya namaH  
+oM jagatpaalaaya namaH  
+oM paapaghnaaya namaH  
+oM bhaktavatsalaaya namaH  
+oM trivikramaaya namaH  
+oM shiMshumaaraaya namaH  
+oM jaTaamakuTa shobhitaaya namaH  
+oM shaMkha madyolla sanmaMju kiMkiNyaaDhya namaH  
+oM kaaruMDakaaya namaH  
+oM neelamoghashyaama tanave namaH  
+oM bilvapattraarchana priyaaya namaH  
+oM jagatkartre namaH  
+oM jagatsaakshhiNe namaH  
+oM jagatpataye namaH  
+oM chiMtitaardha pradaayakaaya namaH  
+oM jishhNave namaH  
+oM daashaarhaaya namaH  
+oM dasharoopavate namaH  
+oM devakee naMdanaaya namaH  
+oM shauraye namaH  
+oM hayareevaaya namaH  
+oM janaardhanaaya namaH  
+oM kanyaashraNataarejyaaya namaH  
+oM peetaaMbaradharaaya namaH  
+oM anaghaaya namaH  
+oM vanamaaline namaH  
+oM padmanaabhaaya namaH  
+oM mRRigayaasakta maanasaaya namaH  
+oM ashvarooDhaaya namaH  
+oM khaDgadhaariNe namaH  
+oM dhanaarjana samutsukaaya namaH  
+oM ghanataarala sanmadhyakastooree tilakojjvalaaya namaH  
+oM sachchitaanaMdaroopaaya namaH  
+oM jaganmaMgaLa daayakaaya namaH  
+oM yagnyabhokre namaH  
+oM chinmayaaya namaH  
+oM parameshvaraaya namaH  
+oM paramaardhapradaayakaaya namaH  
+oM shaaMtaaya namaH  
+oM shreemate namaH  
+oM dordaMDa vikramaaya namaH  
+oM parabrahmaNe namaH  
+oM shreevibhave namaH  
+oM jagadeeshvaraaya namaH  
+oM aalivelu maMgaa sahita veMkaTeshvaraaya namaH  

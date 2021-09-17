@@ -991,3 +991,201 @@ tasya prasanno vighneshassarvaan kaamaan prayacChati ‖ 23 ‖
 ‖ ఇతి శ్రీ గణపతి గకార అష్టోత్తర శతనామస్తోత్రమ్ ‖  
 
 
+### English
+
+#### gaṇapati gakāra aśhṭottara śatanāma stotram
+
+gakārarūpo gambījo gaṇeśo gaṇavanditaḥ ❘  
+gaṇanīyo gaṇogaṇyo gaṇanātīta sadguṇaḥ 
+‖ 1 ‖
+
+gaganādikasṛdgaṅgāsutogaṅgāsutārcitaḥ ❘  
+gaṅgādharaprītikarogavīśeḍyogadāpahaḥ 
+‖ 2 ‖
+
+gadādharanuto gadyapadyātmakakavitvadaḥ ❘  
+gajāsyo gajalakśhmīvān gajavājirathapradaḥ 
+‖ 3 ‖
+
+gañjānirata śikśhākṛdgaṇitaGYo gaṇottamaḥ ❘  
+gaṇḍadānāñcitogantā gaṇḍopala samākṛtiḥ 
+‖ 4 ‖
+
+gagana vyāpako gamyo gamānādi vivarjitaḥ ❘  
+gaṇḍadośhaharo gaṇḍa bhramadbhramara kuṇḍalaḥ 
+‖ 5 ‖
+
+gatāgataGYo gatido gatamṛtyurgatodbhavaḥ ❘  
+gandhapriyo gandhavāho gandhasindhurabṛndagaḥ 
+‖ 6 ‖
+
+gandhādi pūjito gavyabhoktā gargādi sannutaḥ ❘  
+gariśhṭhogarabhidgarvaharo garaḻibhūśhaṇaḥ 
+‖ 7 ‖
+
+gaviśhṭhogarjitārāvo gabhīrahṛdayo gadī ❘  
+galatkuśhṭhaharo garbhaprado garbhārbharakśhakaḥ 
+‖ 8 ‖
+
+garbhādhāro garbhavāsi śiśuGYāna pradāyakaḥ ❘  
+garutmattulyajavano garuḍadhvajavanditaḥ 
+‖ 9 ‖
+
+gayeḍito gayāśrāddhaphaladaśca gayākṛtiḥ ❘  
+gadādharāvatārīca gandharvanagarārcitaḥ 
+‖ 10 ‖
+
+gandharvagānasantuśhṭo garuḍāgrajavanditaḥ ❘  
+gaṇarātra samārādhyo garhaṇastuti sāmyadhīḥ 
+‖ 11 ‖
+
+gartābhanābhirgavyūtiḥ dīrghatuṇḍo gabhastimān ❘  
+garhitācāra dūraśca garuḍopalabhūśhitaḥ 
+‖ 12 ‖
+
+gajāri vikramo gandhamūśhavājī gataśramaḥ ❘  
+gaveśhaṇīyo gamano gahanastha munistutaḥ 
+‖ 13 ‖
+
+gavayacChidgaṇḍakabhidgahvarāpathavāraṇaḥ ❘  
+gajadantāyudho garjadripughno gajakarṇikaḥ 
+‖ 14 ‖
+
+gajacarmāmayacChettā gaṇādhyakśhogaṇārcitaḥ ❘  
+gaṇikānartanaprītogacChan gandhaphalī priyaḥ 
+‖ 15 ‖
+
+gandhakādi rasādhīśo gaṇakānandadāyakaḥ ❘  
+garabhādijanurhartā gaṇḍakīgāhanotsukaḥ 
+‖ 16 ‖
+
+gaṇḍūśhīkṛtavārāśiḥ garimālaghimādidaḥ ❘  
+gavākśhavatsaudhavāsīgarbhito garbhiṇīnutaḥ 
+‖ 17 ‖
+
+gandhamādanaśailābho gaṇḍabheruṇḍavikramaḥ ❘  
+gadito gadgadārāva saṃstuto gahvarīpatiḥ 
+‖ 18 ‖
+
+gajeśāya garīyase gadyeḍyogatabhīrgaditāgamaḥ ❘  
+garhaṇīya guṇābhāvo gaṅgādika śucipradaḥ 
+‖ 19 ‖
+
+gaṇanātīta vidyāśrī balāyuśhyādidāyakaḥ ❘  
+evaṃ śrīgaṇanāthasya nāmnāmaśhṭottaraṃ śatam 
+‖ 20 ‖
+
+paṭhanācChravaṇāt puṃsāṃ śreyaḥ premapradāyakam ❘  
+pūjānte yaḥ paṭhennityaṃ prītassan tasyavighnarāṭ 
+‖ 21 ‖
+
+yaṃ yaṃ kāmayate kāmaṃ taṃ taṃ śīghraṃ prayacChati ❘  
+dūrvayābhyarcayan devamekaviṃśativāsarān 
+‖ 22 ‖
+
+ekaviṃśativāraṃ yo nityaṃ stotraṃ paṭhedyadi ❘  
+tasya prasanno vighneśassarvān kāmān prayacChati 
+‖ 23 ‖
+
+
+‖ iti śrī gaṇapati gakāra aśhṭottara śatanāmastotram ‖
+
+### PlainEnglish
+
+#### gaNapati gakaara ashhTottara shatanaama stotram
+
+gakaararoopo gaMbeejo gaNesho gaNavaMditaH ❘  
+gaNaneeyo gaNogaNyo gaNanaateeta sadguNaH 
+‖ 1 ‖
+
+gaganaadikasRRidgaMgaasutogaMgaasutaarcitaH ❘  
+gaMgaadharapreetikarogaveesheDyogadaapahaH 
+‖ 2 ‖
+
+gadaadharanuto gadyapadyaatmakakavitvadaH ❘  
+gajaasyo gajalakshhmeevaan gajavaajirathapradaH 
+‖ 3 ‖
+
+gaMjaanirata shikshhaakRRidgaNitagnyo gaNottamaH ❘  
+gaMDadaanaaMcitogaMtaa gaMDopala samaakRRitiH 
+‖ 4 ‖
+
+gagana vyaapako gamyo gamaanaadi vivarjitaH ❘  
+gaMDadoshhaharo gaMDa bhramadbhramara kuMDalaH 
+‖ 5 ‖
+
+gataagatagnyo gatido gatamRRityurgatodbhavaH ❘  
+gaMdhapriyo gaMdhavaaho gaMdhasiMdhurabRRiMdagaH 
+‖ 6 ‖
+
+gaMdhaadi poojito gavyabhoktaa gargaadi sannutaH ❘  
+garishhThogarabhidgarvaharo garaLibhooshhaNaH 
+‖ 7 ‖
+
+gavishhThogarjitaaraavo gabheerahRRidayo gadee ❘  
+galatkushhThaharo garbhaprado garbhaarbharakshhakaH 
+‖ 8 ‖
+
+garbhaadhaaro garbhavaasi shishugnyaana pradaayakaH ❘  
+garutmattulyajavano garuDadhvajavaMditaH 
+‖ 9 ‖
+
+gayeDito gayaashraaddhaphaladashca gayaakRRitiH ❘  
+gadaadharaavataareeca gaMdharvanagaraarcitaH 
+‖ 10 ‖
+
+gaMdharvagaanasaMtushhTo garuDaagrajavaMditaH ❘  
+gaNaraatra samaaraadhyo garhaNastuti saamyadheeH 
+‖ 11 ‖
+
+gartaabhanaabhirgavyootiH deerghatuMDo gabhastimaan ❘  
+garhitaacaara doorashca garuDopalabhooshhitaH 
+‖ 12 ‖
+
+gajaari vikramo gaMdhamooshhavaajee gatashramaH ❘  
+gaveshhaNeeyo gamano gahanastha munistutaH 
+‖ 13 ‖
+
+gavayacChidgaMDakabhidgahvaraapathavaaraNaH ❘  
+gajadaMtaayudho garjadripughno gajakarNikaH 
+‖ 14 ‖
+
+gajacarmaamayacChettaa gaNaadhyakshhogaNaarcitaH ❘  
+gaNikaanartanapreetogacChan gaMdhaphalee priyaH 
+‖ 15 ‖
+
+gaMdhakaadi rasaadheesho gaNakaanaMdadaayakaH ❘  
+garabhaadijanurhartaa gaMDakeegaahanotsukaH 
+‖ 16 ‖
+
+gaMDooshheekRRitavaaraashiH garimaalaghimaadidaH ❘  
+gavaakshhavatsaudhavaaseegarbhito garbhiNeenutaH 
+‖ 17 ‖
+
+gaMdhamaadanashailaabho gaMDabheruMDavikramaH ❘  
+gadito gadgadaaraava saMstuto gahvareepatiH 
+‖ 18 ‖
+
+gajeshaaya gareeyase gadyeDyogatabheergaditaagamaH ❘  
+garhaNeeya guNaabhaavo gaMgaadika shucipradaH 
+‖ 19 ‖
+
+gaNanaateeta vidyaashree balaayushhyaadidaayakaH ❘  
+evaM shreegaNanaathasya naamnaamashhTottaraM shatam 
+‖ 20 ‖
+
+paThanaacChravaNaat puMsaaM shreyaH premapradaayakam ❘  
+poojaaMte yaH paThennityaM preetassan tasyavighnaraaT 
+‖ 21 ‖
+
+yaM yaM kaamayate kaamaM taM taM sheeghraM prayacChati ❘  
+doorvayaabhyarcayan devamekaviMshativaasaraan 
+‖ 22 ‖
+
+ekaviMshativaaraM yo nityaM stotraM paThedyadi ❘  
+tasya prasanno vighneshassarvaan kaamaan prayacChati 
+‖ 23 ‖
+
+
+‖ iti shree gaNapati gakaara ashhTottara shatanaamastotram ‖
+

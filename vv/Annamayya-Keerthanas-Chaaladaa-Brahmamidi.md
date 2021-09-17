@@ -432,3 +432,67 @@ sarugananu dalachuDee saMkeertanaM ‖
 సరుగనను దలచుడీ సంకీర్తనం ‖  
 
 
+### English
+
+#### annamayya kīrtana chāladā brahmamidi
+
+chāladā brahmamidi saṅkīrtanaṃ mīku ❘  
+jālella naḍagiñchu saṅkīrtanaṃ ‖
+
+santośha karamaina saṅkīrtanaṃ ❘  
+santāpa maṇagiñchu saṅkīrtanaṃ ❘  
+jantuvula rakśhiñchu saṅkīrtanaṃ ❘  
+santatamu dalachuḍī saṅkīrtanaṃ ‖
+
+sāmajamu gāñchinadi saṅkīrtanaṃ ❘  
+sāmamuna kekkuḍī saṅkīrtanaṃ ❘  
+sāmīpya mindariki saṅkīrtanaṃ ❘  
+sāmānyamā viśhṇu saṅkīrtanaṃ ‖
+
+jamubāri viḍipiñchu saṅkīrtanaṃ ❘  
+sama buddhi voḍamiñchu saṅkīrtanaṃ ❘  
+jamaḻi saukhyamulichchu saṅkīrtanaṃ ❘  
+śamadamādula jeyu saṅkīrtanaṃ ‖
+
+jalajāsanuni nori saṅkīrtanaṃ ❘  
+chaligoṇḍa sutadalachu saṅkīrtanaṃ ❘  
+chaluva gaḍu nālukaku saṅkīrtanaṃ ❘  
+chalapaṭṭi talachuḍī saṅkīrtanaṃ ‖
+
+saravi sampadalichchu saṅkīrtanaṃ ❘  
+sarileni didiyapo saṅkīrtanaṃ ❘  
+sarusa veṅkaṭa vibhuni saṅkīrtanaṃ ❘  
+sarugananu dalachuḍī saṅkīrtanaṃ ‖
+
+### PlainEnglish
+
+#### annamayya keertana chaaladaa brahmamidi
+
+chaaladaa brahmamidi saMkeertanaM meeku ❘  
+jaal.ella naDagiMchu saMkeertanaM ‖
+
+saMtoshha karamaina saMkeertanaM ❘  
+saMtaapa maNagiMchu saMkeertanaM ❘  
+jaMtuvula rakshhiMchu saMkeertanaM ❘  
+saMtatamu dalachuDee saMkeertanaM ‖
+
+saamajamu gaaMchinadi saMkeertanaM ❘  
+saamamuna k.ekkuDee saMkeertanaM ❘  
+saameepya miMdariki saMkeertanaM ❘  
+saamaanyamaa vishhNu saMkeertanaM ‖
+
+jamubaari viDipiMchu saMkeertanaM ❘  
+sama buddhi v.oDamiMchu saMkeertanaM ❘  
+jamaLi saukhyamulichchu saMkeertanaM ❘  
+shamadamaadula jeyu saMkeertanaM ‖
+
+jalajaasanuni nori saMkeertanaM ❘  
+chalig.oMDa sutadalachu saMkeertanaM ❘  
+chaluva gaDu naalukaku saMkeertanaM ❘  
+chalapaTTi talachuDee saMkeertanaM ‖
+
+saravi saMpadalichchu saMkeertanaM ❘  
+sarileni didiyapo saMkeertanaM ❘  
+sarusa veMkaTa vibhuni saMkeertanaM ❘  
+sarugananu dalachuDee saMkeertanaM ‖
+

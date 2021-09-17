@@ -679,3 +679,73 @@ baMgaarutallikid.e neeraajanaM
 బంగారుతల్లికిదె నీరాజనం  
 
 
+### English
+
+#### devī mahātmyam maṅgaḻa hārati
+
+śrī cakra pura mandu sthiramaina śrī lalita pasiḍi pādālakide nīrājanaṃ  
+baṅgārutallikide nīrājanaṃ  
+baṅgāru hārālu siṅgāramolakiñcu ambikā hṛdayaku nīrājanaṃ  
+baṅgārutallikide nīrājanaṃ  
+śrī gauri śrīmāta śrīmahārāGYi śrī siṃhāsaneśvariki nīrājanaṃ  
+baṅgārutallikide nīrājanaṃ  
+kalpataruvai mammu kāpāḍu karamulaku kavakambu kāsulato nīrājanaṃ   
+baṅgārutallikide nīrājanaṃ  
+pāśāṅkuśa puśhpa bāṇacāpadhariki parama pāvanamaina nīrājanaṃ   
+baṅgārutallikide nīrājanaṃ  
+kānti kiraṇālato kaliki meḍalo merise kalyāṇa sūtrammu nīrājanaṃ  
+baṅgārutallikide nīrājanaṃ  
+cirunavvu lolikiñcu śrīdevi adharāna śatako ṭi nakśhatra nīrājanaṃ  
+baṅgārutallikide nīrājanaṃ  
+kaluvarekula vaṇṭi kannula talli śrīrājarājeśvariki nīrājanaṃ  
+baṅgārutallikide nīrājanaṃ  
+mudamāra momuna muccaṭaga dariyiñcu kastūri kuṅkumaku nīrājanaṃ  
+baṅgārutallikide nīrājanaṃ  
+candravaṅkanikide nīrājanaṃ  
+śukravāramunāḍu śubhamulosage talli śrī mahālakśhmi kide nīrājanaṃ  
+baṅgārutallikide nīrājanaṃ  
+muggurammalakunu mūlamagu peddamma mutyālato nitya nīrājanaṃ  
+baṅgārutallikide nīrājanaṃ  
+śṛṅgeri pīṭhāna sundarākāriṇi saundaryalaharikide nīrājanaṃ   
+baṅgārutallikide nīrājanaṃ  
+sakala hṛdayālalo buddhipreraṇa jeyu talli gāyatrikide nīrājanaṃ  
+baṅgārutallikide nīrājanaṃ  
+dāna narasiṃhuni dayatoḍa rakśhiñcu dayagala tallikide nīrājanaṃ  
+ātmārpaṇato nitya nīrājanaṃ   
+śrī cakra pura mandu sthiramaina śrī lalita pasiḍi pādālakide nīrājanaṃ  
+baṅgārutallikide nīrājanaṃ  
+### PlainEnglish
+
+#### devee mahaatmyam maMgaLa haarati
+
+shree cakra pura maMdu sthiramaina shree lalita pasiDi paadaalakid.e neeraajanaM  
+baMgaarutallikid.e neeraajanaM  
+baMgaaru haaraalu siMgaaram.olakiMcu aMbikaa hRRidayaku neeraajanaM  
+baMgaarutallikid.e neeraajanaM  
+shree gauri shreemaata shreemahaaraagnyi shree siMhaasaneshvariki neeraajanaM  
+baMgaarutallikid.e neeraajanaM  
+kalpataruvai mammu kaapaaDu karamulaku kavakaMbu kaasulato neeraajanaM   
+baMgaarutallikid.e neeraajanaM  
+paashaaMkusha pushhpa baaNacaapadhariki parama paavanamaina neeraajanaM   
+baMgaarutallikid.e neeraajanaM  
+kaaMti kiraNaalato kaliki m.eDalo m.eris.e kalyaaNa sootrammu neeraajanaM  
+baMgaarutallikid.e neeraajanaM  
+cirunavvu l.olikiMcu shreedevi adharaana shatako Ti nakshhatra neeraajanaM  
+baMgaarutallikid.e neeraajanaM  
+kaluvarekula vaMTi kannula talli shreeraajaraajeshvariki neeraajanaM  
+baMgaarutallikid.e neeraajanaM  
+mudamaara momuna muccaTaga dariyiMcu kastoori kuMkumaku neeraajanaM  
+baMgaarutallikid.e neeraajanaM  
+caMdravaMkanikid.e neeraajanaM  
+shukravaaramunaaDu shubhamul.osage talli shree mahaalakshhmi kid.e neeraajanaM  
+baMgaarutallikid.e neeraajanaM  
+muggurammalakunu moolamagu p.eddamma mutyaalato nitya neeraajanaM  
+baMgaarutallikid.e neeraajanaM  
+shRRiMgeri peeThaana suMdaraakaariNi sauMdaryalaharikid.e neeraajanaM   
+baMgaarutallikid.e neeraajanaM  
+sakala hRRidayaalalo buddhipreraNa jeyu talli gaayatrikid.e neeraajanaM  
+baMgaarutallikid.e neeraajanaM  
+daana narasiMhuni dayatoDa rakshhiMcu dayagala tallikid.e neeraajanaM  
+aatmaarpaNato nitya neeraajanaM   
+shree cakra pura maMdu sthiramaina shree lalita pasiDi paadaalakid.e neeraajanaM  
+baMgaarutallikid.e neeraajanaM  

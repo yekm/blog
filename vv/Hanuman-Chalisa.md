@@ -1875,3 +1875,375 @@ siyaavara raamachandrakee jaya ❘ pavanasuta hanumaanakee jaya | bolo bhaayee s
 సియావర రామచంద్రకీ జయ ❘ పవనసుత హనుమానకీ జయ | బోలో భాయీ సబ సంతనకీ జయ |  
 
 
+### English
+
+#### hanumān chālīsā
+
+dohā  
+śrī guru charaṇa saroja raja nijamana mukura sudhāri ❘  
+varaṇau raghuvara vimalayaśa jo dāyaka phalachāri ‖
+
+buddhihīna tanujānikai sumirau pavana kumāra ❘  
+bala buddhi vidyā dehu mohi harahu kaleśa vikāra ‖
+
+dhyānam  
+gośhpadīkṛta vārāśiṃ maśakīkṛta rākśhasam ❘  
+rāmāyaṇa mahāmālā ratnaṃ vande-(a)nilātmajam ‖
+
+yatra yatra raghunātha kīrtanaṃ tatra tatra kṛtamastakāñjalim ❘  
+bhāśhpavāri paripūrṇa lochanaṃ mārutiṃ namata rākśhasāntakam ‖
+
+chaupāī  
+jaya hanumāna jJṇāna guṇa sāgara ❘  
+jaya kapīśa tihu loka ujāgara 
+‖ 1 ‖
+
+rāmadūta atulita baladhāmā ❘  
+añjani putra pavanasuta nāmā 
+‖ 2 ‖
+
+mahāvīra vikrama bajaraṅgī ❘  
+kumati nivāra sumati ke saṅgī 
+‖3 ‖
+
+kañchana varaṇa virāja suveśā ❘  
+kānana kuṇḍala kuñchita keśā 
+‖ 4 ‖
+
+hāthavajra au dhvajā virājai ❘  
+kānthe mūñja janevū sājai 
+‖ 5‖
+
+śaṅkara suvana kesarī nandana ❘  
+teja pratāpa mahājaga vandana 
+‖ 6 ‖
+
+vidyāvāna guṇī ati chātura ❘  
+rāma kāja karive ko ātura 
+‖ 7 ‖
+
+prabhu charitra sunive ko rasiyā ❘  
+rāmalakhana sītā mana basiyā 
+‖ 8‖
+
+sūkśhma rūpadhari siyahi dikhāvā ❘  
+vikaṭa rūpadhari laṅka jalāvā 
+‖ 9 ‖
+
+bhīma rūpadhari asura saṃhāre ❘  
+rāmachandra ke kāja saṃvāre 
+‖ 10 ‖
+
+lāya sañjīvana lakhana jiyāye ❘  
+śrī raghuvīra haraśhi uralāye 
+‖ 11 ‖
+
+raghupati kīnhī bahuta baḍāyī ❘  
+tuma mama priya bharata sama bhāyī 
+‖ 12 ‖
+
+sahasra vadana tumharo yaśagāvai ❘  
+asa kahi śrīpati kaṇṭha lagāvai 
+‖ 13 ‖
+
+sanakādika brahmādi munīśā ❘  
+nārada śārada sahita ahīśā 
+‖ 14 ‖
+
+yama kubera digapāla jahāṃ te ❘  
+kavi kovida kahi sake kahāṃ te 
+‖ 15 ‖
+
+tuma upakāra sugrīvahi kīnhā ❘  
+rāma milāya rājapada dīnhā 
+‖ 16 ‖
+
+tumharo mantra vibhīśhaṇa mānā ❘  
+laṅkeśvara bhaye saba jaga jānā 
+‖ 17 ‖
+
+yuga sahasra yojana para bhānū ❘  
+līlyo tāhi madhura phala jānū 
+‖ 18 ‖
+
+prabhu mudrikā meli mukha māhī ❘  
+jaladhi lāṅghi gaye acharaja nāhī 
+‖ 19 ‖
+
+durgama kāja jagata ke jete ❘  
+sugama anugraha tumhare tete 
+‖ 20 ‖
+
+rāma duāre tuma rakhavāre ❘  
+hota na ājJṇā binu paisāre 
+‖ 21 ‖
+
+saba sukha lahai tumhārī śaraṇā ❘  
+tuma rakśhaka kāhū ko ḍara nā 
+‖ 22 ‖
+
+āpana teja samhāro āpai ❘  
+tīnoṃ loka hāṅka te kāmpai 
+‖ 23 ‖
+
+bhūta piśācha nikaṭa nahi āvai ❘  
+mahavīra jaba nāma sunāvai 
+‖ 24 ‖
+
+nāsai roga harai saba pīrā ❘  
+japata nirantara hanumata vīrā 
+‖ 25 ‖
+
+saṅkaṭa se hanumāna Chuḍāvai ❘  
+mana krama vachana dhyāna jo lāvai 
+‖ 26 ‖
+
+saba para rāma tapasvī rājā ❘  
+tinake kāja sakala tuma sājā 
+‖ 27 ‖
+
+aura manoradha jo koyi lāvai ❘  
+tāsu amita jīvana phala pāvai 
+‖ 28 ‖
+
+chāro yuga pratāpa tumhārā ❘  
+hai prasiddha jagata ujiyārā 
+‖ 29 ‖
+
+sādhu santa ke tuma rakhavāre ❘  
+asura nikandana rāma dulāre 
+‖ 30 ‖
+
+aśhṭhasiddhi nava nidhi ke dātā ❘  
+asa vara dīnha jānakī mātā 
+‖ 31 ‖
+
+rāma rasāyana tumhāre pāsā ❘  
+sadā raho raghupati ke dāsā 
+‖ 32 ‖
+
+tumhare bhajana rāmako pāvai ❘  
+janma janma ke dukha bisarāvai 
+‖ 33 ‖
+
+anta kāla raghupati purajāyī ❘  
+jahāṃ janma haribhakta kahāyī 
+‖ 34 ‖
+
+aura devatā chitta na dharayī ❘  
+hanumata seyi sarva sukha karayī 
+‖ 35 ‖
+
+saṅkaṭa ka(ha)ṭai miṭai saba pīrā ❘  
+jo sumirai hanumata bala vīrā 
+‖ 36 ‖
+
+jai jai jai hanumāna gosāyī ❘  
+kṛpā karahu gurudeva kī nāyī 
+‖ 37 ‖
+
+jo śata vāra pāṭha kara koyī ❘  
+Chūṭahi bandi mahā sukha hoyī 
+‖ 38 ‖
+
+jo yaha paḍai hanumāna chālīsā ❘  
+hoya siddhi sākhī gaurīśā 
+‖ 39 ‖
+
+tulasīdāsa sadā hari cherā ❘  
+kījai nātha hṛdaya maha ḍerā 
+‖ 40 ‖
+
+dohā  
+pavana tanaya saṅkaṭa haraṇa -  maṅgalda mūrati rūp ❘  
+rāma lakhana sītā sahita - hṛdaya basahu surabhūp ‖
+
+siyāvara rāmachandrakī jaya ❘  
+pavanasuta hanumānakī jaya ❘  
+bolo bhāyī saba santanakī jaya ❘  
+### PlainEnglish
+
+#### hanumaan chaaleesaa
+
+dohaa  
+shree guru charaNa saroja raja nijamana mukura sudhaari ❘  
+varaNau raghuvara vimalayasha jo daayaka phalachaari ‖
+
+buddhiheena tanujaanikai sumirau pavana kumaara ❘  
+bala buddhi vidyaa dehu mohi harahu kalesha vikaara ‖
+
+dhyaanam  
+goshhpadeekRRita vaaraashiM mashakeekRRita raakshhasam ❘  
+raamaayaNa mahaamaalaa ratnaM vaMde-(a)nilaatmajam ‖
+
+yatra yatra raghunaatha keertanaM tatra tatra kRRitamastakaaMjalim ❘  
+bhaashhpavaari paripoorNa lochanaM maarutiM namata raakshhasaaMtakam ‖
+
+chaupaaee  
+jaya hanumaana jjhNaana guNa saagara ❘  
+jaya kapeesha tihu loka ujaagara 
+‖ 1 ‖
+
+raamadoota atulita baladhaamaa ❘  
+aMjani putra pavanasuta naamaa 
+‖ 2 ‖
+
+mahaaveera vikrama bajarangee ❘  
+kumati nivaara sumati ke sangee 
+‖3 ‖
+
+kaMchana varaNa viraaja suveshaa ❘  
+kaanana kuMDala kuMchita keshaa 
+‖ 4 ‖
+
+haathavajra au dhvajaa viraajai ❘  
+kaaMthe mooMja janevoo saajai 
+‖ 5‖
+
+shaMkara suvana kesaree nandana ❘  
+teja prataapa mahaajaga vandana 
+‖ 6 ‖
+
+vidyaavaana guNee ati chaatura ❘  
+raama kaaja karive ko aatura 
+‖ 7 ‖
+
+prabhu charitra sunive ko rasiyaa ❘  
+raamalakhana seetaa mana basiyaa 
+‖ 8‖
+
+sookshhma roopadhari siyahi dikhaavaa ❘  
+vikaTa roopadhari laMka jalaavaa 
+‖ 9 ‖
+
+bheema roopadhari asura saMhaare ❘  
+raamachaMdra ke kaaja saMvaare 
+‖ 10 ‖
+
+laaya saMjeevana lakhana jiyaaye ❘  
+shree raghuveera harashhi uralaaye 
+‖ 11 ‖
+
+raghupati keenhee bahuta baDaayee ❘  
+tuma mama priya bharata sama bhaayee 
+‖ 12 ‖
+
+sahasra vadana tumharo yashagaavai ❘  
+asa kahi shreepati kaNTha lagaavai 
+‖ 13 ‖
+
+sanakaadika brahmaadi muneeshaa ❘  
+naarada shaarada sahita aheeshaa 
+‖ 14 ‖
+
+yama kubera digapaala jahaaM te ❘  
+kavi kovida kahi sake kahaaM te 
+‖ 15 ‖
+
+tuma upakaara sugreevahi keenhaa ❘  
+raama milaaya raajapada deenhaa 
+‖ 16 ‖
+
+tumharo mantra vibheeshhaNa maanaa ❘  
+laMkeshvara bhaye saba jaga jaanaa 
+‖ 17 ‖
+
+yuga sahasra yojana para bhaanoo ❘  
+leelyo taahi madhura phala jaanoo 
+‖ 18 ‖
+
+prabhu mudrikaa meli mukha maahee ❘  
+jaladhi laaMghi gaye acharaja naahee 
+‖ 19 ‖
+
+durgama kaaja jagata ke jete ❘  
+sugama anugraha tumhare tete 
+‖ 20 ‖
+
+raama duaare tuma rakhavaare ❘  
+hota na aajjhNaa binu paisaare 
+‖ 21 ‖
+
+saba sukha lahai tumhaaree sharaNaa ❘  
+tuma rakshhaka kaahoo ko Dara naa 
+‖ 22 ‖
+
+aapana teja samhaaro aapai ❘  
+teenoM loka haaMka te kaaMpai 
+‖ 23 ‖
+
+bhoota pishaacha nikaTa nahi aavai ❘  
+mahaveera jaba naama sunaavai 
+‖ 24 ‖
+
+naasai roga harai saba peeraa ❘  
+japata niraMtara hanumata veeraa 
+‖ 25 ‖
+
+saMkaTa se hanumaana ChuDaavai ❘  
+mana krama vachana dhyaana jo laavai 
+‖ 26 ‖
+
+saba para raama tapasvee raajaa ❘  
+tinake kaaja sakala tuma saajaa 
+‖ 27 ‖
+
+aura manoradha jo koyi laavai ❘  
+taasu amita jeevana phala paavai 
+‖ 28 ‖
+
+chaaro yuga prataapa tumhaaraa ❘  
+hai prasiddha jagata ujiyaaraa 
+‖ 29 ‖
+
+saadhu santa ke tuma rakhavaare ❘  
+asura nikandana raama dulaare 
+‖ 30 ‖
+
+ashhThasiddhi nava nidhi ke daataa ❘  
+asa vara deenha jaanakee maataa 
+‖ 31 ‖
+
+raama rasaayana tumhaare paasaa ❘  
+sadaa raho raghupati ke daasaa 
+‖ 32 ‖
+
+tumhare bhajana raamako paavai ❘  
+janma janma ke dukha bisaraavai 
+‖ 33 ‖
+
+aMta kaala raghupati purajaayee ❘  
+jahaaM janma haribhakta kahaayee 
+‖ 34 ‖
+
+aura devataa chitta na dharayee ❘  
+hanumata seyi sarva sukha karayee 
+‖ 35 ‖
+
+saMkaTa ka(ha)Tai miTai saba peeraa ❘  
+jo sumirai hanumata bala veeraa 
+‖ 36 ‖
+
+jai jai jai hanumaana gosaayee ❘  
+kRRipaa karahu gurudeva kee naayee 
+‖ 37 ‖
+
+jo shata vaara paaTha kara koyee ❘  
+ChooTahi bandi mahaa sukha hoyee 
+‖ 38 ‖
+
+jo yaha paDai hanumaana chaaleesaa ❘  
+hoya siddhi saakhee gaureeshaa 
+‖ 39 ‖
+
+tulaseedaasa sadaa hari cheraa ❘  
+keejai naatha hRRidaya maha Deraa 
+‖ 40 ‖
+
+dohaa  
+pavana tanaya sankaTa haraNa -  mangalda moorati roop ❘  
+raama lakhana seetaa sahita - hRRidaya basahu surabhoop ‖
+
+siyaavara raamachandrakee jaya ❘  
+pavanasuta hanumaanakee jaya ❘  
+bolo bhaayee saba santanakee jaya ❘  

@@ -211,3 +211,97 @@ oM shaaM _ti_ H shaaM _ti_ H shaaMti'H ‖
 
 ఓం శాం _తిః_ శాం _తిః_ శాంతిః' ‖  
 
+### English
+
+#### nārāyaṇa sūktam
+
+oṃ saha nā'vavatu ❘  
+saha nau' bhunaktu ❘  
+saha vīrya'ṃ karavāvahai ❘  
+tejasvināvadhī'tamastu mā vi'dviśhāvahai'' 
+‖ oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+oṃ 
+‖ sahasraśīr'śhaṃ devaṃ viśvākśha'ṃ viśvaśa'mbhuvam ❘  
+viśva'ṃ nārāya'ṇaṃ devamakśhara'ṃ paramaṃ padam ❘  
+viśvataḥ para'mānnityaṃ viśvaṃ nā'rāyaṇagṃ ha'rim ❘  
+viśva'mevedaṃ puru'śha-stadviśva-mupa'jīvati ❘  
+patiṃ viśva'syātmeśva'ragṃ śāśva'tagṃ śiva-machyutam ❘  
+nārāyaṇaṃ ma'hāGYeyaṃ viśvātmā'naṃ parāya'ṇam ❘  
+nārāyaṇapa'ro jyotirātmā nā'rāyaṇaḥ pa'raḥ ❘  
+nārāyaṇapara'ṃ brahma tattvaṃ nā'rāyaṇaḥ pa'raḥ ❘  
+nārāyaṇapa'ro dhyātā dhyānaṃ nā'rāyaṇaḥ pa'raḥ ❘  
+yaccha' kiñchijjagatsarvaṃ dṛśyate'' śrūyateapi' vā ‖
+
+anta'rbahiścha' tatsarvaṃ vyāpya nā'rāyaṇaḥ sthi'taḥ ❘  
+anantamavyaya'ṃ kavigṃ sa'mudreanta'ṃ viśvaśa'mbhuvam ❘  
+padmakośa-pra'tīkāśagṃ hṛdaya'ṃ chāpyadhomu'kham ❘  
+adho' niśhṭyā vi'tasyānte nābhyāmu'pari tiśhṭha'ti ❘  
+jvālamālāku'laṃ bhātī viśvasyāya'tanaṃ ma'hat ❘  
+santata'gṃ śilābhi'stu lambatyākośasanni'bham ❘  
+tasyānte' suśhiragṃ sūkśhmaṃ tasmin'' sarvaṃ prati'śhṭhitam ❘  
+tasya madhye' mahāna'gnir-viśvārchi'r-viśvato'mukhaḥ ❘  
+soagra'bhugvibha'jantiśhṭha-nnāhā'ramajaraḥ kaviḥ ❘  
+tiryagūrdhvama'dhaśśāyī raśmaya'stasya santa'tā ❘  
+santāpaya'ti svaṃ dehamāpā'datalamasta'kaḥ ❘  
+tasyamadhye vahni'śikhā aṇīyo''rdhvā vyavasthi'taḥ ❘  
+nīlato'-yada'madhyasthād-vidhyulle'kheva bhāsva'rā ❘  
+nīvāraśūka'vattanvī pītā bhā''svatyaṇūpa'mā ❘  
+tasyā''ḥ śikhāyā ma'dhye paramā''tmā vyavasthi'taḥ ❘  
+sa brahma sa śivaḥ sa hariḥ sendraḥ soakśha'raḥ paramaḥ svarāṭ ‖
+
+ṛtagṃ satyaṃ pa'raṃ brahma puruśha'ṃ kṛśhṇapiṅga'lam ❘  
+ūrdhvare'taṃ vi'rūpā'kśhaṃ viśvarū'pāya vai namo nama'ḥ ‖
+
+oṃ nārāyaṇāya' vidmahe' vāsudevāya' dhīmahi ❘  
+tanno' viśhṇuḥ prachodayā''t ‖
+
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+### PlainEnglish
+
+#### naaraayaNa sooktam
+
+oM saha naa'vavatu ❘  
+saha nau' bhunaktu ❘  
+saha veerya'M karavaavahai ❘  
+tejasvinaavadhee'tamastu maa vi'dvishhaavahai'' 
+‖ oM shaaMtiH shaaMtiH shaaMti'H ‖
+
+oM 
+‖ sahasrasheer'shhaM devaM vishvaakshha'M vishvasha'Mbhuvam ❘  
+vishva'M naaraaya'NaM devamakshhara'M paramaM padam ❘  
+vishvataH para'maannityaM vishvaM naa'raayaNagM ha'rim ❘  
+vishva'mevedaM puru'shha-stadvishva-mupa'jeevati ❘  
+patiM vishva'syaatmeshva'ragM shaashva'tagM shiva-machyutam ❘  
+naaraayaNaM ma'haagnyeyaM vishvaatmaa'naM paraaya'Nam ❘  
+naaraayaNapa'ro jyotiraatmaa naa'raayaNaH pa'raH ❘  
+naaraayaNapara'M brahma tattvaM naa'raayaNaH pa'raH ❘  
+naaraayaNapa'ro dhyaataa dhyaanaM naa'raayaNaH pa'raH ❘  
+yaccha' kiMchijjagatsarvaM dRRishyate'' shrooyate.api' vaa ‖
+
+aMta'rbahishcha' tatsarvaM vyaapya naa'raayaNaH sthi'taH ❘  
+anaMtamavyaya'M kavigM sa'mudre.aMta'M vishvasha'Mbhuvam ❘  
+padmakosha-pra'teekaashagM hRRidaya'M chaapyadhomu'kham ❘  
+adho' nishhTyaa vi'tasyaaMte naabhyaamu'pari tishhTha'ti ❘  
+jvaalamaalaaku'laM bhaatee vishvasyaaya'tanaM ma'hat ❘  
+santata'gM shilaabhi'stu laMbatyaakoshasanni'bham ❘  
+tasyaaMte' sushhiragM sookshhmaM tasmin'' sarvaM prati'shhThitam ❘  
+tasya madhye' mahaana'gnir-vishvaarchi'r-vishvato'mukhaH ❘  
+so.agra'bhugvibha'jaMtishhTha-nnaahaa'ramajaraH kaviH ❘  
+tiryagoordhvama'dhashshaayee rashmaya'stasya saMta'taa ❘  
+saMtaapaya'ti svaM dehamaapaa'datalamasta'kaH ❘  
+tasyamadhye vahni'shikhaa aNeeyo''rdhvaa vyavasthi'taH ❘  
+neelato'-yada'madhyasthaad-vidhyulle'kheva bhaasva'raa ❘  
+neevaarashooka'vattanvee peetaa bhaa''svatyaNoopa'maa ❘  
+tasyaa''H shikhaayaa ma'dhye paramaa''tmaa vyavasthi'taH ❘  
+sa brahma sa shivaH sa hariH seMdraH so.akshha'raH paramaH svaraaT ‖
+
+RRitagM satyaM pa'raM brahma purushha'M kRRishhNapiMga'lam ❘  
+oordhvare'taM vi'roopaa'kshhaM vishvaroo'paaya vai namo nama'H ‖
+
+oM naaraayaNaaya' vidmahe' vaasudevaaya' dheemahi ❘  
+tanno' vishhNuH prachodayaa''t ‖
+
+oM shaaMtiH shaaMtiH shaaMti'H ‖
+

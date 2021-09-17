@@ -601,3 +601,113 @@ madhuraadhipaterakhilaM madhuram ‖ 8 ‖
 
 ‖ ఇతి శ్రీమద్వల్లభాచార్యవిరచితం మధురాష్టకం సంపూర్ణమ్ ‖  
 
+### English
+
+#### madhurāśhṭakam
+
+adharaṃ madhuraṃ vadanaṃ madhuraṃ  
+nayanaṃ madhuraṃ hasitaṃ madhuram ❘  
+hṛdayaṃ madhuraṃ gamanaṃ madhuraṃ  
+madhurādhipaterakhilaṃ madhuram 
+‖ 1 ‖
+
+vachanaṃ madhuraṃ charitaṃ madhuraṃ  
+vasanaṃ madhuraṃ valitaṃ madhuraṃ ❘  
+chalitaṃ madhuraṃ bhramitaṃ madhuraṃ  
+madhurādhipaterakhilaṃ madhuram 
+‖ 2 ‖
+
+veṇu-rmadhuro reṇu-rmadhuraḥ  
+pāṇi-rmadhuraḥ pādau madhurau ❘  
+nṛtyaṃ madhuraṃ sakhyaṃ madhuraṃ  
+madhurādhipaterakhilaṃ madhuram 
+‖ 3 ‖
+
+gītaṃ madhuraṃ pītaṃ madhuraṃ  
+bhuktaṃ madhuraṃ suptaṃ madhuraṃ ❘  
+rūpaṃ madhuraṃ tilakaṃ madhuraṃ  
+madhurādhipaterakhilaṃ madhuram 
+‖ 4 ‖
+
+karaṇaṃ madhuraṃ taraṇaṃ madhuraṃ  
+haraṇaṃ madhuraṃ smaraṇaṃ madhuraṃ ❘  
+vamitaṃ madhuraṃ śamitaṃ madhuraṃ  
+madhurādhipaterakhilaṃ madhuram 
+‖ 5 ‖
+
+guñjā madhurā mālā madhurā  
+yamunā madhurā vīchī madhurā ❘  
+salilaṃ madhuraṃ kamalaṃ madhuraṃ  
+madhurādhipaterakhilaṃ madhuram 
+‖ 6 ‖
+
+gopī madhurā līlā madhurā  
+yuktaṃ madhuraṃ muktaṃ madhuraṃ ❘  
+dṛśhṭaṃ madhuraṃ śiśhṭaṃ madhuraṃ  
+madhurādhipaterakhilaṃ madhuram 
+‖ 7 ‖
+
+gopā madhurā gāvo madhurā  
+yaśhṭi rmadhurā sṛśhṭi rmadhurā ❘  
+dalitaṃ madhuraṃ phalitaṃ madhuraṃ  
+madhurādhipaterakhilaṃ madhuram 
+‖ 8 ‖
+
+
+‖ iti śrīmadvallabhāchāryavirachitaṃ madhurāśhṭakaṃ sampūrṇam ‖
+
+### PlainEnglish
+
+#### madhuraashhTakam
+
+adharaM madhuraM vadanaM madhuraM  
+nayanaM madhuraM hasitaM madhuram ❘  
+hRRidayaM madhuraM gamanaM madhuraM  
+madhuraadhipaterakhilaM madhuram 
+‖ 1 ‖
+
+vachanaM madhuraM charitaM madhuraM  
+vasanaM madhuraM valitaM madhuraM ❘  
+chalitaM madhuraM bhramitaM madhuraM  
+madhuraadhipaterakhilaM madhuram 
+‖ 2 ‖
+
+veNu-rmadhuro reNu-rmadhuraH  
+paaNi-rmadhuraH paadau madhurau ❘  
+nRRityaM madhuraM sakhyaM madhuraM  
+madhuraadhipaterakhilaM madhuram 
+‖ 3 ‖
+
+geetaM madhuraM peetaM madhuraM  
+bhuktaM madhuraM suptaM madhuraM ❘  
+roopaM madhuraM tilakaM madhuraM  
+madhuraadhipaterakhilaM madhuram 
+‖ 4 ‖
+
+karaNaM madhuraM taraNaM madhuraM  
+haraNaM madhuraM smaraNaM madhuraM ❘  
+vamitaM madhuraM shamitaM madhuraM  
+madhuraadhipaterakhilaM madhuram 
+‖ 5 ‖
+
+gunjaa madhuraa maalaa madhuraa  
+yamunaa madhuraa veechee madhuraa ❘  
+salilaM madhuraM kamalaM madhuraM  
+madhuraadhipaterakhilaM madhuram 
+‖ 6 ‖
+
+gopee madhuraa leelaa madhuraa  
+yuktaM madhuraM muktaM madhuraM ❘  
+dRRishhTaM madhuraM shishhTaM madhuraM  
+madhuraadhipaterakhilaM madhuram 
+‖ 7 ‖
+
+gopaa madhuraa gaavo madhuraa  
+yashhTi rmadhuraa sRRishhTi rmadhuraa ❘  
+dalitaM madhuraM phalitaM madhuraM  
+madhuraadhipaterakhilaM madhuram 
+‖ 8 ‖
+
+
+‖ iti shreemadvallabhaachaaryavirachitaM madhuraashhTakaM saMpoorNam ‖
+

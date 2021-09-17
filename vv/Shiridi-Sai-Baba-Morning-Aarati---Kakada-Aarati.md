@@ -2941,3 +2941,437 @@ shree sachchidaanaMda sadguru saayinaadh mahaaraaj kee jai
 
 
 
+### English
+
+#### śhiriḍi sāyi bābā prātaḥkāla ārati - kākaḍa ārati
+
+śrī sachchidānanda samardha sadguru sāyinādha maharāj kī jai.  
+1. joḍū niyākaracharaṇi ṭhevilāmādhā  
+parisāvī vinantī mājhī paṇḍarīnādhā  
+asonaso bhāvā^^ālo - tūjhiyāṭhāyā  
+krupādruśhṭipāhe majakaḍe - sadgurūrāyā  
+akhaṇḍita asāve^^ise - vāṭatepāyī  
+tukāhmaṇe devāmājhī veḍīvākuḍī  
+nāme bhavapāś hāti - āpulyātoḍī  
+2.uṭhāpāṇḍuraṅgā atā prabhāta samayo pātalā ❘  
+vaiśhṇavāñchā meḻā garuḍa-pārī dāṭalā ‖
+
+garūḍāpārā pāsunī mahā dvārā paryantā ❘  
+suravarāñchī māndī ubhī joḍūni hāt  
+śukasanakādika nāradatumbara bhaktāñchyākoṭī  
+triśūlaḍhamarū ghe^^uni ubhā girijechāpatī  
+kaliyugīchā bhaktānāmā ubhākīrtanī  
+pāṭhīmāge ubhīḍolā lāvuni^^u^^ājanī  
+3.uṭhā uṭhā śrīsāyinādhagurucharaṇakamala dāvā  
+ādhivyādi bhavatāpa vārunī tārā jaḍajīvā  
+gelītuhmā soḍu niyābhava tamara rajanīvilayā  
+parihī aṅyānāsī tamachī bhulaviyogamāyā  
+śaktina ahmāyatkiñchit hī ti jalāsārāyā  
+tuhmīch tītesāruni dāvā mukhajanatārāyā  
+aGYānī ahmīkiti tava varṇāvītavadhoravī  
+tīvarṇitābhā gale bahuvadaniśeśha vidhakavī  
+sakrupaho^^uni mahimātumachā tuhmīchavadavāvā  
+ādivyādhibhava tāpavāruni tārājaḍajīvā  
+uṭhā uṭhā śrīsāyinādhagurucharaṇakamala dāvā  
+ādivyādhibhava tāpavāruni tārājaḍajīvā  
+bhaktamanisadbhāva dharunije tuhmā^^anusarale  
+dhyāyāstavate darśnatumache dvāri ubeṭhele  
+dhyānasdhā tuhmāsa pāhunī mana amucheghele  
+ukhaḍunīnetrakamalā dīnabandhūramākāntā  
+pāhibākrupādrusṭī bālakājasī mātā  
+rañjavīmadhuravāṇī haritāp sāyinādhā  
+ahmich apulekariyāstavatujakaśhṭavitodevā  
+sahanakariśile ikuvidyāvī bheṭ kruśhṇadāvā  
+uṭhā uṭhā śrīsāyinādhagurucharaṇakamala dāvā  
+ādivyādhi bhavatāpavāruni tārājaḍajīvā  
+4.uṭhā uṭhā pāḍuraṅgā ātā - darśanadyāsakaḻā  
+jhūlā aruṇodayāsaralī-nidrecheveḻā  
+santasādhūmunī avaghe jhūletīgoḻā  
+soḍāśeje sukh ātā bahujāmukhakamalā  
+raṅgamaṇḍape mahādvārī jhūlīsedāṭī  
+mana u tāvīḻarūpa pahavayādruśhṭī  
+rāyirakhumābāyi tuhmāye ūdyādayā  
+śeje hālavunī jāge kārādevarāyā  
+garūḍa hanumanta hubhe pāhātīvāṭ  
+svargīche suravaraghe uni ālebhobhāṭ  
+jhūle mukta dvārā lābh jhūlārokaḍā  
+viśhṇudās nāma ubhā ghe unikākaḍa  
+5.ghe^^uniyā pañchāratī karūbābāsī āratī  
+uṭhā^^uṭhāho bāndhava ovāḻu haramādhava  
+karūniyā sdhirāmana pāhugambhīrāhedhyāna  
+kruśhṇanādhā dattasāyi jāḍochitta tujhepāyī  
+kākaḍa āratī karīto! sāyinādha devā  
+chinmayarūpa dākhavī ghe uni! bālakalaghu sevā 
+‖kā‖
+
+6.kāmakrodhamadamatsara āṭuni kākaḍakelā  
+vairāgyāche tūv kāḍhunī mīto bijivīlā  
+sāyinādhaguru bhakti jvaline tomīpeṭavilā  
+tadrvuttījāḻunī gurune prākāśapāḍilā  
+dvaitatamānāsunīmiḻavī tatsyarūpi jīvā  
+chinmayarūpadākhavī ghe^^unibālakalaghu sevā  
+kākaḍa āratīkarīto sāyinādha devā  
+chinmayārūpadākhavī ghe uni bālakalaghu sevā  
+bhū khechara vyāpūnī avaghe hrutkamalīrāhasī  
+tochī dattadeva śiriḍī rāhuni pāvasī  
+rāhuniyedhe anyasradhahi tū bhaktāstavadhāvasī  
+nirasuni yā saṅkaṭādāsā anibhava dāvīsī  
+nakaletvallī lāhīkoṇyā devāvā mānavā  
+chinmayarūpadākhavī ghe uni bālakaghusevā  
+kākaḍa āratīkarīto sāyinādha devā  
+chinmayarūpadākhavī ghe uni bālakaghusevā  
+tvadRRīśyadundubhinesāre ambar he kondale  
+saguṇamūrtī pāhaṇyā ātura janaśiriḍī āle!  
+prāśuni tadvachanāmruta amuchedehabān haraphale  
+soḍuniyādurabhimāna mānasa tvachcharaṇi vāhile  
+krupākarunī sāyimāvule dānapadarighyāvā  
+chinmayarūpadākhavī ghe uni bālakaghu sevā  
+kākaḍa āratīkarīto sāyinādha devā  
+chinmayarūpadākhavī ghe uni bālakaghusevā.  
+bhaktīchiyā poṭībod kākaḍa jyotī  
+pañchaprāṇajīve bhāve ovāḻu āratī  
+ovāḻū āratīmājhyā paṇḍarīnādhā mājhyāsāyinādhā  
+donī karajoḍunicharaṇī ṭhevilāmādhā  
+kāyāmahimā varṇū ātā sāṅgaṇekītī  
+koṭibrahma hatyamukha pāhatā jātī  
+rāyīrakhumābāyī ubhyā doghīdobāhī  
+māyūrapiñcha chāmareḍāḻīti sāyīñcha ṭhāyi  
+tukāhmaṇe dīpaghe uni unmanītaśobhā  
+viṭhevarī ubādise lāvaṇyā gābhā  
+uṭhāsādusantasādā āpulāle hitā  
+jā^^īl jā^^īl hanaradeha magakaichā bhagavanta  
+uṭhoniyā pahaṭebābā ubhā asevīṭe  
+charaṇatayāñchegomaṭī amruta druśhṭī avalokā  
+uṭhā^^uṭhā hovegesīchalā ja^^ūrā^^uḻāsī  
+jalatilapātakān chyārāśī kākaḍa āratidekhiliyā  
+jāgekarārukmiṇīvarā deva ahenijasurān ta  
+vegelimbaloṇ karā-druśhṭi ho īl tayāsī  
+dārībājantrī vājatī ḍolu ḍamāme garjatī  
+hotasekākaḍārati mājhyā sadguru rāyachī  
+siṃhanādha śaṅkha beri ānandahotomahādvārī  
+keśavarāja viṭhevarī nāmācharaṇa vandito  
+sāyinādha gurumājhe āyī  
+majalā ṭhāvā dyāvāpāyī  
+śrī sachchidānanda sadguru sāyinādh mahārāj kī jai  
+dattarāja gurumājhe āyī  
+majalā ṭhāvā dyāvāpāyī  
+sāyinādha gurumājhe āyī  
+majalā ṭhāvā dyāvāpāyī  
+prabhāta samayīnabhā śubha ravī prabhāpākalī  
+smare guru sadā aśāsamayītyāChaḻe nākalī  
+hmaṇonikarajoḍunīkaru atāgurū prārdhanā  
+samardha gurusāyinādha puravī manovāsanā  
+tamā nirasi bhānuhaguruhi nāsi aGYānatā  
+parantuguru chīkarī naravihīkadī sāmyatā  
+pun hātimira janmaghe gurukrupeni aGYananā  
+samardha gurusāyinādha puravī manovāsanā  
+ravi pragaṭaho uni tvaritaghāla vī ālasā  
+tasāguruhisoḍavī sakala duśhkrutī lālasā  
+haroni abhimānahī jaḍavi tatpadībhāvanā  
+samardha gurusāyinādha puravī manovāsanā  
+gurūsi upamādisevidhi harī harāñchī^^uṇī  
+kuṭhoni mag e^^itī kavani yā ugīpāhūṇi  
+tujhīcha upamātulābaraviśobhate sajjanā  
+samardha gurusāyinādha puravī manovāsanā  
+samādhi utaroniyā guruchalāmaśīdīkaḍe  
+tvadīya vachanoktitī madhura vāritīsokaḍe  
+ajātaripu sadguro akhila pātaka bhañjanā  
+samardha gurusāyinādhapura vī manovāsanā  
+ahāsusamayāsiyā guru uṭhoniyā baisale  
+vilokuni padāśritā tadiya āpade nāsile  
+āsāsuta kāriyā jagatikoṇīhī anyanā  
+asebahutaśāhaṇā parinajyāgurūchīkrupā  
+natatrvahita tyākaḻekaritase rikāmyā gapā  
+jarīgurupadādharanīsudruḍa bhaktinetomanā  
+samardha gurusāyinādhapura vī manovāsanā  
+gurovinati mīkarī hrudaya mandirī yābasā  
+samasta jag he gurusvarūpachi ṭhasomānasā  
+gaḍosatata satkṛ^^atīyatihide jagatpāvanā  
+samardha gurusāyinādhapura vī manovāsanā  
+11.prameyā aśhṭakāśīphaḍuni guruvarā prārdhitījeprabhāti  
+tyāñchechittāsideto akhilaharuniyā bhrāntiminityaśānti  
+aise hesāyinādhekadhunī suchavile jeviyābālakāśī  
+tevityākruśhṇapāyī namuni savinaye arpito aśhṭakāśī  
+śrī sachchidānanda sadguru sāyinādh mahārāj kī jai  
+12.sāyirahaṃ najar karanā bachchokāpālan karanā  
+sāyirahaṃ najar karanā bachchokāpālan karanā  
+jānātumane jagatprasārā sabahījhūṭ jamānā  
+jānātumane jagatprasārā sabahījhūṭ jamānā  
+sāyirahaṃ najar karanā bachchokāpālan karanā  
+sāyirahaṃ najar karanā bachchokāpālan karanā  
+mai andhāhūbandā āpakāmujhuse prabhudikhalānā  
+mai andhāhūbandā āpakāmujhuse prabhudikhalānā  
+sāyirahaṃ najar karanā bachchokāpālan karanā  
+sāyirahaṃ najar karanā bachchokāpālan karanā  
+dāsagaṇūkahe ab kyābolū dhak gayī merī rasanā  
+dāsagaṇūkahe ab kyābolū dhak gayī merī rasanā  
+sāyirahaṃ najar karanā bachchokāpālan karanā  
+sāyirahaṃ najar karanā bachchokāpālan karanā  
+rāṃ najar karo , ab moresāyī  
+tumabīna nahīmujhe mābāp bhāyī - rāṃ najar karo  
+mai andhāhū bandā tumhārā - mai andhāhū bandā tumhārā  
+mainājānū,mainājānū - mainājānū - allā^^ilāhi  
+rāṃ najar karo rāṃ najar karo , ab moresāyī  
+tumabīna nahīmujhe mābāp bhāyī - rāṃ najar karo  
+rāṃ najar karo rāṃ najar karo  
+khālī jamānā maine gamāyā maine gamāyā  
+sādhī^^akhir kā sādhī^^akhir ā - sādhī^^akhir kā kīyānakoyī  
+rāṃ najar karo rāṃ najar karo , ab moresāyī  
+tumabīna nahīmujhe mābāp bhāyī  
+rāṃ najar karo rāṃ najar karo  
+ap nemas jid kā jāḍūganūhai  
+ap nemas jid kā jāḍūganūhai  
+mālik hamāre mālik hamāre  
+mālik hamāre - tuṃ bābāsāyī  
+rāṃ najar karo rāṃ najar karo , ab moresāyī  
+rāṃ najar karo rāṃ najar karo  
+14.tujakāyade^^u sāvaḻya mībhāyātariyo  
+tujakāyade^^u sāvaḻya mībhāyātariyo  
+mīdubaḻi baṭika nāmyā chijāṇa śrīharī  
+mīdubaḻi baṭika nāmyā chijāṇa śrīharī  
+uchchiśhṭa tulādeṇehi gośhṭa nābari yo  
+uchchiśhṭa tulādeṇehi gośhṭa nābari  
+tū jagannādh tujache kaśīrebhākari  
+tū jagannādh tujache kaśīrebhākari  
+nako antamadīyā pāhū sakhyābhagavantā śrīkāntā  
+madhyāhnarātri ulaṭonige lihi ātā aṇachittā  
+jaho īl tujhūrekākaḍā kirā uḻatariyo  
+jaho īl tujhūrekākaḍā kirā uḻatari  
+aṇatīl bhakta naivedyahi nānāpari - aṇatīl bhakta naivedyahi nānāparī  
+tujakāyade^^u mibhāyā tariyo  
+yujakāyade^^u sadguru mībhāyā tarī  
+mīdubaḻi baṭika nāmyā chijāṇa śrīharī  
+mīdubaḻi baṭika nāmyā chijāṇa śrīharī.  
+śrīsadguru bābāsāyī ho - śrīsadguru bābāsāyī  
+tujavāchuni āśrayanāhībhūtalī - tujavāchuni āśrayanāhībhūtalī  
+mī pāpipatitadhīmantā - mī pāpipatitadhīmantā  
+tāraṇemalā gurunādhā jhuḍakarī - tāraṇemalā sāyinādhā jhuḍakarī  
+tūśāntikśhamechāmerū - tūśāntikśhamechāmerū  
+tumi bhavārṇa vichetārū guruvarā  
+tumi bhavārṇa vichetārū guruvarā  
+guruvarāmajasi pāmarā atā uddarā  
+tvaritalavalāhī tvarita lalāhī  
+mībuḍato bhava bhaya ḍohī uddarā  
+śrī sadguru bābāsāyī ho - śrī sadguru bābāsāyī ho  
+tujavāchuni āśrayanāhībhūtalī  
+tujavāchuni āśrayanāhībhūtalī  
+śrī sachchidānanda sadguru sāyinādh mahārāj kī jai  
+rājādhirājayogirāja parabrahma sāyinādh maharāj  
+śrī sachchidānanda sadguru sāyinādh mahārāj kī jai  
+### PlainEnglish
+
+#### shhiriDi saayi baabaa praataHkaala aarati - kaakaDa aarati
+
+shree sachchidaanaMda samardha sadguru saayinaadha maharaaj kee jai.  
+1. joDoo niyaakaracharaNi Thevilaamaadhaa  
+parisaavee vinaMtee maajhee paMDareenaadhaa  
+asonaso bhaavaa^^aalo - toojhiyaaThaayaa  
+krupaadrushhTipaahe majakaDe - sadgurooraayaa  
+akhaMDita asaave^^ise - vaaTatepaayee  
+tukaahmaNe devaamaajhee veDeevaakuDee  
+naame bhavapaash haati - aapulyaatoDee  
+2.uThaapaaMDuraMgaa ataa prabhaata samayo paatalaa ❘  
+vaishhNavaaMchaa meLaa garuDa-paaree daaTalaa ‖
+
+garooDaapaaraa paasunee mahaa dvaaraa paryaMtaa ❘  
+suravaraaMchee maaMdee ubhee joDooni haat  
+shukasanakaadika naaradatuMbara bhaktaaMchyaakoTee  
+trishoolaDhamaroo ghe^^uni ubhaa girijechaapatee  
+kaliyugeechaa bhaktaanaamaa ubhaakeertanee  
+paaTheemaage ubheeDolaa laavuni^^u^^aajanee  
+3.uThaa uThaa shreesaayinaadhagurucharaNakamala daavaa  
+aadhivyaadi bhavataapa vaarunee taaraa jaDajeevaa  
+geleetuhmaa soDu niyaabhava tamara rajaneevilayaa  
+parihee anyaanaasee tamachee bhulaviyogamaayaa  
+shaktina ahmaayatkiMchit hee ti jalaasaaraayaa  
+tuhmeech teetesaaruni daavaa mukhajanataaraayaa  
+agnyaanee ahmeekiti tava varNaaveetavadhoravee  
+teevarNitaabhaa gale bahuvadanisheshha vidhakavee  
+sakrupaho^^uni mahimaatumachaa tuhmeechavadavaavaa  
+aadivyaadhibhava taapavaaruni taaraajaDajeevaa  
+uThaa uThaa shreesaayinaadhagurucharaNakamala daavaa  
+aadivyaadhibhava taapavaaruni taaraajaDajeevaa  
+bhaktamanisadbhaava dharunije tuhmaa^^anusarale  
+dhyaayaastavate darshnatumache dvaari ubeThele  
+dhyaanasdhaa tuhmaasa paahunee mana amucheghele  
+ukhaDuneenetrakamalaa deenabaMdhooramaakaaMtaa  
+paahibaakrupaadrusTee baalakaajasee maataa  
+raMjaveemadhuravaaNee haritaap saayinaadhaa  
+ahmich apulekariyaastavatujakashhTavitodevaa  
+sahanakarishil.e ikuvidyaavee bheT krushhNadaavaa  
+uThaa uThaa shreesaayinaadhagurucharaNakamala daavaa  
+aadivyaadhi bhavataapavaaruni taaraajaDajeevaa  
+4.uThaa uThaa paaDuraMgaa aataa - darshanadyaasakaLaa  
+jhoolaa aruNodayaasaralee-nidrech.eveLaa  
+saMtasaadhoomunee avaghe jhooleteegoLaa  
+soDaasheje sukh aataa bahujaamukhakamalaa  
+raMgamaMDape mahaadvaaree jhooleesedaaTee  
+mana u taaveeLaroopa pahavayaadrushhTee  
+raayirakhumaabaayi tuhmaaye oodyaadayaa  
+sheje haalavunee jaage kaaraadevaraayaa  
+garooDa hanumaMta hubhe paahaateevaaT  
+svargeeche suravaraghe uni aalebhobhaaT  
+jhoole mukta dvaaraa laabh jhoolaarokaDaa  
+vishhNudaas naama ubhaa ghe unikaakaDa  
+5.ghe^^uniyaa paMchaaratee karoobaabaasee aaratee  
+uThaa^^uThaaho baaMdhava ovaaLu haramaadhava  
+karooniyaa sdhiraamana paahugaMbheeraahedhyaana  
+krushhNanaadhaa dattasaayi jaaD.ochitta tujhepaayee  
+kaakaDa aaratee kareeto! saayinaadha devaa  
+chinmayaroopa daakhavee ghe uni! baalakalaghu sevaa 
+‖kaa‖
+
+6.kaamakrodhamadamatsara aaTuni kaakaDakelaa  
+vairaagyaache toov kaaDhunee meeto bijiveelaa  
+saayinaadhaguru bhakti jvaline tomeepeTavilaa  
+tadrvutteejaaLunee gurune praakaashapaaDilaa  
+dvaitatamaanaasuneemiLavee tatsyaroopi jeevaa  
+chinmayaroopadaakhavee ghe^^unibaalakalaghu sevaa  
+kaakaDa aarateekareeto saayinaadha devaa  
+chinmayaaroopadaakhavee ghe uni baalakalaghu sevaa  
+bhoo khechara vyaapoonee avaghe hrutkamaleeraahasee  
+tochee dattadeva shiriDee raahuni paavasee  
+raahuniyedhe anyasradhahi too bhaktaastavadhaavasee  
+nirasuni yaa saMkaTaadaasaa anibhava daaveesee  
+nakaletvallee laaheekoNyaa devaavaa maanavaa  
+chinmayaroopadaakhavee ghe uni baalakaghusevaa  
+kaakaDa aarateekareeto saayinaadha devaa  
+chinmayaroopadaakhavee ghe uni baalakaghusevaa  
+tvadRReeshyaduMdubhinesaare aMbar he koMdale  
+saguNamoortee paahaNyaa aatura janashiriDee aale!  
+praashuni tadvachanaamruta amuchedehabaan haraphale  
+soDuniyaadurabhimaana maanasa tvachcharaNi vaahile  
+krupaakarunee saayimaavule daanapadarighyaavaa  
+chinmayaroopadaakhavee ghe uni baalakaghu sevaa  
+kaakaDa aarateekareeto saayinaadha devaa  
+chinmayaroopadaakhavee ghe uni baalakaghusevaa.  
+bhakteechiyaa poTeebod kaakaDa jyotee  
+paMchapraaNajeeve bhaave ovaaLu aaratee  
+ovaaLoo aarateemaajhyaa paMDareenaadhaa maajhyaasaayinaadhaa  
+donee karajoDunicharaNee Thevilaamaadhaa  
+kaayaamahimaa varNoo aataa saaMgaNekeetee  
+koTibrahma hatyamukha paahataa jaatee  
+raayeerakhumaabaayee ubhyaa dogheedobaahee  
+maayoorapiMcha chaamareDaaLeeti saayeeMcha Thaayi  
+tukaahmaNe deepaghe uni unmaneetashobhaa  
+viThevaree ubaadise laavaNyaa gaabhaa  
+uThaasaadusaMtasaadaa aapulaale hitaa  
+jaa^^eel jaa^^eel hanaradeha magakaichaa bhagavaMta  
+uThoniyaa pahaTebaabaa ubhaa aseveeTe  
+charaNatayaaMchegomaTee amruta drushhTee avalokaa  
+uThaa^^uThaa hovegeseechalaa ja^^ooraa^^uLaasee  
+jalatilapaatakaan chyaaraashee kaakaDa aaratidekhiliyaa  
+jaagekaraarukmiNeevaraa deva ahenijasuraan ta  
+vegeliMbaloN karaa-drushhTi ho eel tayaasee  
+daareebaajaMtree vaajatee Dolu Damaame garjatee  
+hotasekaakaDaarati maajhyaa sadguru raayachee  
+siMhanaadha shaMkha beri aanaMdahotomahaadvaaree  
+keshavaraaja viThevaree naamaacharaNa vaMdito  
+saayinaadha gurumaajhe aayee  
+majalaa Thaavaa dyaavaapaayee  
+shree sachchidaanaMda sadguru saayinaadh mahaaraaj kee jai  
+dattaraaja gurumaajhe aayee  
+majalaa Thaavaa dyaavaapaayee  
+saayinaadha gurumaajhe aayee  
+majalaa Thaavaa dyaavaapaayee  
+prabhaata samayeenabhaa shubha ravee prabhaapaakalee  
+smare guru sadaa ashaasamayeetyaaChaLe naakalee  
+hmaNonikarajoDuneekaru ataaguroo praardhanaa  
+samardha gurusaayinaadha puravee manovaasanaa  
+tamaa nirasi bhaanuhaguruhi naasi agnyaanataa  
+paraMtuguru cheekaree naraviheekadee saamyataa  
+pun haatimira janmaghe gurukrupeni agnyananaa  
+samardha gurusaayinaadha puravee manovaasanaa  
+ravi pragaTaho uni tvaritaghaala vee aalasaa  
+tasaaguruhisoDavee sakala dushhkrutee laalasaa  
+haroni abhimaanahee jaDavi tatpadeebhaavanaa  
+samardha gurusaayinaadha puravee manovaasanaa  
+guroosi upamaadisevidhi haree haraaMchee^^uNee  
+kuThoni mag e^^itee kavani yaa ugeepaahooNi  
+tujheecha upamaatulaabaravishobhate sajjanaa  
+samardha gurusaayinaadha puravee manovaasanaa  
+samaadhi utaroniyaa guruchalaamasheedeekaDe  
+tvadeeya vachanoktitee madhura vaariteesokaDe  
+ajaataripu sadguro akhila paataka bhaMjanaa  
+samardha gurusaayinaadhapura vee manovaasanaa  
+ahaasusamayaasiyaa guru uThoniyaa baisale  
+vilokuni padaashritaa tadiya aapade naasile  
+aasaasuta kaariyaa jagatikoNeehee anyanaa  
+asebahutashaahaNaa parinajyaaguroocheekrupaa  
+natatrvahita tyaakaLekaritase rikaamyaa gapaa  
+jareegurupadaadharaneesudruDa bhaktinetomanaa  
+samardha gurusaayinaadhapura vee manovaasanaa  
+gurovinati meekaree hrudaya maMdiree yaabasaa  
+samasta jag he gurusvaroopachi Thasomaanasaa  
+gaDosatata satkRRi^^ateeyatihide jagatpaavanaa  
+samardha gurusaayinaadhapura vee manovaasanaa  
+11.prameyaa ashhTakaasheephaDuni guruvaraa praardhiteejeprabhaati  
+tyaaMchechittaasideto akhilaharuniyaa bhraaMtiminityashaaMti  
+aise hesaayinaadhekadhunee suchavile jeviyaabaalakaashee  
+tevityaakrushhNapaayee namuni savinaye arpito ashhTakaashee  
+shree sachchidaanaMda sadguru saayinaadh mahaaraaj kee jai  
+12.saayirahaM najar karanaa bachchokaapaalan karanaa  
+saayirahaM najar karanaa bachchokaapaalan karanaa  
+jaanaatumane jagatprasaaraa sabaheejhooT jamaanaa  
+jaanaatumane jagatprasaaraa sabaheejhooT jamaanaa  
+saayirahaM najar karanaa bachchokaapaalan karanaa  
+saayirahaM najar karanaa bachchokaapaalan karanaa  
+mai aMdhaahoobaMdaa aapakaamujhuse prabhudikhalaanaa  
+mai aMdhaahoobaMdaa aapakaamujhuse prabhudikhalaanaa  
+saayirahaM najar karanaa bachchokaapaalan karanaa  
+saayirahaM najar karanaa bachchokaapaalan karanaa  
+daasagaNookahe ab kyaaboloo dhak gayee meree rasanaa  
+daasagaNookahe ab kyaaboloo dhak gayee meree rasanaa  
+saayirahaM najar karanaa bachchokaapaalan karanaa  
+saayirahaM najar karanaa bachchokaapaalan karanaa  
+raaM najar karo , ab moresaayee  
+tumabeena naheemujhe maabaap bhaayee - raaM najar karo  
+mai aMdhaahoo baMdaa tumhaaraa - mai aMdhaahoo baMdaa tumhaaraa  
+mainaajaanoo,mainaajaanoo - mainaajaanoo - allaa^^ilaahi  
+raaM najar karo raaM najar karo , ab moresaayee  
+tumabeena naheemujhe maabaap bhaayee - raaM najar karo  
+raaM najar karo raaM najar karo  
+khaalee jamaanaa maine gamaayaa maine gamaayaa  
+saadhee^^akhir kaa saadhee^^akhir aa - saadhee^^akhir kaa keeyaanakoyee  
+raaM najar karo raaM najar karo , ab moresaayee  
+tumabeena naheemujhe maabaap bhaayee  
+raaM najar karo raaM najar karo  
+ap nemas jid kaa jaaDooganoohai  
+ap nemas jid kaa jaaDooganoohai  
+maalik hamaare maalik hamaare  
+maalik hamaare - tuM baabaasaayee  
+raaM najar karo raaM najar karo , ab moresaayee  
+raaM najar karo raaM najar karo  
+14.tujakaayade^^u saavaLya meebhaayaatariyo  
+tujakaayade^^u saavaLya meebhaayaatariyo  
+meedubaLi baTika naamyaa chijaaNa shreeharee  
+meedubaLi baTika naamyaa chijaaNa shreeharee  
+uchchishhTa tulaadeNehi goshhTa naabari yo  
+uchchishhTa tulaadeNehi goshhTa naabari  
+too jagannaadh tujache kasheerebhaakari  
+too jagannaadh tujache kasheerebhaakari  
+nako aMtamadeeyaa paahoo sakhyaabhagavaMtaa shreekaaMtaa  
+madhyaahnaraatri ulaTonige lihi aataa aNachittaa  
+jaho eel tujhoorekaakaDaa kiraa uLatariyo  
+jaho eel tujhoorekaakaDaa kiraa uLatari  
+aNateel bhakta naivedyahi naanaapari - aNateel bhakta naivedyahi naanaaparee  
+tujakaayade^^u mibhaayaa tariyo  
+yujakaayade^^u sadguru meebhaayaa taree  
+meedubaLi baTika naamyaa chijaaNa shreeharee  
+meedubaLi baTika naamyaa chijaaNa shreeharee.  
+shreesadguru baabaasaayee ho - shreesadguru baabaasaayee  
+tujavaachuni aashrayanaaheebhootalee - tujavaachuni aashrayanaaheebhootalee  
+mee paapipatitadheemaMtaa - mee paapipatitadheemaMtaa  
+taaraNemalaa gurunaadhaa jhuDakaree - taaraNemalaa saayinaadhaa jhuDakaree  
+tooshaaMtikshhamechaameroo - tooshaaMtikshhamechaameroo  
+tumi bhavaarNa vichetaaroo guruvaraa  
+tumi bhavaarNa vichetaaroo guruvaraa  
+guruvaraamajasi paamaraa ataa uddaraa  
+tvaritalavalaahee tvarita lalaahee  
+meebuDato bhava bhaya Dohee uddaraa  
+shree sadguru baabaasaayee ho - shree sadguru baabaasaayee ho  
+tujavaachuni aashrayanaaheebhootalee  
+tujavaachuni aashrayanaaheebhootalee  
+shree sachchidaanaMda sadguru saayinaadh mahaaraaj kee jai  
+raajaadhiraajayogiraaja parabrahma saayinaadh maharaaj  
+shree sachchidaanaMda sadguru saayinaadh mahaaraaj kee jai  

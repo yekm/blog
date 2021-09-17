@@ -289,3 +289,47 @@ virivaina dadivo shree veMkaTapu g.oMDa ‖
 కురిసి సంపదలెల్ల గుహల నిండిన కొండ  
 విరివైన దదివో శ్రీ వేంకటపు గొండ ‖  
 
+### English
+
+#### annamayya kīrtana kaṭṭedura vaikuṇṭhamu
+
+kaṭṭedura vaikuṇṭhamu kāṇāchayina koṇḍa  
+teṭṭalāya mahimale tirumala koṇḍa ‖
+
+vedamule śilalai velasinadi koṇḍa  
+yedesa buṇyarāsule yerulainadi koṇḍa ❘  
+gādili brahmādi lokamula konalu koṇḍa  
+śrīdevu ḍuṇḍeṭi śeśhādri koṇḍa ‖
+
+sarvadevatalu mṛgajātulai chariñche koṇḍa  
+nirvahiñchi jaladhule niṭṭacharulaina koṇḍa ❘  
+vurvi dapasule taruvulai nilachina koṇḍa  
+pūrva ṭañjanādri yī poḍavāṭi koṇḍa ‖
+
+varamulu koṭārugā vakkāṇiñchi peñche koṇḍa  
+paragu lakśhmīkāntu sobanapu goṇḍa ❘  
+kurisi sampadalella guhala niṇḍina koṇḍa  
+virivaina dadivo śrī veṅkaṭapu goṇḍa ‖
+
+### PlainEnglish
+
+#### annamayya keertana kaTT.edura vaikuMThamu
+
+kaTT.edura vaikuMThamu kaaNaachayina k.oMDa  
+t.eTTalaaya mahimale tirumala k.oMDa ‖
+
+vedamule shilalai v.elasinadi k.oMDa  
+yed.esa buNyaraasule yerulainadi k.oMDa ❘  
+gaadili brahmaadi lokamula k.onalu k.oMDa  
+shreedevu DuMDeTi sheshhaadri k.oMDa ‖
+
+sarvadevatalu mRRigajaatulai chariMche k.oMDa  
+nirvahiMchi jaladhule niTTacharulaina k.oMDa ❘  
+vurvi dapasule taruvulai nilachina k.oMDa  
+poorva TaMjanaadri yee p.oDavaaTi k.oMDa ‖
+
+varamulu k.oTaarugaa vakkaaNiMchi p.eMche k.oMDa  
+paragu lakshhmeekaaMtu sobanapu g.oMDa ❘  
+kurisi saMpadal.ella guhala niMDina k.oMDa  
+virivaina dadivo shree veMkaTapu g.oMDa ‖
+

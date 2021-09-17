@@ -627,3 +627,125 @@ shree padmaavatee sameta shree shreenivaasa parabrahmaNe namaH
 
 శ్రీ పద్మావతీ సమేత శ్రీ శ్రీనివాస పరబ్రహ్మణే నమః  
 
+### English
+
+#### śrī veṅkaṭeśa maṅgaḻāśāsanam
+
+śriyaḥ kāntāya kalyāṇanidhaye nidhayearthinām ❘  
+śrīveṅkaṭa nivāsāya śrīnivāsāya maṅgaḻam 
+‖ 1 ‖
+
+lakśhmī savibhramāloka subhrū vibhrama chakśhuśhe ❘  
+chakśhuśhe sarvalokānāṃ veṅkaṭeśāya maṅgaḻam 
+‖ 2 ‖
+
+śrīveṅkaṭādri śṛṅgāgra maṅgaḻābharaṇāṅghraye ❘  
+maṅgaḻānāṃ nivāsāya śrīnivāsāya maṅgaḻam 
+‖ 3 ‖
+
+sarvāvaya saundarya sampadā sarvachetasām ❘  
+sadā sammohanāyāstu veṅkaṭeśāya maṅgaḻam 
+‖ 4 ‖
+
+nityāya niravadyāya satyānanda chidātmane ❘  
+sarvāntarātmane śīmad-veṅkaṭeśāya maṅgaḻam 
+‖ 5 ‖
+
+svata ssarvavide sarva śaktaye sarvaśeśhiṇe ❘  
+sulabhāya suśīlāya veṅkaṭeśāya maṅgaḻam 
+‖ 6 ‖
+
+parasmai brahmaṇe pūrṇakāmāya paramātmane ❘  
+prayuñje paratattvāya veṅkaṭeśāya maṅgaḻam 
+‖ 7 ‖
+
+ākālatattva maśrānta mātmanā manupaśyatām ❘  
+atṛptyamṛta rūpāya veṅkaṭeśāya maṅgaḻam 
+‖ 8 ‖
+
+prāyaḥ svacharaṇau puṃsāṃ śaraṇyatvena pāṇinā ❘  
+kṛpayā''diśate śrīmad-veṅkaṭeśāya maṅgaḻam 
+‖ 9 ‖
+
+dayā'mṛta taraṅgiṇyā staraṅgairiva śītalaiḥ ❘  
+apāṅgai ssiñchate viśvaṃ veṅkaṭeśāya maṅgaḻam 
+‖ 10 ‖
+
+srag-bhūśhāmbara hetīnāṃ suśhamā''vahamūrtaye ❘  
+sarvārti śamanāyāstu veṅkaṭeśāya maṅgaḻam 
+‖ 11 ‖
+
+śrīvaikuṇṭha viraktāya svāmi puśhkariṇītaṭe ❘  
+ramayā ramamāṇāya veṅkaṭeśāya maṅgaḻam 
+‖ 12 ‖
+
+śrīmat-sundarajā mātṛmuni mānasavāsine ❘  
+sarvaloka nivāsāya śrīnivāsāya maṅgaḻam 
+‖ 13 ‖
+
+maṅgaḻā śāsanaparair-madāchārya purogamaiḥ ❘  
+sarvaiścha pūrvairāchāryaiḥ satkṛtāyāstu maṅgaḻam 
+‖ 14 ‖
+
+śrī padmāvatī sameta śrī śrīnivāsa parabrahmaṇe namaḥ  
+### PlainEnglish
+
+#### shree veMkaTesha maMgaLaashaasanam
+
+shriyaH kaaMtaaya kalyaaNanidhaye nidhaye.arthinaam ❘  
+shreeveMkaTa nivaasaaya shreenivaasaaya maMgaLam 
+‖ 1 ‖
+
+lakshhmee savibhramaaloka subhroo vibhrama chakshhushhe ❘  
+chakshhushhe sarvalokaanaaM veMkaTeshaaya maMgaLam 
+‖ 2 ‖
+
+shreeveMkaTaadri shRRiMgaagra maMgaLaabharaNaaMghraye ❘  
+maMgaLaanaaM nivaasaaya shreenivaasaaya maMgaLam 
+‖ 3 ‖
+
+sarvaavaya sauMdarya saMpadaa sarvachetasaam ❘  
+sadaa sammohanaayaastu veMkaTeshaaya maMgaLam 
+‖ 4 ‖
+
+nityaaya niravadyaaya satyaanaMda chidaatmane ❘  
+sarvaaMtaraatmane sheemad-veMkaTeshaaya maMgaLam 
+‖ 5 ‖
+
+svata ssarvavide sarva shaktaye sarvasheshhiNe ❘  
+sulabhaaya susheelaaya veMkaTeshaaya maMgaLam 
+‖ 6 ‖
+
+parasmai brahmaNe poorNakaamaaya paramaatmane ❘  
+prayuMje paratattvaaya veMkaTeshaaya maMgaLam 
+‖ 7 ‖
+
+aakaalatattva mashraaMta maatmanaa manupashyataam ❘  
+atRRiptyamRRita roopaaya veMkaTeshaaya maMgaLam 
+‖ 8 ‖
+
+praayaH svacharaNau puMsaaM sharaNyatvena paaNinaa ❘  
+kRRipayaa.a.adishate shreemad-veMkaTeshaaya maMgaLam 
+‖ 9 ‖
+
+dayaa.amRRita taraMgiNyaa staraMgairiva sheetalaiH ❘  
+apaaMgai ssiMchate vishvaM veMkaTeshaaya maMgaLam 
+‖ 10 ‖
+
+srag-bhooshhaaMbara heteenaaM sushhamaa.a.avahamoortaye ❘  
+sarvaarti shamanaayaastu veMkaTeshaaya maMgaLam 
+‖ 11 ‖
+
+shreevaikuMTha viraktaaya svaami pushhkariNeetaTe ❘  
+ramayaa ramamaaNaaya veMkaTeshaaya maMgaLam 
+‖ 12 ‖
+
+shreemat-suMdarajaa maatRRimuni maanasavaasine ❘  
+sarvaloka nivaasaaya shreenivaasaaya maMgaLam 
+‖ 13 ‖
+
+maMgaLaa shaasanaparair-madaachaarya purogamaiH ❘  
+sarvaishcha poorvairaachaaryaiH satkRRitaayaastu maMgaLam 
+‖ 14 ‖
+
+shree padmaavatee sameta shree shreenivaasa parabrahmaNe namaH  

@@ -328,3 +328,49 @@ shreemaadhavaa ne needaasuDa shreeveMkaTeshuDavayyaa ‖
 శ్రీమాధవా నే నీదాసుడ శ్రీవేంకటేశుడవయ్యా ‖  
 
 
+### English
+
+#### annamayya kīrtana dāchuko nī pādālaku
+
+rāgaṃ: ārabhi  
+dāchuko nīpādālakudaga ne jesinapūja livi ❘  
+pūchi nīkīrītirūpapuśhpamu livi yayyā ‖
+
+vokka saṅkīrtane chālu voddikai mammu rakśhiñchaga ❘  
+takkinavi bhāṇḍārāna dāchi vuṇḍanī ❘  
+vekkasamagunī nāmamu vela sulabhamu phala madhikamu ❘  
+dikkai nanneliti vika navi tīrani nā dhanamayyā ‖
+
+nānālikapainuṇḍi nānāsaṅkīrtanalu ❘  
+pūni nāche ninnu bogaḍiñchitivi ❘  
+venāmāla vennuḍā vinutiñcha nentavāḍa ❘  
+kānimmani nā kīpuṇyamu gaṭṭiti vinteyayyā ‖
+
+yīmāṭa garvamu gādu nī mahime koniyāḍitigāni ❘  
+chemuñchi nāsvātantryamu cheppinavāḍagānu ❘  
+nemāna bāḍevāḍanu neramu leñchakumī ❘  
+śrīmādhavā ne nīdāsuḍa śrīveṅkaṭeśuḍavayyā ‖
+
+### PlainEnglish
+
+#### annamayya keertana daachuko nee paadaalaku
+
+raagaM: aarabhi  
+daachuko neepaadaalakudaga ne jesinapooja livi ❘  
+poochi neekeereetiroopapushhpamu livi yayyaa ‖
+
+v.okka saMkeertan.e chaalu v.oddikai mammu rakshhiMchaga ❘  
+takkinavi bhaaMDaaraana daachi vuMDanee ❘  
+v.ekkasamagunee naamamu v.ela sulabhamu phala madhikamu ❘  
+dikkai nanneliti vika navi teerani naa dhanamayyaa ‖
+
+naanaalikapainuMDi naanaasaMkeertanalu ❘  
+pooni naache ninnu b.ogaDiMchitivi ❘  
+venaamaala v.ennuDaa vinutiMcha n.eMtavaaDa ❘  
+kaanimmani naa keepuNyamu gaTTiti viMteyayyaa ‖
+
+yeemaaTa garvamu gaadu nee mahime k.oniyaaDitigaani ❘  
+chemuMchi naasvaataMtryamu ch.eppinavaaDagaanu ❘  
+nemaana baaDevaaDanu neramu l.eMchakumee ❘  
+shreemaadhavaa ne needaasuDa shreeveMkaTeshuDavayyaa ‖
+

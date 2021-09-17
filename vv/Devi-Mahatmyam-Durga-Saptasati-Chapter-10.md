@@ -1329,3 +1329,273 @@ jajvalushcaagnayaH shaantaaH shaantadigjanitasvanaaH‖32‖
  **ఆహుతి  
 ** ఓం క్లీం జయంతీ సాంగాయై సశక్తికాయై సపరివారాయై సవాహనాయై కామేశ్వర్యై మహాహుతిం సమర్పయామి నమః స్వాహా ‖  
 
+### English
+
+#### devī mahātmyam durgā saptaśati daśamoadhyāyaḥ
+
+śumbhovadho nāma daśamoadhyāyaḥ ‖
+
+ṛśhiruvāca
+‖1‖
+
+niśumbhaṃ nihataṃ dṛśhṭvā bhrātaramprāṇasammitaṃ❘  
+hanyamānaṃ balaṃ caiva śumbaḥ kṛddhoabravīdvacaḥ     
+‖ 2 ‖
+
+balāvalepaduśhṭe tvaṃ mā durge garva māvaha❘  
+anyāsāṃ balamāśritya yuddyase cātimāninī   
+‖3‖
+
+devyuvāca   
+‖4‖
+
+ekaivāhaṃ jagatyatra dvitīyā kā mamāparā❘  
+paśyaitā duśhṭa mayyeva viśantyo madvibhūtayaḥ   
+‖5‖
+
+tataḥ samastāstā devyo brahmāṇī pramukhālayam❘  
+tasyā devyāstanau jagmurekaivāsīttadāmbikā   
+‖6‖
+
+devyuvāca   
+‖6‖
+
+ahaṃ vibhūtyā bahubhiriha rūpairyadāsthitā❘  
+tatsaṃhṛtaṃ mayaikaiva tiśhṭāmyājau sthiro bhava   
+‖8‖
+
+ṛśhiruvāca   
+‖9‖
+
+tataḥ pravavṛte yuddhaṃ devyāḥ śumbhasya cobhayoḥ❘  
+paśyatāṃ sarvadevānāṃ asurāṇāṃ ca dāruṇam   
+‖10‖
+
+śara varśhaiḥ śitaiḥ śastraistathā cāstraiḥ sudāruṇaiḥ❘  
+tayoryuddamabhūdbhūyaḥ sarvalokabhayaGYkaram   
+‖11‖
+
+divyānyaśtrāṇi śataśo mumuce yānyathāmbikā❘  
+babhaGYa tāni daityendrastatpratīghātakartṛbhiḥ   
+‖12‖
+
+muktāni tena cāstrāṇi divyāni parameśvarī❘  
+babhañja līlayaivogra hūjkāroccāraṇādibhiḥ
+‖13‖
+
+tataḥ śaraśatairdevīṃ āccādayata soasuraḥ❘  
+sāpi tatkupitā devī dhanuściChceda ceśhubhiḥ
+‖14‖
+
+cinne dhanuśhi daityendrastathā śaktimathādade❘  
+ciChceda devī cakreṇa tāmapyasya karesthitām
+‖15‖
+
+tataḥ khaḍga mupādāya śata candraṃ ca bhānumat❘  
+abhyadhāvattadā devīṃ daityānāmadhipeśvaraḥ
+‖16‖
+
+tasyāpatata evāśu khaḍgaṃ cicCheda caṇḍikā❘  
+dhanurmuktaiḥ śitairbāṇaiścarma cārkakarāmalam
+‖17‖
+
+hatāśvaḥ patata evāśu khaḍgaṃ chiChcheda chaṇḍikā❘  
+jagrāha mudgaraṃ ghoraṃ ambikānidhanodyataḥ
+‖18‖
+
+cicChedāpatatastasya mudgaraṃ niśitaiḥ śaraiḥ❘  
+tathāpi soabhyadhāvattaṃ muśhṭimudyamyavegavān
+‖19‖
+
+sa muśhṭiṃ pātayāmāsa hṛdaye daitya puṅgavaḥ❘  
+devyāstaṃ cāpi sā devī tale no rasya tāḍayat
+‖20‖
+
+talaprahārābhihato nipapāta mahītale❘  
+sa daityarājaḥ sahasā punareva tathotthitaḥ
+‖21‖
+
+utpatya ca pragṛhyoccair devīṃ gaganamāsthitaḥ❘  
+tatrāpi sā nirādhārā yuyudhe tena caṇḍikā
+‖22‖
+
+niyuddhaṃ khe tadā daitya ścaṇḍikā ca parasparam❘  
+cakratuḥ pradhamaṃ siddha munivismayakārakam
+‖23‖
+
+tato niyuddhaṃ suciraṃ kṛtvā tenāmbikā saha❘  
+utpāṭya bhrāmayāmāsa cikśhepa dharaṇītale
+‖24‖
+
+sakśhiptodharaṇīṃ prāpya muśhṭimudyamya vegavān❘  
+abhyadhāvata duśhṭātmā caṇḍikānidhanecChayā
+‖25‖
+
+tamāyantaṃ tato devī sarvadaityajaneśarvam❘  
+jagatyāṃ pātayāmāsa bhitvā śūlena vakśhasi
+‖26‖
+
+sa gatāsuḥ papātorvyāṃ devīśūlāgravikśhataḥ❘  
+cālayan sakalāṃ pṛthvīṃ sābdidvīpāṃ saparvatām   
+‖27‖
+
+tataḥ prasanna makhilaṃ hate tasmin durātmani❘  
+jagatsvāsthyamatīvāpa nirmalaṃ cābhavannabhaḥ     
+‖28‖
+
+utpātameghāḥ solkā yeprāgāsaṃste śamaṃ yayuḥ❘  
+sarito mārgavāhinyastathāsaṃstatra pātite   
+‖29‖
+
+tato deva gaṇāḥ sarve harśha nirbharamānasāḥ❘  
+babhūvurnihate tasmin gandarvā lalitaṃ jaguḥ
+‖30‖
+
+avādayaṃ stathaivānye nanṛtuścāpsarogaṇāḥ❘  
+vavuḥ puṇyāstathā vātāḥ suprabhoa bhūddhivākaraḥ
+‖31‖
+
+jajvaluścāgnayaḥ śāntāḥ śāntadigjanitasvanāḥ
+‖32‖
+
+
+‖ svasti śrī mārkaṇḍeya purāṇe sāvarnikemanvantare devi mahatmye śumbhovadho nāma daśamo dhyāyaḥ samāptaṃ ‖
+
+āhuti  
+oṃ klīṃ jayantī sāṅgāyai saśaktikāyai saparivārāyai savāhanāyai kāmeśvaryai mahāhutiṃ samarpayāmi namaḥ svāhā ‖
+
+### PlainEnglish
+
+#### devee mahaatmyam durgaa saptashati dashamo.adhyaayaH
+
+shumbhovadho naama dashamo.adhyaayaH ‖
+
+RRishhiruvaaca
+‖1‖
+
+nishumbhaM nihataM dRRishhTvaa bhraataraMpraaNasammitaM❘  
+hanyamaanaM balaM caiva shumbaH kRRiddho.abraveedvacaH     
+‖ 2 ‖
+
+balaavalepadushhTe tvaM maa durge garva maavaha❘  
+anyaasaaM balamaashritya yuddyase caatimaaninee   
+‖3‖
+
+devyuvaaca   
+‖4‖
+
+ekaivaahaM jagatyatra dviteeyaa kaa mamaaparaa❘  
+pashyaitaa dushhTa mayyeva vishantyo madvibhootayaH   
+‖5‖
+
+tataH samastaastaa devyo brahmaaNee pramukhaalayam❘  
+tasyaa devyaastanau jagmurekaivaaseettadaambikaa   
+‖6‖
+
+devyuvaaca   
+‖6‖
+
+ahaM vibhootyaa bahubhiriha roopairyadaasthitaa❘  
+tatsaMhRRitaM mayaikaiva tishhTaamyaajau sthiro bhava   
+‖8‖
+
+RRishhiruvaaca   
+‖9‖
+
+tataH pravavRRite yuddhaM devyaaH shumbhasya cobhayoH❘  
+pashyataaM sarvadevaanaaM asuraaNaaM ca daaruNam   
+‖10‖
+
+shara varshhaiH shitaiH shastraistathaa caastraiH sudaaruNaiH❘  
+tayoryuddamabhoodbhooyaH sarvalokabhayagnykaram   
+‖11‖
+
+divyaanyashtraaNi shatasho mumuce yaanyathaambikaa❘  
+babhagnya taani daityendrastatprateeghaatakartRRibhiH   
+‖12‖
+
+muktaani tena caastraaNi divyaani parameshvaree❘  
+babhanja leelayaivogra hoojkaaroccaaraNaadibhiH
+‖13‖
+
+tataH sharashatairdeveeM aaccaadayata so.asuraH❘  
+saapi tatkupitaa devee dhanushciChceda ceshhubhiH
+‖14‖
+
+cinne dhanushhi daityendrastathaa shaktimathaadade❘  
+ciChceda devee cakreNa taamapyasya karesthitaam
+‖15‖
+
+tataH khaDga mupaadaaya shata candraM ca bhaanumat❘  
+abhyadhaavattadaa deveeM daityaanaamadhipeshvaraH
+‖16‖
+
+tasyaapatata evaashu khaDgaM cicCheda caNDikaa❘  
+dhanurmuktaiH shitairbaaNaishcarma caarkakaraamalam
+‖17‖
+
+hataashvaH patata evaashu khaDgaM chiChcheda chaMDikaa❘  
+jagraaha mudgaraM ghoraM ambikaanidhanodyataH
+‖18‖
+
+cicChedaapatatastasya mudgaraM nishitaiH sharaiH❘  
+tathaapi so.abhyadhaavattaM mushhTimudyamyavegavaan
+‖19‖
+
+sa mushhTiM paatayaamaasa hRRidaye daitya pungavaH❘  
+devyaastaM caapi saa devee tale no rasya taaDayat
+‖20‖
+
+talaprahaaraabhihato nipapaata maheetale❘  
+sa daityaraajaH sahasaa punareva tathotthitaH
+‖21‖
+
+utpatya ca pragRRihyoccair deveeM gaganamaasthitaH❘  
+tatraapi saa niraadhaaraa yuyudhe tena caNDikaa
+‖22‖
+
+niyuddhaM khe tadaa daitya shcaNDikaa ca parasparam❘  
+cakratuH pradhamaM siddha munivismayakaarakam
+‖23‖
+
+tato niyuddhaM suciraM kRRitvaa tenaambikaa saha❘  
+utpaaTya bhraamayaamaasa cikshhepa dharaNeetale
+‖24‖
+
+sakshhiptodharaNeeM praapya mushhTimudyamya vegavaan❘  
+abhyadhaavata dushhTaatmaa caNDikaanidhanecChayaa
+‖25‖
+
+tamaayantaM tato devee sarvadaityajanesharvam❘  
+jagatyaaM paatayaamaasa bhitvaa shoolena vakshhasi
+‖26‖
+
+sa gataasuH papaatorvyaaM deveeshoolaagravikshhataH❘  
+caalayan sakalaaM pRRithveeM saabdidveepaaM saparvataam   
+‖27‖
+
+tataH prasanna makhilaM hate tasmin duraatmani❘  
+jagatsvaasthyamateevaapa nirmalaM caabhavannabhaH     
+‖28‖
+
+utpaatameghaaH solkaa yepraagaasaMste shamaM yayuH❘  
+sarito maargavaahinyastathaasaMstatra paatite   
+‖29‖
+
+tato deva gaNaaH sarve harshha nirbharamaanasaaH❘  
+babhoovurnihate tasmin gandarvaa lalitaM jaguH
+‖30‖
+
+avaadayaM stathaivaanye nanRRitushcaapsarogaNaaH❘  
+vavuH puNyaastathaa vaataaH suprabho.a bhooddhivaakaraH
+‖31‖
+
+jajvalushcaagnayaH shaantaaH shaantadigjanitasvanaaH
+‖32‖
+
+
+‖ svasti shree maarkaNDeya puraaNe saavarnikemanvantare devi mahatmye shumbhovadho naama dashamo dhyaayaH samaaptaM ‖
+
+aahuti  
+oM kleeM jayaMtee saaMgaayai sashaktikaayai saparivaaraayai savaahanaayai kaameshvaryai mahaahutiM samarpayaami namaH svaahaa ‖
+

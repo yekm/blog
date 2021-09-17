@@ -302,3 +302,59 @@ sarvarogaharaM divyaM sarvasaMpatkaraM shubham ‖ 6 ‖
 సర్వరోగహరం దివ్యం సర్వసంపత్కరం శుభమ్ ‖ 6 ‖  
 
 
+### English
+
+#### aśhṭādaśa śaktipīṭha stotram
+
+laṅkāyāṃ śāṅkarīdevī kāmākśhī kāñcikāpure ❘  
+pradyumne śṛṅkhaḻādevī cāmuṇḍī krauñcapaṭṭaṇe 
+‖ 1 ‖
+
+alampure joguḻāmbā śrīśaile bhramarāmbikā ❘  
+kolhāpure mahālakśhmī muhurye ekavīrā 
+‖ 2 ‖
+
+ujjayinyāṃ mahākāḻī pīṭhikāyāṃ puruhūtikā ❘  
+oḍhyāyāṃ girijādevī māṇikyā dakśhavāṭike 
+‖ 3 ‖
+
+harikśhetre kāmarūpī prayāge mādhaveśvarī ❘  
+jvālāyāṃ vaiśhṇavīdevī gayā māṅgaḻyagaurikā 
+‖ 4 ‖
+
+vāraṇāśyāṃ viśālākśhī kāśmīretu sarasvatī ❘  
+aśhṭādaśa supīṭhāni yogināmapi durlabhaṃ 
+‖ 5 ‖
+
+sāyaṅkāle paṭhennityaṃ sarvaśatruvināśanaṃ ❘  
+sarvarogaharaṃ divyaṃ sarvasampatkaraṃ śubham 
+‖ 6 ‖
+
+### PlainEnglish
+
+#### ashhTaadasha shaktipeeTha stotram
+
+laMkaayaaM shaaMkareedevee kaamaakshhee kaaMcikaapure ❘  
+pradyumne shRRiMkhaLaadevee caamuMDee krauMcapaTTaNe 
+‖ 1 ‖
+
+alaMpure joguLaaMbaa shreeshaile bhramaraaMbikaa ❘  
+k.olhaapure mahaalakshhmee muhurye ekaveeraa 
+‖ 2 ‖
+
+ujjayinyaaM mahaakaaLee peeThikaayaaM puruhootikaa ❘  
+oDhyaayaaM girijaadevee maaNikyaa dakshhavaaTike 
+‖ 3 ‖
+
+harikshhetre kaamaroopee prayaage maadhaveshvaree ❘  
+jvaalaayaaM vaishhNaveedevee gayaa maaMgaLyagaurikaa 
+‖ 4 ‖
+
+vaaraNaashyaaM vishaalaakshhee kaashmeeretu sarasvatee ❘  
+ashhTaadasha supeeThaani yoginaamapi durlabhaM 
+‖ 5 ‖
+
+saayaMkaale paThennityaM sarvashatruvinaashanaM ❘  
+sarvarogaharaM divyaM sarvasaMpatkaraM shubham 
+‖ 6 ‖
+

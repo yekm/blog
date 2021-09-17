@@ -537,3 +537,49 @@ He is the great preacher of the four fundamental duties of an ideal man i.e dhar
 అర్థం శితిలీకృతానర్థం శ్రీ నారాయణ తీర్థం పరమపురుషార్థం సదా బాల  
 కృష్ణం కలయ సఖి సుందరం  
 
+### English
+
+#### kṛśhṇaṃ kalaya sakhi
+
+rāgaṃ: mukhāri  
+tāḻaṃ: ādi  
+kṛśhṇaṃ kalaya sakhi sundaraṃ bāla kṛśhṇaṃ kalaya sakhi sundaraṃ  
+kṛśhṇaṃ kathaviśhaya tṛśhṇaṃ jagatprabha viśhṇuṃ surārigaṇa jiśhṇuṃ sadā bāla  
+kṛśhṇaṃ kalaya sakhi sundaraṃ  
+nṛtyantamiha muhuratyantamaparimita bhṛtyānukūlaṃ akhila satyaṃ sadā bāla   
+kṛśhṇaṃ kalaya sakhi sundaraṃ  
+dhīraṃ bhavajalabhāraṃ sakalavedasāraṃ samastayogidhāraṃ sadā bāla   
+kṛśhṇaṃ kalaya sakhi sundaraṃ  
+śṛṅgāra rasabhara saṅgīta sāhitya gaṅgālaharikeḻa saṅgaṃ sadā bāla   
+kṛśhṇaṃ kalaya sakhi sundaraṃ  
+rāmeṇa jagadabhirāmeṇa balabhadrarāmeṇa samavāpta kāmena saha bāla   
+kṛśhṇaṃ kalaya sakhi sundaraṃ  
+dāmodaraṃ akhila kāmākaraṅgana śyāmākṛtiṃ asura bhīmaṃ sadā bāla  
+kṛśhṇaṃ kalaya sakhi sundaraṃ  
+rādhāruṇādhara sutāpaṃ saccidānandarūpaṃ jagatrayabhūpaṃ sadā bāla   
+kṛśhṇaṃ kalaya sakhi sundaraṃ  
+arthaṃ śitilīkṛtānarthaṃ śrī nārāyaṇa tīrthaṃ paramapuruśhārthaṃ sadā bāla   
+kṛśhṇaṃ kalaya sakhi sundaraṃ  
+### PlainEnglish
+
+#### kRRishhNaM kalaya sakhi
+
+raagaM: mukhaari  
+taaLaM: aadi  
+kRRishhNaM kalaya sakhi suMdaraM baala kRRishhNaM kalaya sakhi suMdaraM  
+kRRishhNaM kathavishhaya tRRishhNaM jagatprabha vishhNuM suraarigaNa jishhNuM sadaa baala  
+kRRishhNaM kalaya sakhi suMdaraM  
+nRRityaMtamiha muhuratyaMtamaparimita bhRRityaanukoolaM akhila satyaM sadaa baala   
+kRRishhNaM kalaya sakhi suMdaraM  
+dheeraM bhavajalabhaaraM sakalavedasaaraM samastayogidhaaraM sadaa baala   
+kRRishhNaM kalaya sakhi suMdaraM  
+shRRiMgaara rasabhara saMgeeta saahitya gaMgaalaharikeLa saMgaM sadaa baala   
+kRRishhNaM kalaya sakhi suMdaraM  
+raameNa jagadabhiraameNa balabhadraraameNa samavaapta kaamena saha baala   
+kRRishhNaM kalaya sakhi suMdaraM  
+daamodaraM akhila kaamaakaraMgana shyaamaakRRitiM asura bheemaM sadaa baala  
+kRRishhNaM kalaya sakhi suMdaraM  
+raadhaaruNaadhara sutaapaM saccidaanaMdaroopaM jagatrayabhoopaM sadaa baala   
+kRRishhNaM kalaya sakhi suMdaraM  
+arthaM shitileekRRitaanarthaM shree naaraayaNa teerthaM paramapurushhaarthaM sadaa baala   
+kRRishhNaM kalaya sakhi suMdaraM  

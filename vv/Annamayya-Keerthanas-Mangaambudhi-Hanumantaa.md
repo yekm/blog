@@ -328,3 +328,49 @@ nee tala golice hita hanumaMtaa ‖
 నీ తల గోలిచే హిత హనుమంతా ‖  
 
 
+### English
+
+#### annamayya kīrtana maṅgāmbudhi hanumantā
+
+rāgaṃ: dharmavati, tāḻaṃ: ādi  
+maṅgāmbudhi hanumantā nī śaraṇa ❘  
+maṅgaviñcitimi hanumantā ‖
+
+bālārka bimbamu phalamani pa ṭṭina  
+ālari cetala hanumantā ❘  
+tūlani brahmādulace varamulu  
+oli cekoninā hanumantā ‖
+
+jaladhi dāṭa nī satvamu kapulaku  
+alari telipitivi hanumantā ❘  
+ilayu nākasamu nekamugā, naṭu  
+balimi perigitivi bhaḻi hanumantā ‖
+
+pātāḻamu lopali mairāvaṇu  
+ātala jampina hanumantā ❘  
+cetulu moḍcuka śrī veṅkaṭapati  
+nī tala golice hita hanumantā ‖
+
+### PlainEnglish
+
+#### annamayya keertana maMgaaMbudhi hanumaMtaa
+
+raagaM: dharmavati, taaLaM: aadi  
+maMgaaMbudhi hanumaMtaa nee sharaNa ❘  
+maMgaviMcitimi hanumaMtaa ‖
+
+baalaarka biMbamu phalamani pa TTina  
+aalari cetala hanumaMtaa ❘  
+toolani brahmaadulace varamulu  
+oli cek.oninaa hanumaMtaa ‖
+
+jaladhi daaTa nee satvamu kapulaku  
+alari t.elipitivi hanumaMtaa ❘  
+ilayu naakasamu nekamugaa, naTu  
+balimi p.erigitivi bhaLi hanumaMtaa ‖
+
+paataaLamu lopali mairaavaNu  
+aatala jaMpina hanumaMtaa ❘  
+cetulu moDcuka shree veMkaTapati  
+nee tala golice hita hanumaMtaa ‖
+

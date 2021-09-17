@@ -1108,3 +1108,223 @@ sheeghramaagamyataaM badvaa gRRiheetvaataamathaambikaam ‖24‖
  **ఆహుతి  
 ** ఓం క్లీం జయంతీ సాంగాయై సశక్తికాయై సపరివారాయై సవాహనాయై మహాహుతిం సమర్పయామి నమః స్వాహా ‖  
 
+### English
+
+#### devī mahātmyam durgā saptaśati śhaśhṭhoadhyāyaḥ
+
+śumbhaniśumbhasenānīdhūmralocanavadho nāma śhaśhṭo dhyāyaḥ ‖
+
+dhyānaṃ  
+nagādhīśvara viśhtrāṃ phaṇi phaṇottṃsoru ratnāvaḻī  
+bhāsvad deha latāṃ nibhou netrayodbhāsitāṃ ❘  
+mālā kumbha kapāla nīraja karāṃ chandrā ardha chūḍhāmbarāṃ  
+sarveśvara bhairavāṅga nilayāṃ padmāvatīchintaye ‖
+
+ṛśhiruvāca     
+‖1‖
+
+ityākarṇya vaco devyāḥ sa dūtoamarśhapūritaḥ ❘  
+samācaśhṭa samāgamya daityarājāya vistarāt  
+‖ 2 ‖
+
+tasya dūtasya tadvākyamākarṇyāsurarāṭ tataḥ ❘  
+sa krodhaḥ prāha daityānāmadhipaṃ dhūmralocanam     
+‖3‖
+
+he dhūmralocanāśu tvaṃ svasainya parivāritaḥ❘  
+tāmānaya ballādduśhṭāṃ keśākarśhaṇa vihvalām     
+‖4‖
+
+tatparitrāṇadaḥ kaścidyadi vottiśhṭhateaparaḥ❘  
+sa hantavyoamarovāpi yakśho gandharva eva vā     
+‖5‖
+
+ṛśhiruvāca     
+‖6‖
+
+tenāGYaptastataḥ śīghraṃ sa daityo dhūmralocanaḥ❘  
+vṛtaḥ śhaśhṭyā sahasrāṇāṃ asurāṇāndrutaṃyamau     
+‖6‖
+
+na dṛśhṭvā tāṃ tato devīṃ tuhinācala saṃsthitāṃ❘  
+jagādoccaiḥ prayāhīti mūlaṃ śumbaniśumbhayoḥ   
+‖8‖
+
+na cetprītyādya bhavatī madbhartāramupaiśhyati  
+tato balānnayāmyeśha keśākarśhaṇavihvalām     
+‖9‖
+
+devyuvāca     
+‖10‖
+
+daityeśvareṇa prahito balavānbalasaṃvṛtaḥ❘  
+balānnayasi māmevaṃ tataḥ kiṃ te karomyaham     
+‖11‖
+
+ṛśhiruvāca     
+‖12‖
+
+ityuktaḥ soabhyadhāvattāṃ asuro dhūmralocanaḥ❘  
+hūṅkāreṇaiva taṃ bhasma sā cakārāmbikā tadā
+‖13‖
+
+atha kruddhaṃ mahāsainyaṃ asurāṇāṃ tathāmbikā❘  
+vavarśha sāyukaistīkśhṇaistathā śaktiparaśvadhaiḥ     
+‖14‖
+
+tato dhutasaṭaḥ kopātkṛtvā nādaṃ subhairavam❘  
+papātāsura senāyāṃ siṃho devyāḥ svavāhanaḥ     
+‖15‖
+
+kāṃścitkaraprahāreṇa daityānāsyena cāpārān❘  
+ākrāntyā cādhareṇyān jaghāna sa mahāsurān   
+‖16‖
+
+keśhāñcitpāṭayāmāsa nakhaiḥ kośhṭhāni kesarī❘  
+tathā talaprahāreṇa śirāṃsi kṛtavān pṛthak     
+‖17‖
+
+vicChinnabāhuśirasaḥ kṛtāstena tathāpare❘  
+papauca rudhiraṃ kośhṭhādanyeśhāṃ dhutakesaraḥ     
+‖18‖
+
+kśhaṇena tadbalaṃ sarvaṃ kśhayaṃ nītaṃ mahātmanā❘  
+tena kesariṇā devyā vāhanenātikopinā   
+‖19‖
+
+śrutvā tamasuraṃ devyā nihataṃ dhūmralocanam❘  
+balaṃ ca kśhayitaṃ kṛtsnaṃ devī kesariṇā tataḥ
+‖20‖
+
+cukopa daityādhipatiḥ śumbhaḥ prasphuritādharaḥ❘  
+āGYāpayāmāsa ca tau caṇḍamuṇḍau mahāsurau   
+‖21‖
+
+hecaṇḍa he muṇḍa balairbahubhiḥ parivāritau  
+tatra gacChata gatvā ca sā samānīyatāṃ laghu   
+‖22‖
+
+keśeśhvākṛśhya baddhvā vā yadi vaḥ saṃśayo yudhi❘  
+tadāśeśhā yudhaiḥ sarvair asurairvinihanyatāṃ   
+‖23‖
+
+tasyāṃ hatāyāṃ duśhṭāyāṃ siṃhe ca vinipātite❘  
+śīghramāgamyatāṃ badvā gṛhītvātāmathāmbikām   
+‖24‖
+
+
+‖ svasti śrī mārkaṇḍeya purāṇe sāvarnikemanvantare devi mahatmye śumbhaniśumbhasenānīdhūmralocanavadho nāma śhaśhṭo dhyāyaḥ ‖
+
+āhuti  
+oṃ klīṃ jayantī sāṅgāyai saśaktikāyai saparivārāyai savāhanāyai mahāhutiṃ samarpayāmi namaḥ svāhā ‖
+
+### PlainEnglish
+
+#### devee mahaatmyam durgaa saptashati shhashhTho.adhyaayaH
+
+shumbhanishumbhasenaaneedhoomralocanavadho naama shhashhTo dhyaayaH ‖
+
+dhyaanaM  
+nagaadheeshvara vishhtraaM phaNi phaNottMsoru ratnaavaLee  
+bhaasvad deha lataaM nibh.ou netrayodbhaasitaaM ❘  
+maalaa kuMbha kapaala neeraja karaaM chaMdraa ardha chooDhaaMbaraaM  
+sarveshvara bhairavaaMga nilayaaM padmaavateechiMtaye ‖
+
+RRishhiruvaaca     
+‖1‖
+
+ityaakarNya vaco devyaaH sa dooto.amarshhapooritaH ❘  
+samaacashhTa samaagamya daityaraajaaya vistaraat  
+‖ 2 ‖
+
+tasya dootasya tadvaakyamaakarNyaasuraraaT tataH ❘  
+sa krodhaH praaha daityaanaamadhipaM dhoomralocanam     
+‖3‖
+
+he dhoomralocanaashu tvaM svasainya parivaaritaH❘  
+taamaanaya ballaaddushhTaaM keshaakarshhaNa vihvalaam     
+‖4‖
+
+tatparitraaNadaH kashcidyadi vottishhThate.aparaH❘  
+sa hantavyo.amarovaapi yakshho gandharva eva vaa     
+‖5‖
+
+RRishhiruvaaca     
+‖6‖
+
+tenaagnyaptastataH sheeghraM sa daityo dhoomralocanaH❘  
+vRRitaH shhashhTyaa sahasraaNaaM asuraaNaaMdrutaMyamau     
+‖6‖
+
+na dRRishhTvaa taaM tato deveeM tuhinaacala saMsthitaaM❘  
+jagaadoccaiH prayaaheeti moolaM shumbanishumbhayoH   
+‖8‖
+
+na cetpreetyaadya bhavatee madbhartaaramupaishhyati  
+tato balaannayaamyeshha keshaakarshhaNavihvalaam     
+‖9‖
+
+devyuvaaca     
+‖10‖
+
+daityeshvareNa prahito balavaanbalasaMvRRitaH❘  
+balaannayasi maamevaM tataH kiM te karomyaham     
+‖11‖
+
+RRishhiruvaaca     
+‖12‖
+
+ityuktaH so.abhyadhaavattaaM asuro dhoomralocanaH❘  
+hoonkaareNaiva taM bhasma saa cakaaraambikaa tadaa
+‖13‖
+
+atha kruddhaM mahaasainyaM asuraaNaaM tathaambikaa❘  
+vavarshha saayukaisteekshhNaistathaa shaktiparashvadhaiH     
+‖14‖
+
+tato dhutasaTaH kopaatkRRitvaa naadaM subhairavam❘  
+papaataasura senaayaaM siMho devyaaH svavaahanaH     
+‖15‖
+
+kaaMshcitkaraprahaareNa daityaanaasyena caapaaraan❘  
+aakraantyaa caadhareNyaan jaghaana sa mahaasuraan   
+‖16‖
+
+keshhaancitpaaTayaamaasa nakhaiH koshhThaani kesaree❘  
+tathaa talaprahaareNa shiraaMsi kRRitavaan pRRithak     
+‖17‖
+
+vicChinnabaahushirasaH kRRitaastena tathaapare❘  
+papauca rudhiraM koshhThaadanyeshhaaM dhutakesaraH     
+‖18‖
+
+kshhaNena tadbalaM sarvaM kshhayaM neetaM mahaatmanaa❘  
+tena kesariNaa devyaa vaahanenaatikopinaa   
+‖19‖
+
+shrutvaa tamasuraM devyaa nihataM dhoomralocanam❘  
+balaM ca kshhayitaM kRRitsnaM devee kesariNaa tataH
+‖20‖
+
+cukopa daityaadhipatiH shumbhaH prasphuritaadharaH❘  
+aagnyaapayaamaasa ca tau caNDamuNDau mahaasurau   
+‖21‖
+
+hecaNDa he muNDa balairbahubhiH parivaaritau  
+tatra gacChata gatvaa ca saa samaaneeyataaM laghu   
+‖22‖
+
+kesheshhvaakRRishhya baddhvaa vaa yadi vaH saMshayo yudhi❘  
+tadaasheshhaa yudhaiH sarvair asurairvinihanyataaM   
+‖23‖
+
+tasyaaM hataayaaM dushhTaayaaM siMhe ca vinipaatite❘  
+sheeghramaagamyataaM badvaa gRRiheetvaataamathaambikaam   
+‖24‖
+
+
+‖ svasti shree maarkaNDeya puraaNe saavarnikemanvantare devi mahatmye shumbhanishumbhasenaaneedhoomralocanavadho naama shhashhTo dhyaayaH ‖
+
+aahuti  
+oM kleeM jayaMtee saaMgaayai sashaktikaayai saparivaaraayai savaahanaayai mahaahutiM samarpayaami namaH svaahaa ‖
+

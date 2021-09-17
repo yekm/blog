@@ -328,3 +328,65 @@ iti shhaTpadee madeeye vadanasaroje sadaa vasatu ‖
 నారాయణ కరుణామయ శరణం కరవాణి తావకౌ చరణౌ ❘  
 ఇతి షట్పదీ మదీయే వదనసరోజే సదా వసతు ‖  
 
+### English
+
+#### viśhṇu śhaṭpadi
+
+avinayamapanaya viśhṇo damaya manaḥ śamaya viśhayamṛgatṛśhṇām ❘  
+bhūtadayāṃ vistāraya tāraya saṃsārasāgarataḥ 
+‖ 1 ‖
+
+divyadhunīmakarande parimaḻaparibhogasaccidānande ❘  
+śrīpatipadāravinde bhavabhayakhedacChide vande 
+‖ 2 ‖
+
+satyapi bhedāpagame nātha tavā'haṃ na māmakīnastvaṃ ❘  
+sāmudro hi taraṅgaḥ kvacana samudro na tāraṅgaḥ 
+‖ 3 ‖
+
+uddhṛtanaga nagabhidanuja danujakulāmitra mitraśaśidṛśhṭe ❘  
+dṛśhṭe bhavati prabhavati na bhavati kiṃ bhavatiraskāraḥ 
+‖ 4 ‖
+
+matsyādibhiravatārairavatāravatā'vatā sadā vasudhāṃ ❘  
+parameśvara paripālyo bhavatā bhavatāpabhītoahaṃ 
+‖ 5 ‖
+
+dāmodara guṇamandira sundaravadanāravinda govinda ❘  
+bhavajaladhimathanamandara paramaṃ daramapanaya tvaṃ me 
+‖ 6 ‖
+
+nārāyaṇa karuṇāmaya śaraṇaṃ karavāṇi tāvakau caraṇau ❘  
+iti śhaṭpadī madīye vadanasaroje sadā vasatu ‖
+
+### PlainEnglish
+
+#### vishhNu shhaTpadi
+
+avinayamapanaya vishhNo damaya manaH shamaya vishhayamRRigatRRishhNaam ❘  
+bhootadayaaM vistaaraya taaraya saMsaarasaagarataH 
+‖ 1 ‖
+
+divyadhuneemakaraMde parimaLaparibhogasaccidaanaMde ❘  
+shreepatipadaaraviMde bhavabhayakhedacChide vaMde 
+‖ 2 ‖
+
+satyapi bhedaapagame naatha tavaa.ahaM na maamakeenastvaM ❘  
+saamudro hi taraMgaH kvacana samudro na taaraMgaH 
+‖ 3 ‖
+
+uddhRRitanaga nagabhidanuja danujakulaamitra mitrashashidRRishhTe ❘  
+dRRishhTe bhavati prabhavati na bhavati kiM bhavatiraskaaraH 
+‖ 4 ‖
+
+matsyaadibhiravataarairavataaravataa.avataa sadaa vasudhaaM ❘  
+parameshvara paripaalyo bhavataa bhavataapabheeto.ahaM 
+‖ 5 ‖
+
+daamodara guNamaMdira suMdaravadanaaraviMda goviMda ❘  
+bhavajaladhimathanamaMdara paramaM daramapanaya tvaM me 
+‖ 6 ‖
+
+naaraayaNa karuNaamaya sharaNaM karavaaNi taavakau caraNau ❘  
+iti shhaTpadee madeeye vadanasaroje sadaa vasatu ‖
+

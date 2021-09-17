@@ -289,3 +289,49 @@ v.osagina maas.ommulu v.oruliyyaval.enaa ‖
 యెసగి యాతడే మమ్మునేలి యిన్నియు నిచ్చె  
 వొసగిన మాసొమ్ములు వొరులియ్యవలెనా ‖  
 
+### English
+
+#### annamayya kīrtana puṭṭu bhogulamu memu
+
+puṭṭubhogulamu memu bhuvi haridāsulamu ❘  
+naṭṭanaḍimi doralu nākiyyavalenā ‖
+
+pallakīlu nandanālu paḍivāge tejīlu   
+vellaviri mahālakśhmī vilāsamulu ❘  
+talliyāke maganine daivamani kolicemu   
+vollage māke sirulu voruliyyavalenā ‖
+
+grāmamulu vastramulu gajamukhya vastuvulu   
+āmani bhūkāntaku naṅgabhedālu ‖
+
+bhāmini yāke magani prāṇadhāri leṅka-  
+lamu voli mākātaḍe yiccī voruliyyavalenā ‖
+
+pasagala padavulu brahma nirmitamulu   
+vesa brahmataṇḍri śrī veṅkaṭeśuḍu ❘  
+yesagi yātaḍe mammuneli yinniyu nicce   
+vosagina māsommulu voruliyyavalenā ‖
+
+### PlainEnglish
+
+#### annamayya keertana puTTu bhogulamu memu
+
+puTTubhogulamu memu bhuvi haridaasulamu ❘  
+naTTanaDimi d.oralu naakiyyaval.enaa ‖
+
+pallakeelu naMdanaalu paDivaag.e tejeelu   
+v.ellaviri mahaalakshhmee vilaasamulu ❘  
+talliyaak.e maganine daivamani k.olicemu   
+v.ollage maake sirulu v.oruliyyaval.enaa ‖
+
+graamamulu vastramulu gajamukhya vastuvulu   
+aamani bhookaaMtaku naMgabhedaalu ‖
+
+bhaamini yaak.e magani praaNadhaari l.eMka-  
+lamu voli maakaataDe yiccee v.oruliyyaval.enaa ‖
+
+pasagala padavulu brahma nirmitamulu   
+v.esa brahmataMDri shree veMkaTeshuDu ❘  
+y.esagi yaataDe mammuneli yinniyu nicc.e   
+v.osagina maas.ommulu v.oruliyyaval.enaa ‖
+

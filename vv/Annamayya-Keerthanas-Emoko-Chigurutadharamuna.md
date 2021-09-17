@@ -289,3 +289,47 @@ addina suratapu ch.emaTala aMdamu kaadu kadaa ‖
 గద్దరి తిరువేంకటపతి కొగిటియధరామృతముల ❘  
 అద్దిన సురతపు చెమటల అందము కాదు కదా ‖  
 
+### English
+
+#### annamayya kīrtana emoko chiguruṭadharamuna
+
+emoko chiguruṭadharamuna eḍaneḍakastūri niṇḍenu ❘  
+bhāmini vibhunaku vrāsina patrika kādu kadā ‖
+
+kaliki chakorākśhiki kaḍakannulu kempaitochina ❘  
+cheluvambippuḍidemo chintimparechelulu ❘  
+naluvuna prāṇeśvarunipai nāṭinayākonachūpulu ❘  
+niluvunaperukaganaṇṭina netturukādukadā ‖
+
+paḍatiki chanugavamerugulu paipai payyeda velupala ❘  
+kaḍumiñchina vidhamemo kanugonare chelulu ❘  
+vuḍugani veḍukato priyuḍottina nakhaśaśirekhalu ❘  
+veḍalagavesavikālapu vennelakādukadā ‖
+
+muddiya chekkula kelakula mutyapu jallula cherpula ❘  
+voddikalāgulivemo ūhimpare chelulu ❘  
+gaddari tiruveṅkaṭapati kogiṭiyadharāmṛtamula ❘  
+addina suratapu chemaṭala andamu kādu kadā ‖
+
+### PlainEnglish
+
+#### annamayya keertana em.oko chiguruTadharamuna
+
+em.oko chiguruTadharamuna .eDan.eDakastoori niMD.enu ❘  
+bhaamini vibhunaku vraasina patrika kaadu kadaa ‖
+
+kaliki chakoraakshhiki kaDakannulu k.eMpaitochina ❘  
+ch.eluvaMbippuDidemo chiMtiMparech.elulu ❘  
+naluvuna praaNeshvarunipai naaTinayaak.onachoopulu ❘  
+niluvunap.erukaganaMTina n.etturukaadukadaa ‖
+
+paDatiki chanugavam.erugulu paipai payy.eda v.elupala ❘  
+kaDumiMchina vidhamemo kanug.onare ch.elulu ❘  
+vuDugani veDukato priyuD.ottina nakhashashirekhalu ❘  
+v.eDalagavesavikaalapu v.enn.elakaadukadaa ‖
+
+muddiya ch.ekkula k.elakula mutyapu jallula cherpula ❘  
+v.oddikalaagulivemo oohiMpare ch.elulu ❘  
+gaddari tiruveMkaTapati k.ogiTiyadharaamRRitamula ❘  
+addina suratapu ch.emaTala aMdamu kaadu kadaa ‖
+

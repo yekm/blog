@@ -640,3 +640,117 @@ te prayaanti kaalabhairavaanghri sannidhiM dhruvam ‖
 శోకమోహ లోభదైన్య కోపతాప నాశనం  
 తే ప్రయాంతి కాలభైరవాంఘ్రి సన్నిధిం ధ్రువమ్ ‖  
 
+### English
+
+#### kāla bhairavāśhṭakam
+
+devarāja sevyamāna pāvanāṅghri paṅkajaṃ  
+vyāḻayaGYa sūtramindu śekharaṃ kṛpākaram ❘  
+nāradādi yogibṛnda vanditaṃ digambaraṃ  
+kāśikāpurādhinātha kālabhairavaṃ bhaje 
+‖ 1 ‖
+
+bhānukoṭi bhāsvaraṃ bhavabdhitārakaṃ paraṃ  
+nīlakaṇṭha mīpsitārdha dāyakaṃ trilochanaṃ ❘  
+kālakāla mambujākśha mastaśūnya makśharaṃ  
+kāśikāpurādhinātha kālabhairavaṃ bhaje 
+‖ 2 ‖
+
+śūlaṭaṅka pāśadaṇḍa pāṇimādi kāraṇaṃ  
+śyāmakāya mādideva makśharaṃ nirāmayam ❘  
+bhīmavikramaṃ prabhuṃ vichitra tāṇḍava priyaṃ  
+kāśikāpurādhinātha kālabhairavaṃ bhaje 
+‖ 3 ‖
+
+bhukti mukti dāyakaṃ praśastachāru vigrahaṃ  
+bhaktavatsalaṃ sthitaṃ samastaloka vigraham ❘  
+nikvaṇan-manoGYa hema kiṅkiṇī lasatkaṭiṃ  
+kāśikāpurādhinātha kālabhairavaṃ bhaje 
+‖ 4 ‖
+
+dharmasetu pālakaṃ tvadharmamārga nāśakaṃ  
+karmapāśa mochakaṃ suśarma dāyakaṃ vibhum ❘  
+svarṇavarṇa keśapāśa śobhitāṅga nirmalaṃ  
+kāśikāpurādhinātha kālabhairavaṃ bhaje 
+‖ 5 ‖
+
+ratna pādukā prabhābhirāma pādayugmakaṃ  
+nitya madvitīya miśhṭa daivataṃ nirañjanam ❘  
+mṛtyudarpa nāśanaṃ karāḻadaṃśhṭra bhūśhaṇaṃ  
+kāśikāpurādhinātha kālabhairavaṃ bhaje 
+‖ 6 ‖
+
+aṭṭahāsa bhinna padmajāṇḍakośa santatiṃ  
+dṛśhṭipāta naśhṭapāpa jālamugra śāsanam ❘  
+aśhṭasiddhi dāyakaṃ kapālamālikā dharaṃ  
+kāśikāpurādhinātha kālabhairavaṃ bhaje 
+‖ 7 ‖
+
+bhūtasaṅgha nāyakaṃ viśālakīrti dāyakaṃ  
+kāśivāsi loka puṇyapāpa śodhakaṃ vibhum ❘  
+nītimārga kovidaṃ purātanaṃ jagatpatiṃ  
+kāśikāpurādhinātha kālabhairavaṃ bhaje 
+‖ 8 ‖
+
+kālabhairavāśhṭakaṃ paṭhanti ye manoharaṃ  
+GYānamukti sādhakaṃ vichitra puṇya vardhanam ❘  
+śokamoha lobhadainya kopatāpa nāśanaṃ  
+te prayānti kālabhairavāṅghri sannidhiṃ dhruvam ‖
+
+### PlainEnglish
+
+#### kaala bhairavaashhTakam
+
+devaraaja sevyamaana paavanaaMghri pankajaM  
+vyaaLayagnya sootramiMdu shekharaM kRRipaakaram ❘  
+naaradaadi yogibRRiMda vanditaM digambaraM  
+kaashikaapuraadhinaatha kaalabhairavaM bhaje 
+‖ 1 ‖
+
+bhaanukoTi bhaasvaraM bhavabdhitaarakaM paraM  
+neelakaMTha meepsitaardha daayakaM trilochanaM ❘  
+kaalakaala maMbujaakshha mastashoonya makshharaM  
+kaashikaapuraadhinaatha kaalabhairavaM bhaje 
+‖ 2 ‖
+
+shoolaTanka paashadaNDa paaNimaadi kaaraNaM  
+shyaamakaaya maadideva makshharaM niraamayam ❘  
+bheemavikramaM prabhuM vichitra taaMDava priyaM  
+kaashikaapuraadhinaatha kaalabhairavaM bhaje 
+‖ 3 ‖
+
+bhukti mukti daayakaM prashastachaaru vigrahaM  
+bhaktavatsalaM sthitaM samastaloka vigraham ❘  
+nikvaNan-manognya hema kiMkiNee lasatkaTiM  
+kaashikaapuraadhinaatha kaalabhairavaM bhaje 
+‖ 4 ‖
+
+dharmasetu paalakaM tvadharmamaarga naashakaM  
+karmapaasha mochakaM susharma daayakaM vibhum ❘  
+svarNavarNa keshapaasha sh.obhitaanga nirmalaM  
+kaashikaapuraadhinaatha kaalabhairavaM bhaje 
+‖ 5 ‖
+
+ratna paadukaa prabhaabhiraama paadayugmakaM  
+nitya madviteeya mishhTa daivataM niraMjanam ❘  
+mRRityudarpa naashanaM karaaLadaMshhTra bhooshhaNaM  
+kaashikaapuraadhinaatha kaalabhairavaM bhaje 
+‖ 6 ‖
+
+aTTahaasa bhinna padmajaaMDakosha santatiM  
+dRRishhTipaata nashhTapaapa jaalamugra shaasanam ❘  
+ashhTasiddhi daayakaM kapaalamaalikaa dharaM  
+kaashikaapuraadhinaatha kaalabhairavaM bhaje 
+‖ 7 ‖
+
+bhootasangha naayakaM vishaalakeerti daayakaM  
+kaashivaasi loka puNyapaapa shodhakaM vibhum ❘  
+neetimaarga kovidaM puraatanaM jagatpatiM  
+kaashikaapuraadhinaatha kaalabhairavaM bhaje 
+‖ 8 ‖
+
+kaalabhairavaashhTakaM paThaMti ye manoharaM  
+gnyaanamukti saadhakaM vichitra puNya vardhanam ❘  
+shokamoha lobhadainya kopataapa naashanaM  
+te prayaanti kaalabhairavaanghri sannidhiM dhruvam ‖
+

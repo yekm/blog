@@ -549,3 +549,97 @@ mahaalakshhmee rbhaven-nityaM prasannaa varadaa shubhaa ‖
 
 [ఇంత్యకృత శ్రీ మహాలక్ష్మ్యష్టక స్తోత్రం సంపూర్ణమ్]  
 
+### English
+
+#### mahā lakśhmyaśhṭakam
+
+indra uvācha -   
+namasteastu mahāmāye śrīpīṭhe surapūjite ❘  
+śaṅkhachakra gadāhaste mahālakśhmi namoastu te 
+‖ 1 ‖
+
+namaste garuḍārūḍhe kolāsura bhayaṅkari ❘  
+sarvapāpahare devi mahālakśhmi namoastu te 
+‖ 2 ‖
+
+sarvaGYe sarvavarade sarva duśhṭa bhayaṅkari ❘  
+sarvaduḥkha hare devi mahālakśhmi namoastu te 
+‖ 3 ‖
+
+siddhi buddhi prade devi bhukti mukti pradāyini ❘  
+mantra mūrte sadā devi mahālakśhmi namoastu te 
+‖ 4 ‖
+
+ādyanta rahite devi ādiśakti maheśvari ❘  
+yogaGYe yoga sambhūte mahālakśhmi namoastu te 
+‖ 5 ‖
+
+sthūla sūkśhma mahāraudre mahāśakti mahodare ❘  
+mahā pāpa hare devi mahālakśhmi namoastu te 
+‖ 6 ‖
+
+padmāsana sthite devi parabrahma svarūpiṇi ❘  
+parameśi jaganmātaḥ mahālakśhmi namoastu te 
+‖ 7 ‖
+
+śvetāmbaradhare devi nānālaṅkāra bhūśhite ❘  
+jagasthite jaganmātaḥ mahālakśhmi namoastu te 
+‖ 8 ‖
+
+mahālakśhmaśhṭakaṃ stotraṃ yaḥ paṭhed bhaktimān naraḥ ❘  
+sarva siddhi mavāpnoti rājyaṃ prāpnoti sarvadā ‖
+
+ekakāle paṭhennityaṃ mahāpāpa vināśanaṃ ❘  
+dvikālṃ yaḥ paṭhennityaṃ dhana dhānya samanvitaḥ ‖
+
+trikālaṃ yaḥ paṭhennityaṃ mahāśatru vināśanaṃ ❘  
+mahālakśhmī rbhaven-nityaṃ prasannā varadā śubhā ‖
+
+[intyakṛta śrī mahālakśhmyaśhṭaka stotraṃ sampūrṇam]  
+### PlainEnglish
+
+#### mahaa lakshhmyashhTakam
+
+indra uvaacha -   
+namaste.astu mahaamaaye shreepeeThe surapoojite ❘  
+shankhachakra gadaahaste mahaalakshhmi namo.astu te 
+‖ 1 ‖
+
+namaste garuDaarooDhe kolaasura bhayankari ❘  
+sarvapaapahare devi mahaalakshhmi namo.astu te 
+‖ 2 ‖
+
+sarvagnye sarvavarade sarva dushhTa bhayaMkari ❘  
+sarvaduHkha hare devi mahaalakshhmi namo.astu te 
+‖ 3 ‖
+
+siddhi buddhi prade devi bhukti mukti pradaayini ❘  
+mantra moorte sadaa devi mahaalakshhmi namo.astu te 
+‖ 4 ‖
+
+aadyanta rahite devi aadishakti maheshvari ❘  
+yogagnye yoga sambhoote mahaalakshhmi namo.astu te 
+‖ 5 ‖
+
+sthoola sookshhma mahaaraudre mahaashakti mahodare ❘  
+mahaa paapa hare devi mahaalakshhmi namo.astu te 
+‖ 6 ‖
+
+padmaasana sthite devi parabrahma svaroopiNi ❘  
+parameshi jaganmaataH mahaalakshhmi namo.astu te 
+‖ 7 ‖
+
+shvetaambaradhare devi naanaalankaara bhooshhite ❘  
+jagasthite jaganmaataH mahaalakshhmi namo.astu te 
+‖ 8 ‖
+
+mahaalakshhmashhTakaM stotraM yaH paThed bhaktimaan naraH ❘  
+sarva siddhi mavaapnoti raajyaM praapnoti sarvadaa ‖
+
+ekakaale paThennityaM mahaapaapa vinaashanaM ❘  
+dvikaalM yaH paThennityaM dhana dhaanya samanvitaH ‖
+
+trikaalaM yaH paThennityaM mahaashatru vinaashanaM ❘  
+mahaalakshhmee rbhaven-nityaM prasannaa varadaa shubhaa ‖
+
+[intyakRRita shree mahaalakshhmyashhTaka stotraM saMpoorNam]  

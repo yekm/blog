@@ -289,3 +289,47 @@ akkuna naatani niTTe alariMcavamma ‖
 మక్కువతో అలమేల్మంగ నాంచారమ్మ  
 అక్కున నాతని నిట్టే అలరించవమ్మ ‖  
 
+### English
+
+#### annamayya kīrtana ammamma emamma
+
+ammamma emamma alamelmaṅga nāñcāramma ❘  
+tammiyiṇṭa nalarukomma oyamma ‖
+
+nīrilona tallaḍiñce nīke talavañcī   
+nīrikinda pulakiñcī nīramaṇuṇḍu ❘  
+gorikona cemariñcī kopame pacariñcī   
+sāreku nīyaluka iṭṭe cāliñcavamma ‖
+
+nīkugāne ceyyicācī niṇḍākopamurecī   
+mekoni nīvirahāna menu veñcīni ❘  
+īkaḍākaḍi satula hṛdayame perarecī   
+āku maḍiciyyanaina ānatiyyavammā ‖
+
+cakkadanamule peñcī sakalamu gāladañci   
+nikkapu veṅkaṭeśuḍu nīke poñcīni ❘  
+makkuvato alamelmaṅga nāñcāramma   
+akkuna nātani niṭṭe alariñcavamma ‖
+
+### PlainEnglish
+
+#### annamayya keertana ammamma emamma
+
+ammamma emamma alamelmaMga naaMcaaramma ❘  
+tammiyiMTa nalaruk.omma oyamma ‖
+
+neerilona tallaDiMce neeke talavaMcee   
+neerikiMda pulakiMcee neeramaNuMDu ❘  
+gorik.ona c.emariMcee kopame pacariMcee   
+saar.eku neeyaluka iTT.e caaliMcavamma ‖
+
+neekugaane c.eyyicaacee niMDaakopamurecee   
+mek.oni neevirahaana menu v.eMceeni ❘  
+eekaDaakaDi satula hRRidayame p.erarecee   
+aaku maDiciyyanaina aanatiyyavammaa ‖
+
+cakkadanamul.e p.eMcee sakalamu gaaladaMci   
+nikkapu veMkaTeshuDu neeke p.oMceeni ❘  
+makkuvato alamelmaMga naaMcaaramma   
+akkuna naatani niTTe alariMcavamma ‖
+

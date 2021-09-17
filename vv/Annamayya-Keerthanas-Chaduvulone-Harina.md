@@ -302,3 +302,47 @@ voohiMchi gatigaanaka v.odigite galadaa ‖
 వూహించి గతిగానక వొదిగితే గలదా ‖  
 
 
+### English
+
+#### annamayya kīrtana chaduvulone harina
+
+chaduvulone harini jaṭṭigonavalegāka ❘  
+madamugappinamīda maguḍa nadi galadā ‖
+
+jaḍamatiki sahajame saṃsārayātana yidi ❘  
+kaḍu nindulo baramu gaḍiyiñchavalegāka ❘  
+toḍari gālappuḍu tūrpettaka tānu ❘  
+viḍichi maRachina venaka vedakite galadā ‖
+
+bhavabandhunaku vidhipāpapuṇyapulaṅke ❘  
+tiviri yindune telivi telusukovalegāka ❘  
+avala vennelalone allunere ḻlinte ❘  
+niviri ninnaṭivuniki neṭiki galadā ‖
+
+dehadhāriki galade teganiyindriyabādha ❘  
+sāhasambuna bhakti sādhiñchavalegāka ❘  
+yihalanu śrīveṅkaṭeśudāsulavalana ❘  
+vūhiñchi gatigānaka vodigite galadā ‖
+
+### PlainEnglish
+
+#### annamayya keertana chaduvulone harina
+
+chaduvulone harini jaTTig.onaval.egaaka ❘  
+madamugappinameeda maguDa nadi galadaa ‖
+
+jaDamatiki sahajame saMsaarayaatana yidi ❘  
+kaDu niMdulo baramu gaDiyiMchaval.egaaka ❘  
+t.oDari gaalappuDu toorp.ettaka taanu ❘  
+viDichi maRachina v.enaka v.edakite galadaa ‖
+
+bhavabaMdhunaku vidhipaapapuNyapulaMk.e ❘  
+tiviri yiMdune t.elivi t.elusukoval.egaaka ❘  
+avala v.enn.elalone allunere LliMte ❘  
+niviri ninnaTivuniki neTiki galadaa ‖
+
+dehadhaariki galade t.eganiyiMdriyabaadha ❘  
+saahasaMbuna bhakti saadhiMchaval.egaaka ❘  
+yihalanu shreeveMkaTeshudaasulavalana ❘  
+voohiMchi gatigaanaka v.odigite galadaa ‖
+

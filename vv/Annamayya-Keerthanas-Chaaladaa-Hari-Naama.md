@@ -315,3 +315,49 @@ nagavu joopulanu nunnatam.epuDu joopa ‖
 సొగసి యీవిభుని దాసుల కరుణ చాలదా ❘  
 నగవు జూపులను నున్నతమెపుడు జూప ‖  
 
+### English
+
+#### annamayya kīrtana chāladā hari nāma
+
+rāgamu : haṃsadhvani  
+chāladā hari nāma saukhyāmṛtamu damaku ❘  
+chāladā hitavaina chavulellanu nosaga ‖
+
+idi yokaṭi hari nāma mintaina jāladā ❘  
+chedarakī janmamula cheralu viḍipiñcha ❘  
+madinokaṭe harināma mantramadi chāladā ❘  
+padivela naraka kūpamula veḍaliñcha ‖
+
+kaladokaṭi harināma kanakādri chāladā ❘  
+tolagumani dāridryadośhambu cherucha ❘  
+telivokaṭi harināmadīpa madi chāladā ❘  
+kaluśhampu kaṭhina chīkaṭi pāradrola ‖
+
+taguveṅkaṭeśu kīrtanamokaṭi chāladā ❘  
+jagamulo kalpabhūjambu vale nuṇḍa ❘  
+sogasi yīvibhuni dāsula karuṇa chāladā ❘  
+nagavu jūpulanu nunnatamepuḍu jūpa ‖
+
+### PlainEnglish
+
+#### annamayya keertana chaaladaa hari naama
+
+raagamu : haMsadhvani  
+chaaladaa hari naama saukhyaamRRitamu damaku ❘  
+chaaladaa hitavaina chavul.ellanu n.osaga ‖
+
+idi y.okaTi hari naama miMtaina jaaladaa ❘  
+ch.edarakee janmamula ch.eralu viDipiMcha ❘  
+madin.okaT.e harinaama maMtramadi chaaladaa ❘  
+padivela naraka koopamula v.eDaliMcha ‖
+
+kalad.okaTi harinaama kanakaadri chaaladaa ❘  
+t.olagumani daaridryadoshhaMbu ch.erucha ❘  
+t.eliv.okaTi harinaamadeepa madi chaaladaa ❘  
+kalushhaMpu kaThina cheekaTi paaradrola ‖
+
+taguveMkaTeshu keertanam.okaTi chaaladaa ❘  
+jagamulo kalpabhoojaMbu val.e nuMDa ❘  
+s.ogasi yeevibhuni daasula karuNa chaaladaa ❘  
+nagavu joopulanu nunnatam.epuDu joopa ‖
+

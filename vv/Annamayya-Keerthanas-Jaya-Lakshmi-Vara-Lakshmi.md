@@ -315,3 +315,49 @@ nidula nilicetalli neevaaramammaa ‖
 యెదుట శ్రీవేంకటేశునిల్లాలవై నీవు  
 నిదుల నిలిచేతల్లి నీవారమమ్మా ‖  
 
+### English
+
+#### annamayya kīrtana jaya lakśhmi vara lakśhmi
+
+rāgaṃ: lalita  
+jayalakśhmi varalakśhmi saṅgrāma vīralakśhmi ❘  
+priyurālavai harikiṃ berasitivammā ‖
+
+pālajalanidhiloni pasanainamīṅgaḍa  
+melimitāmaraloni miñcuvāsana ❘  
+nīlavarṇunuramupai niṇḍinanidhānamavai  
+yelevu lokamulu mammelavammā ‖
+
+candurutoḍaṃ buṭṭina sampadalameRuṅgavo  
+kanduva brahmalaṃ gācekalpavalli ❘  
+andinagovinduniki aṇḍane toḍunīḍavai  
+vundānavu mā^^iṇṭane vuṇḍavammā ‖
+
+padiyāruvannelato baṅgārupatima  
+cedaranivedamulacigurumboḍi ❘  
+yeduṭa śrīveṅkaṭeśunillālavai nīvu  
+nidula nilicetalli nīvāramammā ‖
+
+### PlainEnglish
+
+#### annamayya keertana jaya lakshhmi vara lakshhmi
+
+raagaM: lalita  
+jayalakshhmi varalakshhmi saMgraama veeralakshhmi ❘  
+priyuraalavai harikiM b.erasitivammaa ‖
+
+paalajalanidhiloni pasanainameeMgaDa  
+melimitaamaraloni miMcuvaasana ❘  
+neelavarNunuramupai niMDinanidhaanamavai  
+yelevu lokamulu mammelavammaa ‖
+
+caMdurutoDaM buTTina saMpadalam.eRuMgavo  
+kaMduva brahmalaM gaacekalpavalli ❘  
+aMdinagoviMduniki aMDane toDuneeDavai  
+vuMdaanavu maa^^iMTane vuMDavammaa ‖
+
+padiyaaruvann.elato baMgaarupatima  
+c.edaranivedamulaciguruMboDi ❘  
+y.eduTa shreeveMkaTeshunillaalavai neevu  
+nidula nilicetalli neevaaramammaa ‖
+

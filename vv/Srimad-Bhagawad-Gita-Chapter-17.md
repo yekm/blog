@@ -1290,3 +1290,249 @@ shraddhaatrayavibhaagayogo naama saptadasho.adhyaayaH ‖17 ‖
 
 శ్రద్ధాత్రయవిభాగయోగో నామ సప్తదశోఽధ్యాయః ‖17 ‖  
 
+### English
+
+#### śrīmad bhagavad gīta saptadaśoadhyāyaḥ
+
+atha saptadaśoadhyāyaḥ ❘  
+arjuna uvācha ❘  
+ye śāstravidhimutsṛjya yajante śraddhayānvitāḥ ❘  
+teśhāṃ niśhṭhā tu kā kṛśhṇa sattvamāho rajastamaḥ 
+‖ 1 ‖
+
+śrībhagavānuvācha ❘  
+trividhā bhavati śraddhā dehināṃ sā svabhāvajā ❘  
+sāttvikī rājasī chaiva tāmasī cheti tāṃ śṛṇu 
+‖ 2 ‖
+
+sattvānurūpā sarvasya śraddhā bhavati bhārata ❘  
+śraddhāmayoayaṃ puruśho yo yachChraddhaḥ sa eva saḥ 
+‖ 3 ‖
+
+yajante sāttvikā devānyakśharakśhāṃsi rājasāḥ ❘  
+pretānbhūtagaṇāṃśchānye yajante tāmasā janāḥ 
+‖ 4 ‖
+
+aśāstravihitaṃ ghoraṃ tapyante ye tapo janāḥ ❘  
+dambhāhaṅkārasaṃyuktāḥ kāmarāgabalānvitāḥ 
+‖ 5 ‖
+
+karśhayantaḥ śarīrasthaṃ bhūtagrāmamachetasaḥ ❘  
+māṃ chaivāntaḥśarīrasthaṃ tānviddhyāsuraniśchayān 
+‖ 6 ‖
+
+āhārastvapi sarvasya trividho bhavati priyaḥ ❘  
+yaGYastapastathā dānaṃ teśhāṃ bhedamimaṃ śṛṇu 
+‖ 7 ‖
+
+āyuḥsattvabalārogyasukhaprītivivardhanāḥ ❘  
+rasyāḥ snigdhāḥ sthirā hṛdyā āhārāḥ sāttvikapriyāḥ 
+‖ 8 ‖
+
+kaṭvamlalavaṇātyuśhṇatīkśhṇarūkśhavidāhinaḥ ❘  
+āhārā rājasasyeśhṭā duḥkhaśokāmayapradāḥ 
+‖ 9 ‖
+
+yātayāmaṃ gatarasaṃ pūti paryuśhitaṃ cha yat ❘  
+uchChiśhṭamapi chāmedhyaṃ bhojanaṃ tāmasapriyam 
+‖ 10 ‖
+
+aphalākāṅkśhibhiryaGYo vidhidṛśhṭo ya ijyate ❘  
+yaśhṭavyameveti manaḥ samādhāya sa sāttvikaḥ 
+‖ 11 ‖
+
+abhisandhāya tu phalaṃ dambhārthamapi chaiva yat ❘  
+ijyate bharataśreśhṭha taṃ yaGYaṃ viddhi rājasam 
+‖ 12 ‖
+
+vidhihīnamasṛśhṭānnaṃ mantrahīnamadakśhiṇam ❘  
+śraddhāvirahitaṃ yaGYaṃ tāmasaṃ parichakśhate 
+‖ 13 ‖
+
+devadvijaguruprāGYapūjanaṃ śauchamārjavam ❘  
+brahmacharyamahiṃsā cha śārīraṃ tapa uchyate 
+‖ 14 ‖
+
+anudvegakaraṃ vākyaṃ satyaṃ priyahitaṃ cha yat ❘  
+svādhyāyābhyasanaṃ chaiva vāṅmayaṃ tapa uchyate 
+‖ 15 ‖
+
+manaḥ prasādaḥ saumyatvaṃ maunamātmavinigrahaḥ ❘  
+bhāvasaṃśuddhirityetattapo mānasamuchyate 
+‖ 16 ‖
+
+śraddhayā parayā taptaṃ tapastattrividhaṃ naraiḥ ❘  
+aphalākāṅkśhibhiryuktaiḥ sāttvikaṃ parichakśhate 
+‖ 17 ‖
+
+satkāramānapūjārthaṃ tapo dambhena chaiva yat ❘  
+kriyate tadiha proktaṃ rājasaṃ chalamadhruvam 
+‖ 18 ‖
+
+mūḍhagrāheṇātmano yatpīḍayā kriyate tapaḥ ❘  
+parasyotsādanārthaṃ vā tattāmasamudāhṛtam 
+‖ 19 ‖
+
+dātavyamiti yaddānaṃ dīyateanupakāriṇe ❘  
+deśe kāle cha pātre cha taddānaṃ sāttvikaṃ smṛtam 
+‖ 20 ‖
+
+yattu prattyupakārārthaṃ phalamuddiśya vā punaḥ ❘  
+dīyate cha parikliśhṭaṃ taddānaṃ rājasaṃ smṛtam 
+‖ 21 ‖
+
+adeśakāle yaddānamapātrebhyaścha dīyate ❘  
+asatkṛtamavaGYātaṃ tattāmasamudāhṛtam 
+‖ 22 ‖
+
+oṃ tatsaditi nirdeśo brahmaṇastrividhaḥ smṛtaḥ ❘  
+brāhmaṇāstena vedāścha yaGYāścha vihitāḥ purā 
+‖ 23 ‖
+
+tasmādomityudāhṛtya yaGYadānatapaḥkriyāḥ ❘  
+pravartante vidhānoktāḥ satataṃ brahmavādinām 
+‖ 24 ‖
+
+tadityanabhisandhāya phalaṃ yaGYatapaḥkriyāḥ ❘  
+dānakriyāścha vividhāḥ kriyante mokśhakāṅkśhibhiḥ 
+‖ 25 ‖
+
+sadbhāve sādhubhāve cha sadityetatprayujyate ❘  
+praśaste karmaṇi tathā sachChabdaḥ pārtha yujyate 
+‖ 26 ‖
+
+yaGYe tapasi dāne cha sthitiḥ saditi chochyate ❘  
+karma chaiva tadarthīyaṃ sadityevābhidhīyate 
+‖ 27 ‖
+
+aśraddhayā hutaṃ dattaṃ tapastaptaṃ kṛtaṃ cha yat ❘  
+asadityuchyate pārtha na cha tatprepya no iha 
+‖ 28 ‖
+
+oṃ tatsaditi śrīmadbhagavadgītāsūpaniśhatsu brahmavidyāyāṃ yogaśāstre śrīkṛśhṇārjunasaṃvāde   
+śraddhātrayavibhāgayogo nāma saptadaśoadhyāyaḥ 
+‖17 ‖
+
+### PlainEnglish
+
+#### shreemad bhagavad geeta saptadasho.adhyaayaH
+
+atha saptadasho.adhyaayaH ❘  
+arjuna uvaacha ❘  
+ye shaastravidhimutsRRijya yajante shraddhayaanvitaaH ❘  
+teshhaaM nishhThaa tu kaa kRRishhNa sattvamaaho rajastamaH 
+‖ 1 ‖
+
+shreebhagavaanuvaacha ❘  
+trividhaa bhavati shraddhaa dehinaaM saa svabhaavajaa ❘  
+saattvikee raajasee chaiva taamasee cheti taaM shRRiNu 
+‖ 2 ‖
+
+sattvaanuroopaa sarvasya shraddhaa bhavati bhaarata ❘  
+shraddhaamayo.ayaM purushho yo yachChraddhaH sa eva saH 
+‖ 3 ‖
+
+yajante saattvikaa devaanyakshharakshhaaMsi raajasaaH ❘  
+pretaanbhootagaNaaMshchaanye yajante taamasaa janaaH 
+‖ 4 ‖
+
+ashaastravihitaM ghoraM tapyante ye tapo janaaH ❘  
+dambhaahaMkaarasaMyuktaaH kaamaraagabalaanvitaaH 
+‖ 5 ‖
+
+karshhayantaH shareerasthaM bhootagraamamachetasaH ❘  
+maaM chaivaantaHshareerasthaM taanviddhyaasuranishchayaan 
+‖ 6 ‖
+
+aahaarastvapi sarvasya trividho bhavati priyaH ❘  
+yagnyastapastathaa daanaM teshhaaM bhedamimaM shRRiNu 
+‖ 7 ‖
+
+aayuHsattvabalaarogyasukhapreetivivardhanaaH ❘  
+rasyaaH snigdhaaH sthiraa hRRidyaa aahaaraaH saattvikapriyaaH 
+‖ 8 ‖
+
+kaTvamlalavaNaatyushhNateekshhNarookshhavidaahinaH ❘  
+aahaaraa raajasasyeshhTaa duHkhashokaamayapradaaH 
+‖ 9 ‖
+
+yaatayaamaM gatarasaM pooti paryushhitaM cha yat ❘  
+uchChishhTamapi chaamedhyaM bhojanaM taamasapriyam 
+‖ 10 ‖
+
+aphalaakaankshhibhiryagnyo vidhidRRishhTo ya ijyate ❘  
+yashhTavyameveti manaH samaadhaaya sa saattvikaH 
+‖ 11 ‖
+
+abhisaMdhaaya tu phalaM dambhaarthamapi chaiva yat ❘  
+ijyate bharatashreshhTha taM yagnyaM viddhi raajasam 
+‖ 12 ‖
+
+vidhiheenamasRRishhTaannaM mantraheenamadakshhiNam ❘  
+shraddhaavirahitaM yagnyaM taamasaM parichakshhate 
+‖ 13 ‖
+
+devadvijagurupraagnyapoojanaM shauchamaarjavam ❘  
+brahmacharyamahiMsaa cha shaareeraM tapa uchyate 
+‖ 14 ‖
+
+anudvegakaraM vaakyaM satyaM priyahitaM cha yat ❘  
+svaadhyaayaabhyasanaM chaiva vaanmayaM tapa uchyate 
+‖ 15 ‖
+
+manaH prasaadaH saumyatvaM maunamaatmavinigrahaH ❘  
+bhaavasaMshuddhirityetattapo maanasamuchyate 
+‖ 16 ‖
+
+shraddhayaa parayaa taptaM tapastattrividhaM naraiH ❘  
+aphalaakaankshhibhiryuktaiH saattvikaM parichakshhate 
+‖ 17 ‖
+
+satkaaramaanapoojaarthaM tapo dambhena chaiva yat ❘  
+kriyate tadiha proktaM raajasaM chalamadhruvam 
+‖ 18 ‖
+
+mooDhagraaheNaatmano yatpeeDayaa kriyate tapaH ❘  
+parasyotsaadanaarthaM vaa tattaamasamudaahRRitam 
+‖ 19 ‖
+
+daatavyamiti yaddaanaM deeyate.anupakaariNe ❘  
+deshe kaale cha paatre cha taddaanaM saattvikaM smRRitam 
+‖ 20 ‖
+
+yattu prattyupakaaraarthaM phalamuddishya vaa punaH ❘  
+deeyate cha pariklishhTaM taddaanaM raajasaM smRRitam 
+‖ 21 ‖
+
+adeshakaale yaddaanamapaatrebhyashcha deeyate ❘  
+asatkRRitamavagnyaataM tattaamasamudaahRRitam 
+‖ 22 ‖
+
+oM tatsaditi nirdesho brahmaNastrividhaH smRRitaH ❘  
+braahmaNaastena vedaashcha yagnyaashcha vihitaaH puraa 
+‖ 23 ‖
+
+tasmaadomityudaahRRitya yagnyadaanatapaHkriyaaH ❘  
+pravartante vidhaanoktaaH satataM brahmavaadinaam 
+‖ 24 ‖
+
+tadityanabhisaMdhaaya phalaM yagnyatapaHkriyaaH ❘  
+daanakriyaashcha vividhaaH kriyante mokshhakaankshhibhiH 
+‖ 25 ‖
+
+sadbhaave saadhubhaave cha sadityetatprayujyate ❘  
+prashaste karmaNi tathaa sachChabdaH paartha yujyate 
+‖ 26 ‖
+
+yagnye tapasi daane cha sthitiH saditi chochyate ❘  
+karma chaiva tadartheeyaM sadityevaabhidheeyate 
+‖ 27 ‖
+
+ashraddhayaa hutaM dattaM tapastaptaM kRRitaM cha yat ❘  
+asadityuchyate paartha na cha tatprepya no iha 
+‖ 28 ‖
+
+oM tatsaditi shreemadbhagavadgeetaasoopanishhatsu brahmavidyaayaaM yogashaastre shreekRRishhNaarjunasaMvaade   
+shraddhaatrayavibhaagayogo naama saptadasho.adhyaayaH 
+‖17 ‖
+

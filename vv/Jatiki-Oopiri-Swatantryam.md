@@ -315,3 +315,49 @@ samaikya bhaarata saudhaagraM pai, shaaMti deepaM nilapaMDi ‖
 సమైక్య భారత సౌధాగ్రం పై, శాంతి దీపం నిలపండి ‖  
 
 
+### English
+
+#### jātiki ūpiri svātantryaṃ
+
+jātiki ūpiri svātantryaṃ, adi jyotiga velige caitanyaṃ  
+ā caitanyaṃ nilicina nāḍe samasta jagatiki saubhāgyaṃ ‖
+
+śikharaṃlā , prati maniśhī, śirasettina nāḍe,   
+jalanidhilā prati hṛdayaṃ alalettina nāḍe,  
+mānava jīvana gamanaṃlo māyani velugula mahodayaṃ ‖
+
+eppaṭi eppaṭi rucirasvapnaṃ, ī svātantryaṃ  
+endari endari tyāga phalaṃ, ī svātantryaṃ  
+andaka andaka andina phalamunu andarikī andivvaṇḍi ‖
+
+svarājya siddhiki lakśhyamemiṭo smariñcukoṇḍi  
+jāti vidhāta vinūtna phalālanu sādhiñcaṇḍi  
+samasyalannī pariśhkariñce saumya mārgaṃ cūpaṇḍi ‖
+
+kalatalu kakśhalu repoddu e kulaṃ peruto   
+māraṇa homaṃ jarapoddu e mataṃ musugulo  
+samaikya bhārata saudhāgraṃ pai, śānti dīpaṃ nilapaṇḍi ‖
+
+### PlainEnglish
+
+#### jaatiki oopiri svaataMtryaM
+
+jaatiki oopiri svaataMtryaM, adi jyotiga v.elige caitanyaM  
+aa caitanyaM nilicina naaDe samasta jagatiki saubhaagyaM ‖
+
+shikharaMlaa , prati manishhee, shiras.ettina naaDe,   
+jalanidhilaa prati hRRidayaM alal.ettina naaDe,  
+maanava jeevana gamanaMlo maayani v.elugula mahodayaM ‖
+
+.eppaTi .eppaTi rucirasvapnaM, ee svaataMtryaM  
+.eMdari .eMdari tyaaga phalaM, ee svaataMtryaM  
+aMdaka aMdaka aMdina phalamunu aMdarikee aMdivvaMDi ‖
+
+svaraajya siddhiki lakshhyamemiTo smariMcukoMDi  
+jaati vidhaata vinootna phalaalanu saadhiMcaMDi  
+samasyalannee parishhkariMce saumya maargaM coopaMDi ‖
+
+kalatalu kakshhalu rep.oddu e kulaM peruto   
+maaraNa homaM jarap.oddu e mataM musugulo  
+samaikya bhaarata saudhaagraM pai, shaaMti deepaM nilapaMDi ‖
+

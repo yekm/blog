@@ -445,3 +445,81 @@ vidyaaM shriyaM vimalasaukhyamanaMtakeertim ‖
 తస్మై దదాతి లలితా ఝటితి ప్రసన్నా  
 విద్యాం శ్రియం విమలసౌఖ్యమనంతకీర్తిమ్ ‖  
 
+### English
+
+#### lalitā pañcha ratnam
+
+prātaḥ smarāmi lalitāvadanāravindaṃ  
+bimbādharaṃ pṛthulamauktikaśobhināsam ❘  
+ākarṇadīrghanayanaṃ maṇikuṇḍalāḍhyaṃ  
+mandasmitaṃ mṛgamadojjvalaphāladeśam 
+‖ 1 ‖
+
+prātarbhajāmi lalitābhujakalpavallīṃ  
+raktāṅguḻīyalasadaṅguḻipallavāḍhyām ❘  
+māṇikyahemavalayāṅgadaśobhamānāṃ  
+puṇḍrekśhucāpakusumeśhusṛṇīrdadhānām 
+‖ 2 ‖
+
+prātarnamāmi lalitācaraṇāravindaṃ  
+bhakteśhṭadānanirataṃ bhavasindhupotam ❘  
+padmāsanādisuranāyakapūjanīyaṃ  
+padmāṅkuśadhvajasudarśanalāñChanāḍhyam 
+‖ 3 ‖
+
+prātaḥ stuve paraśivāṃ lalitāṃ bhavānīṃ  
+trayyantavedyavibhavāṃ karuṇānavadyām ❘  
+viśvasya sṛśhṭavilayasthitihetubhūtāṃ  
+vidyeśvarīṃ nigamavāṅmamanasātidūrām 
+‖ 4 ‖
+
+prātarvadāmi lalite tava puṇyanāma  
+kāmeśvarīti kamaleti maheśvarīti ❘  
+śrīśāmbhavīti jagatāṃ jananī pareti  
+vāgdevateti vacasā tripureśvarīti 
+‖ 5 ‖
+
+yaḥ ślokapañcakamidaṃ lalitāmbikāyāḥ  
+saubhāgyadaṃ sulalitaṃ paṭhati prabhāte ❘  
+tasmai dadāti lalitā jhaṭiti prasannā  
+vidyāṃ śriyaṃ vimalasaukhyamanantakīrtim ‖
+
+### PlainEnglish
+
+#### lalitaa paMcha ratnam
+
+praataH smaraami lalitaavadanaaraviMdaM  
+biMbaadharaM pRRithulamauktikashobhinaasam ❘  
+aakarNadeerghanayanaM maNikuMDalaaDhyaM  
+maMdasmitaM mRRigamadojjvalaphaaladesham 
+‖ 1 ‖
+
+praatarbhajaami lalitaabhujakalpavalleeM  
+raktaaMguLeeyalasadaMguLipallavaaDhyaam ❘  
+maaNikyahemavalayaaMgadashobhamaanaaM  
+puMDrekshhucaapakusumeshhusRRiNeerdadhaanaam 
+‖ 2 ‖
+
+praatarnamaami lalitaacaraNaaraviMdaM  
+bhakteshhTadaananirataM bhavasiMdhupotam ❘  
+padmaasanaadisuranaayakapoojaneeyaM  
+padmaaMkushadhvajasudarshanalaaMChanaaDhyam 
+‖ 3 ‖
+
+praataH stuve parashivaaM lalitaaM bhavaaneeM  
+trayyaMtavedyavibhavaaM karuNaanavadyaam ❘  
+vishvasya sRRishhTavilayasthitihetubhootaaM  
+vidyeshvareeM nigamavaanmamanasaatidooraam 
+‖ 4 ‖
+
+praatarvadaami lalite tava puNyanaama  
+kaameshvareeti kamaleti maheshvareeti ❘  
+shreeshaaMbhaveeti jagataaM jananee pareti  
+vaagdevateti vacasaa tripureshvareeti 
+‖ 5 ‖
+
+yaH shlokapaMcakamidaM lalitaaMbikaayaaH  
+saubhaagyadaM sulalitaM paThati prabhaate ❘  
+tasmai dadaati lalitaa jhaTiti prasannaa  
+vidyaaM shriyaM vimalasaukhyamanaMtakeertim ‖
+

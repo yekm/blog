@@ -1004,3 +1004,167 @@ shivalokamavaapnoti ekabilvaM shivaarpaNaM ‖
 శివలోకమవాప్నోతి ఏకబిల్వం శివార్పణం ‖  
 
 
+### English
+
+#### bilvāśhṭakam
+
+tridaḻaṃ triguṇākāraṃ trinetraṃ ca triyāyudhaṃ ❘  
+trijanma pāpasaṃhāraṃ ekabilvaṃ śivārpitaṃ 
+‖ 1 ‖
+
+triśākhaiḥ bilvapatraiśca acChidraiḥ komalaiḥ śubhaiḥ ❘  
+tavapūjāṃ kariśhyāmi ekabilvaṃ śivārpitaṃ 
+‖ 2 ‖
+
+darśanaṃ bilvavṛkśhasya sparśanaṃ pāpanāśanaṃ ❘  
+aghorapāpasaṃhāraṃ ekabilvaṃ śivārpitaṃ 
+‖ 3 ‖
+
+sālagrāmeśhu vipreśhu taṭāke vanakūpayoḥ ❘  
+yaGYnakoṭi sahasrāṇāṃ ekabilvaṃ śivārpitaṃ 
+‖ 4 ‖
+
+dantikoṭi sahasreśhu aśvamedha śatāni ca ❘  
+koṭikanyāpradānena ekabilvaṃ śivārpitaṃ 
+‖ 5 ‖
+
+ekaṃ cha bilvapatraiśca koṭiyaGYna phalaṃ labhet ❘  
+mahādevaiścha pūjārthaṃ ekabilvaṃ śivārpitaṃ 
+‖ 6 ‖
+
+kāśīkśhetre nivāsaṃ cha kālabhairava darśanaṃ ❘  
+gayāprayāga me dṛśhṭvā ekabilvaṃ śivārpitaṃ 
+‖ 7 ‖
+
+umayā saha deveśaṃ vāhanaṃ nandiśaṅkaraṃ ❘  
+muchyate sarvapāpebhyo ekabilvaṃ śivārpitaṃ 
+‖ 8 ‖
+
+iti śrī bilvāśhṭakam ‖
+
+----------------  
+vikalpa saṅkarpaṇa  
+tridaḻaṃ triguṇākāraṃ trinetraṃ ca triyāyudhaṃ ❘  
+trijanma pāpasaṃhāraṃ ekabilvaṃ śivārpaṇaṃ ‖
+
+triśākhaiḥ bilvapatraiśca acChidraiḥ komalaiḥ śubhaiḥ ❘  
+tavapūjāṃ kariśhyāmi ekabilvaṃ śivārpaṇaṃ ‖
+
+koṭi kanyā mahādānaṃ tilaparvata koṭayaḥ ❘  
+kāñcanaṃ śailadānena ekabilvaṃ śivārpaṇaṃ ‖
+
+kāśīkśhetra nivāsaṃ ca kālabhairava darśanaṃ ❘  
+prayāge mādhavaṃ dṛśhṭvā ekabilvaṃ śivārpaṇaṃ ‖
+
+induvāre vrataṃ sthitvā nirāhāro maheśvarāḥ ❘  
+naktaṃ hauśhyāmi deveśa ekabilvaṃ śivārpaṇaṃ ‖
+
+rāmaliṅga pratiśhṭhā ca vaivāhika kṛtaṃ tathā ❘  
+taṭākānica sandhānaṃ ekabilvaṃ śivārpaṇaṃ ‖
+
+akhaṇḍa bilvapatraṃ ca āyutaṃ śivapūjanaṃ ❘  
+kṛtaṃ nāma sahasreṇa ekabilvaṃ śivārpaṇaṃ ‖
+
+umayā sahadeveśa nandi vāhanameva ca ❘  
+bhasmalepana sarvāṅgaṃ ekabilvaṃ śivārpaṇaṃ ‖
+
+sālagrāmeśhu viprāṇāṃ taṭākaṃ daśakūpayoḥ ❘  
+yaGYnakoṭi sahasrasya ekabilvaṃ śivārpaṇaṃ ‖
+
+danti koṭi sahasreśhu aśvamedhaśatakratau cha ❘  
+koṭikanyā mahādānaṃ ekabilvaṃ śivārpaṇaṃ ‖
+
+bilvāṇāṃ darśanaṃ puṇyaṃ sparśanaṃ pāpanāśanaṃ ❘  
+aghora pāpasaṃhāraṃ ekabilvaṃ śivārpaṇaṃ ‖
+
+sahasraveda pāṭeśhu brahmastāpanamucyate ❘  
+anekavrata koṭīnāṃ ekabilvaṃ śivārpaṇaṃ ‖
+
+annadāna sahasreśhu sahasropanayanaṃ tadhā ❘  
+aneka janmapāpāni ekabilvaṃ śivārpaṇaṃ ‖
+
+bilvāśhṭakamidam puṇyaṃ yaḥ paṭheśśiva sannidhau ❘  
+śivalokamavāpnoti ekabilvaṃ śivārpaṇaṃ ‖
+
+### PlainEnglish
+
+#### bilvaashhTakam
+
+tridaLaM triguNaakaaraM trinetraM ca triyaayudhaM ❘  
+trijanma paapasaMhaaraM ekabilvaM shivaarpitaM 
+‖ 1 ‖
+
+trishaakhaiH bilvapatraishca acChidraiH komalaiH shubhaiH ❘  
+tavapoojaaM karishhyaami ekabilvaM shivaarpitaM 
+‖ 2 ‖
+
+darshanaM bilvavRRikshhasya sparshanaM paapanaashanaM ❘  
+aghorapaapasaMhaaraM ekabilvaM shivaarpitaM 
+‖ 3 ‖
+
+saalagraameshhu vipreshhu taTaake vanakoopayoH ❘  
+yagnynakoTi sahasraaNaaM ekabilvaM shivaarpitaM 
+‖ 4 ‖
+
+daMtikoTi sahasreshhu ashvamedha shataani ca ❘  
+koTikanyaapradaanena ekabilvaM shivaarpitaM 
+‖ 5 ‖
+
+ekaM cha bilvapatraishca koTiyagnyna phalaM labhet ❘  
+mahaadevaishcha poojaarthaM ekabilvaM shivaarpitaM 
+‖ 6 ‖
+
+kaasheekshhetre nivaasaM cha kaalabhairava darshanaM ❘  
+gayaaprayaaga me dRRishhTvaa ekabilvaM shivaarpitaM 
+‖ 7 ‖
+
+umayaa saha deveshaM vaahanaM naMdishaMkaraM ❘  
+muchyate sarvapaapebhyo ekabilvaM shivaarpitaM 
+‖ 8 ‖
+
+iti shree bilvaashhTakam ‖
+
+----------------  
+vikalpa saMkarpaNa  
+tridaLaM triguNaakaaraM trinetraM ca triyaayudhaM ❘  
+trijanma paapasaMhaaraM ekabilvaM shivaarpaNaM ‖
+
+trishaakhaiH bilvapatraishca acChidraiH komalaiH shubhaiH ❘  
+tavapoojaaM karishhyaami ekabilvaM shivaarpaNaM ‖
+
+koTi kanyaa mahaadaanaM tilaparvata koTayaH ❘  
+kaaMcanaM shailadaanena ekabilvaM shivaarpaNaM ‖
+
+kaasheekshhetra nivaasaM ca kaalabhairava darshanaM ❘  
+prayaage maadhavaM dRRishhTvaa ekabilvaM shivaarpaNaM ‖
+
+iMduvaare vrataM sthitvaa niraahaaro maheshvaraaH ❘  
+naktaM haushhyaami devesha ekabilvaM shivaarpaNaM ‖
+
+raamaliMga pratishhThaa ca vaivaahika kRRitaM tathaa ❘  
+taTaakaanica saMdhaanaM ekabilvaM shivaarpaNaM ‖
+
+akhaMDa bilvapatraM ca aayutaM shivapoojanaM ❘  
+kRRitaM naama sahasreNa ekabilvaM shivaarpaNaM ‖
+
+umayaa sahadevesha naMdi vaahanameva ca ❘  
+bhasmalepana sarvaaMgaM ekabilvaM shivaarpaNaM ‖
+
+saalagraameshhu vipraaNaaM taTaakaM dashakoopayoH ❘  
+yagnynakoTi sahasrasya ekabilvaM shivaarpaNaM ‖
+
+daMti koTi sahasreshhu ashvamedhashatakratau cha ❘  
+koTikanyaa mahaadaanaM ekabilvaM shivaarpaNaM ‖
+
+bilvaaNaaM darshanaM puNyaM sparshanaM paapanaashanaM ❘  
+aghora paapasaMhaaraM ekabilvaM shivaarpaNaM ‖
+
+sahasraveda paaTeshhu brahmastaapanamucyate ❘  
+anekavrata koTeenaaM ekabilvaM shivaarpaNaM ‖
+
+annadaana sahasreshhu sahasropanayanaM tadhaa ❘  
+aneka janmapaapaani ekabilvaM shivaarpaNaM ‖
+
+bilvaashhTakamidam puNyaM yaH paTheshshiva sannidhau ❘  
+shivalokamavaapnoti ekabilvaM shivaarpaNaM ‖
+

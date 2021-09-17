@@ -289,3 +289,47 @@ pai payi g.elicina prapannulaku ‖
 కాపుగ శరణాగతులే చుట్టాలు  
 పై పయి గెలిచిన ప్రపన్నులకు ‖  
 
+### English
+
+#### annamayya kīrtana kāmadhenuvide
+
+kāmadhenu vide kalpavṛkśha mide   
+prāmāṇyamu gala prapannulaku ‖
+
+harināmajapame ābharaṇambulu   
+paramātmuninuti parimaḻamu ❘  
+daraṇidaru pādaseve bhogamu   
+paramamberigina prapannulaku ‖
+
+devuni dhyānamu divyānnambulu   
+śrīvibhu bhakte jīvanamu ❘  
+āviśhṇu kaiṅkaryame saṃsāramu   
+pāvanulagu yī prapannulaku ‖
+
+yepuna śrīveṅkaṭeśuḍe sarvamu   
+dāpai yitani vandaname vidhi ❘  
+kāpuga śaraṇāgatule cuṭṭālu   
+pai payi gelicina prapannulaku ‖
+
+### PlainEnglish
+
+#### annamayya keertana kaamadhenuvide
+
+kaamadhenu vide kalpavRRikshha mide   
+praamaaNyamu gala prapannulaku ‖
+
+harinaamajapame aabharaNaMbulu   
+paramaatmuninuti parimaLamu ❘  
+daraNidaru paadaseve bhogamu   
+paramaMb.erigina prapannulaku ‖
+
+devuni dhyaanamu divyaannaMbulu   
+shreevibhu bhakte jeevanamu ❘  
+aavishhNu kaiMkaryame saMsaaramu   
+paavanulagu yee prapannulaku ‖
+
+yepuna shreeveMkaTeshuDe sarvamu   
+daapai yitani vaMdaname vidhi ❘  
+kaapuga sharaNaagatule cuTTaalu   
+pai payi g.elicina prapannulaku ‖
+

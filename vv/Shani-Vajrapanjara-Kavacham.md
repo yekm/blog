@@ -666,3 +666,109 @@ iti shree brahmaaMDapuraaNe brahmanaaradasaMvaade shanivajrapaMjara kavacaM saMp
 
 ఇతి శ్రీ బ్రహ్మాండపురాణే బ్రహ్మనారదసంవాదే శనివజ్రపంజర కవచం సంపూర్ణమ్ ‖  
 
+### English
+
+#### śani vajrapañjara kavacham
+
+nīlāmbaro nīlavapuḥ kirīṭī  
+gṛdhrasthitāstrakaro dhanuśhmān ❘  
+caturbhujaḥ sūryasutaḥ prasannaḥ  
+sadā mamasyādvaradaḥ praśāntaḥ ‖
+
+brahmā uvāca ❘  
+śṛṇudhvaṃ ṛśhayaḥ sarve śani pīḍāharaṃ mahat ❘  
+kavacaṃ śanirājasya saurairidamanuttamaṃ ‖
+
+kavacaṃ devatāvāsaṃ vajra pañjara saṃṅgakam ❘  
+śanaiścara prītikaraṃ sarvasaubhāgyadāyakam ‖
+
+atha śrī śani vajra pañjara kavacam ❘  
+oṃ śrī śanaiścaraḥ pātu bhālaṃ me sūryanandanaḥ ❘  
+netre Chāyātmajaḥ pātu pātu karṇau yamānujaḥ 
+‖ 1 ‖
+
+nāsāṃ vaivasvataḥ pātu mukhaṃ me bhāskaraḥ sadā ❘  
+snigdhakaṇṭhaśca me kaṇṭhaṃ bhujau pātu mahābhujaḥ 
+‖ 2 ‖
+
+skandhau pātu śaniścaiva karau pātu śubhapradaḥ ❘  
+vakśhaḥ pātu yamabhrātā kukśhiṃ pātvasitastathā 
+‖ 3 ‖
+
+nābhiṃ grahapatiḥ pātu mandaḥ pātu kaṭiṃ tathā ❘  
+ūrū mamāntakaḥ pātu yamo jānuyugaṃ tathā 
+‖ 4 ‖
+
+pādau mandagatiḥ pātu sarvāṅgaṃ pātu pippalaḥ ❘  
+aṅgopāṅgāni sarvāṇi rakśhen me sūryanandanaḥ 
+‖ 5 ‖
+
+phalaśrutiḥ  
+ityetatkavacam divyaṃ paṭhetsūryasutasya yaḥ ❘  
+na tasya jāyate pīḍā prīto bhavati sūryajaḥ ‖
+
+vyayajanmadvitīyastho mṛtyusthānagatopivā ❘  
+kalatrastho gatovāpi suprītastu sadā śaniḥ ‖
+
+aśhṭamastho sūryasute vyaye janmadvitīyage ❘  
+kavacaṃ paṭhate nityaṃ na pīḍā jāyate kvacit ‖
+
+ityetatkavacaṃ divyaṃ saureryannirmitaṃ purā ❘  
+dvādaśāśhṭamajanmasthadośhānnāśayate sadā ❘  
+janmalagnasthitān dośhān sarvānnāśayate prabhuḥ ‖
+
+iti śrī brahmāṇḍapurāṇe brahmanāradasaṃvāde śanivajrapañjara kavacaṃ sampūrṇam ‖
+
+### PlainEnglish
+
+#### shani vajrapaMjara kavacham
+
+neelaaMbaro neelavapuH kireeTee  
+gRRidhrasthitaastrakaro dhanushhmaan ❘  
+caturbhujaH sooryasutaH prasannaH  
+sadaa mamasyaadvaradaH prashaaMtaH ‖
+
+brahmaa uvaaca ❘  
+shRRiNudhvaM RRishhayaH sarve shani peeDaaharaM mahat ❘  
+kavacaM shaniraajasya saurairidamanuttamaM ‖
+
+kavacaM devataavaasaM vajra paMjara saMngakam ❘  
+shanaishcara preetikaraM sarvasaubhaagyadaayakam ‖
+
+atha shree shani vajra paMjara kavacam ❘  
+oM shree shanaishcaraH paatu bhaalaM me sooryanaMdanaH ❘  
+netre ChaayaatmajaH paatu paatu karNau yamaanujaH 
+‖ 1 ‖
+
+naasaaM vaivasvataH paatu mukhaM me bhaaskaraH sadaa ❘  
+snigdhakaMThashca me kaMThaM bhujau paatu mahaabhujaH 
+‖ 2 ‖
+
+skaMdhau paatu shanishcaiva karau paatu shubhapradaH ❘  
+vakshhaH paatu yamabhraataa kukshhiM paatvasitastathaa 
+‖ 3 ‖
+
+naabhiM grahapatiH paatu maMdaH paatu kaTiM tathaa ❘  
+ooroo mamaaMtakaH paatu yamo jaanuyugaM tathaa 
+‖ 4 ‖
+
+paadau maMdagatiH paatu sarvaaMgaM paatu pippalaH ❘  
+aMgopaaMgaani sarvaaNi rakshhen me sooryanaMdanaH 
+‖ 5 ‖
+
+phalashrutiH  
+ityetatkavacam divyaM paThetsooryasutasya yaH ❘  
+na tasya jaayate peeDaa preeto bhavati sooryajaH ‖
+
+vyayajanmadviteeyastho mRRityusthaanagatopivaa ❘  
+kalatrastho gatovaapi supreetastu sadaa shaniH ‖
+
+ashhTamastho sooryasute vyaye janmadviteeyage ❘  
+kavacaM paThate nityaM na peeDaa jaayate kvacit ‖
+
+ityetatkavacaM divyaM saureryannirmitaM puraa ❘  
+dvaadashaashhTamajanmasthadoshhaannaashayate sadaa ❘  
+janmalagnasthitaan doshhaan sarvaannaashayate prabhuH ‖
+
+iti shree brahmaaMDapuraaNe brahmanaaradasaMvaade shanivajrapaMjara kavacaM saMpoorNam ‖
+

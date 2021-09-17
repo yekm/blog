@@ -289,3 +289,47 @@ satamai yeep.eku saMtosa rasamu ‖
 ఇత్వుగ శ్రీవేంకటేశ కూడితివి ❘  
 సతమై యీపెకు సంతోస రసము ‖  
 
+### English
+
+#### annamayya kīrtana navarasamuladī naḻinākśhi
+
+navarasamuladī naḻinākśhi ❘  
+javakaṭṭi nīku javi sesīni ‖
+
+śṛṅgāra rasamu celiya mokambuna ❘  
+saṅgati vīrarasamu golla ❘  
+raṅgagu karuṇarasamu pedavulanu ❘  
+aṅgapu gucamula nadbhuta rasamu ‖
+
+celi hāsyarasamu celavula niṇḍī ❘  
+palucani naḍumuna bhayarasamu ❘  
+kaliki vāḍugannula bhībhatsamu ❘  
+ala boma jaṅkenala nade raudrambu ‖
+
+rati marapula śāntarasambade ❘  
+ati mohamu padiyavarasamu ❘  
+itvuga śrīveṅkaṭeśa kūḍitivi ❘  
+satamai yīpeku santosa rasamu ‖
+
+### PlainEnglish
+
+#### annamayya keertana navarasamuladee naLinaakshhi
+
+navarasamuladee naLinaakshhi ❘  
+javakaTTi neeku javi seseeni ‖
+
+shRRiMgaara rasamu c.eliya m.okaMbuna ❘  
+saMgati veerarasamu golla ❘  
+raMgagu karuNarasamu p.edavulanu ❘  
+aMgapu gucamula nadbhuta rasamu ‖
+
+c.eli haasyarasamu c.elavula niMDee ❘  
+palucani naDumuna bhayarasamu ❘  
+kaliki vaaDugannula bheebhatsamu ❘  
+ala b.oma jaMk.enala nad.e raudraMbu ‖
+
+rati marapula shaaMtarasaMbad.e ❘  
+ati mohamu padiyavarasamu ❘  
+itvuga shreeveMkaTesha kooDitivi ❘  
+satamai yeep.eku saMtosa rasamu ‖
+

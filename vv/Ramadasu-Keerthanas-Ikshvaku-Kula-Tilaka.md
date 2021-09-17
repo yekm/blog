@@ -445,3 +445,51 @@ neevu kshhemamuga shree raamadaasuni yelumu raamachaMdraa
 భక్తులందరిని పరిపాలించెడి శ్రీ రామచంద్రా  
 నీవు క్షేమముగ శ్రీ రామదాసుని యేలుము రామచంద్రా  
 
+### English
+
+#### rāmadāsu kīrtana ikśhvāku kula tilakā
+
+ikśhvāku kulatilakā ikanaina palukave rāmachandrā  
+nannu rakśhimpa kunnanu rakśhaku levariṅka rāmachandrā  
+cuṭṭu prākāramulu somputo kaṭṭisti rāmachandrā  
+ā prākāramuku baṭṭe padivela varahālu rāmachandrā  
+bharatunaku ceyisti paccala patakamu rāmachandrā  
+ā patakamunaku paṭṭe padivela varahālu rāmachandrā  
+śatrughnunaku ceyisti baṅgāru molatāḍu rāmachandrā  
+ā mola trāṭiki paṭṭe moharīlu padivelu rāmachandrā  
+lakśhmaṇunaku ceyisti mutyāla patakamu rāmachandrā  
+ā patakamunaku paṭṭe padivela varahālu rāmachandrā  
+sītammaku ceyisti cintāku patakamu rāmachandrā  
+ā patakamunaku paṭṭe padivela varahālu rāmachandrā  
+kaliki turāyi nīku melukuvaga ceyisti rāmachandrā  
+nīvu kulukucu tirigevu evarabba sommani rāmachandrā  
+nī taṇḍri daśaratha maharāju peṭṭenā rāmachandrā  
+leka nī māma janaka maharāju pampenā rāmachandrā  
+abba tiṭṭitinani āyāsa paḍavaddu rāmachandrā  
+ī debbala korvaka abba tiṭṭitinayyā rāmachandrā  
+bhaktulandarini paripāliñceḍi śrī rāmachandrā  
+nīvu kśhemamuga śrī rāmadāsuni yelumu rāmachandrā   
+### PlainEnglish
+
+#### raamadaasu keertana ikshhvaaku kula tilakaa
+
+ikshhvaaku kulatilakaa ikanaina palukave raamachaMdraa  
+nannu rakshhiMpa kunnanu rakshhaku l.evariMka raamachaMdraa  
+cuTTu praakaaramulu s.oMputo kaTTisti raamachaMdraa  
+aa praakaaramuku baTT.e padivela varahaalu raamachaMdraa  
+bharatunaku ceyisti paccala patakamu raamachaMdraa  
+aa patakamunaku paTT.e padivela varahaalu raamachaMdraa  
+shatrughnunaku ceyisti baMgaaru m.olataaDu raamachaMdraa  
+aa m.ola traaTiki paTT.e m.ohareelu padivelu raamachaMdraa  
+lakshhmaNunaku ceyisti mutyaala patakamu raamachaMdraa  
+aa patakamunaku paTT.e padivela varahaalu raamachaMdraa  
+seetammaku ceyisti ciMtaaku patakamu raamachaMdraa  
+aa patakamunaku paTT.e padivela varahaalu raamachaMdraa  
+kaliki turaayi neeku m.elukuvaga ceyisti raamachaMdraa  
+neevu kulukucu tirigevu .evarabba s.ommani raamachaMdraa  
+nee taMDri dasharatha maharaaju p.eTT.enaa raamachaMdraa  
+leka nee maama janaka maharaaju paMp.enaa raamachaMdraa  
+abba tiTTitinani aayaasa paDavaddu raamachaMdraa  
+ee d.ebbala korvaka abba tiTTitinayyaa raamachaMdraa  
+bhaktulaMdarini paripaaliMc.eDi shree raamachaMdraa  
+neevu kshhemamuga shree raamadaasuni yelumu raamachaMdraa   

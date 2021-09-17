@@ -341,3 +341,51 @@ m.erupu meghamu gooDi m.erasinaTluMD.e ‖
 మెరుపు మేఘము గూడి మెరసినట్లుండె ‖  
 
 
+### English
+
+#### annamayya kīrtana okapari kokapari
+
+rāgaṃ: kharaharapriya  
+peda tirumalācharyula rachana  
+okapari kokapari koyyāramai ❘  
+mokamuna kaḻalella molachinaṭluṇḍe ‖
+
+jagadekapatimena challina karpūradhūḻi ❘  
+jigikoni naluvaṅka chindagānu ❘  
+mogi chandramukhi nuramuna nilipegāna ❘  
+pogaru vennela digabosi naṭluṇḍe ‖
+
+porimerugu chekkula pūsina taṭṭupunugu ❘  
+karagi irudesala kāragānu ❘  
+karigamana vibhuḍu ganuka mohamadamu ❘  
+torigi sāmajasiri tolikinaṭluṇḍe ‖
+
+meraya śrīveṅkaṭeśumena siṅgāramugānu ❘  
+tarachaina sommulu dhariyiñchagā ❘  
+merugu boḍi alamelu maṅgayu tānu ❘  
+merupu meghamu gūḍi merasinaṭluṇḍe ‖
+
+### PlainEnglish
+
+#### annamayya keertana .okapari k.okapari
+
+raagaM: kharaharapriya  
+p.eda tirumalaacharyula rachana  
+.okapari k.okapari k.oyyaaramai ❘  
+m.okamuna kaLal.ella m.olachinaTluMD.e ‖
+
+jagadekapatimena challina karpooradhooLi ❘  
+jigik.oni naluvaMka chiMdagaanu ❘  
+m.ogi chaMdramukhi nuramuna nilip.egaana ❘  
+p.ogaru v.enn.ela digabosi naTluMD.e ‖
+
+p.orim.erugu ch.ekkula poosina taTTupunugu ❘  
+karagi irud.esala kaaragaanu ❘  
+karigamana vibhuDu ganuka mohamadamu ❘  
+t.origi saamajasiri t.olikinaTluMD.e ‖
+
+m.eraya shreeveMkaTeshumena siMgaaramugaanu ❘  
+tarachaina s.ommulu dhariyiMchagaa ❘  
+m.erugu boDi alamelu maMgayu taanu ❘  
+m.erupu meghamu gooDi m.erasinaTluMD.e ‖
+

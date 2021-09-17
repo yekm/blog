@@ -289,3 +289,45 @@ eevalane nee sharaNani .edanu, idiye paratatvamu naaku ‖
 శ్రీ వేంకటపతి నీవైతే మము చేకొని వున్న దైవ(ము)మని  
 ఈవలనే నీ శరణని ఎదను, ఇదియే పరతత్వము నాకు ‖  
 
+### English
+
+#### annamayya kīrtana enta mātramuna
+
+enta mātramuna evvaru talachina, antamātrame nīvu   
+antarāntaramuleñchi chūḍa, piṇḍante nippaṭi annaṭlu ‖
+
+koluturu mimu vaiśhṇavulu, kūrimito viśhṇuḍani   
+palukuduru mimu vedāntulu, parabrahmambanuchu ❘  
+talaturu mimu śaivulu, tagina bhaktulunū śivuḍanuchu   
+alari pogaḍuduru kāpālikulu, ādi bhairavuḍanuchu ❘  
+sari mimmuduru sākteyulu, śakti rūpu nīvanuchu   
+dariśanamulu mimu nānā vidhulanu, talupula koladula bhajinturu ❘  
+sirula mimune alpabuddi, talachinavāriki alpambagudavu   
+darimala mimune ghanamani talachina, ghanabuddhulaku ghanuḍavu ‖
+
+nīvalana korate ledu mari nīru koladi tāmaravu   
+āvala bhāgīradhi dari vāgula ā jalame ūrinayaṭlu ❘  
+śrī veṅkaṭapati nīvaite mamu chekoni vunna daiva(mu)mani   
+īvalane nī śaraṇani edanu, idiye paratatvamu nāku ‖
+
+### PlainEnglish
+
+#### annamayya keertana .eMta maatramuna
+
+.eMta maatramuna .evvaru talachina, aMtamaatrame neevu   
+aMtaraaMtaramul.eMchi chooDa, piMDaMte nippaTi annaTlu ‖
+
+k.oluturu mimu vaishhNavulu, koorimito vishhNuDani   
+palukuduru mimu vedaaMtulu, parabrahmaMbanuchu ❘  
+talaturu mimu shaivulu, tagina bhaktulunoo shivuDanuchu   
+alari p.ogaDuduru kaapaalikulu, aadi bhairavuDanuchu ❘  
+sari mimmuduru saakteyulu, shakti roopu neevanuchu   
+darishanamulu mimu naanaa vidhulanu, talupula k.oladula bhajiMturu ❘  
+sirula mimune alpabuddi, talachinavaariki alpaMbagudavu   
+darimala mimune ghanamani talachina, ghanabuddhulaku ghanuDavu ‖
+
+neevalana k.orate ledu mari neeru k.oladi taamaravu   
+aavala bhaageeradhi dari vaagula aa jalame oorinayaTlu ❘  
+shree veMkaTapati neevaite mamu chek.oni vunna daiva(mu)mani   
+eevalane nee sharaNani .edanu, idiye paratatvamu naaku ‖
+

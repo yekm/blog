@@ -6555,3 +6555,815 @@ dhootaas-tvaaM vidur-uttamottama phalaM shambho bhavat-sevakaaH 100
 మాహాత్మ్యాగ్ర-విచారణ-ప్రకరణే ధానా-తుశస్తోమవద్-  
 ధూతాస్-త్వాం విదుర్-ఉత్తమోత్తమ ఫలం శంభో భవత్-సేవకాః 100  
 
+### English
+
+#### śivānanda lahari
+
+kalābhyāṃ cūḍālaṅkṛta-śaśi kalābhyāṃ nija tapaḥ-  
+phalābhyāṃ bhakteśu prakaṭita-phalābhyāṃ bhavatu me ❘  
+śivābhyāṃ-astoka-tribhuvana śivābhyāṃ hṛdi punar-  
+bhavābhyāṃ ānanda sphura-danubhavābhyāṃ natiriyam 
+‖ 1 ‖
+
+galantī śambho tvac-carita-saritaḥ kilbiśa-rajo  
+dalantī dhīkulyā-saraṇiśu patantī vijayatām  
+diśantī saṃsāra-bhramaṇa-paritāpa-upaśamanaṃ  
+vasantī mac-ceto-hṛdabhuvi śivānanda-laharī 2  
+trayī-vedyaṃ hṛdyaṃ tri-pura-haraṃ ādyaṃ tri-nayanaṃ  
+jaṭā-bhārodāraṃ calad-uraga-hāraṃ mṛga dharam  
+mahā-devaṃ devaṃ mayi sadaya-bhāvaṃ paśu-patiṃ  
+cid-ālambaṃ sāmbaṃ śivam-ati-viḍambaṃ hṛdi bhaje 3  
+sahasraṃ vartante jagati vibudhāḥ kśudra-phaladā  
+na manye svapne vā tad-anusaraṇaṃ tat-kṛta-phalam  
+hari-brahmādīnāṃ-api nikaṭa-bhājāṃ-asulabhaṃ  
+ciraṃ yāce śambho śiva tava padāmbhoja-bhajanam 4  
+smṛtau śāstre vaidye śakuna-kavitā-gāna-phaṇitau  
+purāṇe mantre vā stuti-naṭana-hāsyeśu-acaturaḥ  
+kathaṃ rājnāṃ prītir-bhavati mayi ko(a)haṃ paśu-pate  
+paśuṃ māṃ sarvajna prathita-kṛpayā pālaya vibho 5  
+ghaṭo vā mṛt-piṇḍo-api-aṇur-api ca dhūmo-agnir-acalaḥ  
+paṭo vā tantur-vā pariharati kiṃ ghora-śamanam  
+vṛthā kaṇṭha-kśobhaṃ vahasi tarasā tarka-vacasā  
+padāmbhojaṃ śambhor-bhaja parama-saukhyaṃ vraja sudhīḥ 6  
+manas-te pādābje nivasatu vacaḥ stotra-phaṇitau  
+karau ca-abhyarcāyāṃ śrutir-api kathākarṇana-vidhau  
+tava dhyāne buddhir-nayana-yugalaṃ mūrti-vibhave  
+para-granthān kair-vā parama-śiva jāne param-ataḥ 7  
+yathā buddhiḥ-śuktau rajataṃ iti kācāśmani maṇir-  
+jale paiśṭe kśīraṃ bhavati mṛga-tṛśṇāsu salilam  
+tathā deva-bhrāntyā bhajati bhavad-anyaṃ jaḍa jano  
+mahā-deveśaṃ tvāṃ manasi ca na matvā paśu-pate 8  
+gabhīre kāsāre viśati vijane ghora-vipine  
+viśāle śaile ca bhramati kusumārthaṃ jaḍa-matiḥ  
+samarpyaikaṃ cetaḥ-sarasijaṃ umā nātha bhavate  
+sukhena-avasthātuṃ jana iha na jānāti kim-aho 9  
+naratvaṃ devatvaṃ naga-vana-mṛgatvaṃ maśakatā  
+paśutvaṃ kīṭatvaṃ bhavatu vihagatvādi-jananam  
+sadā tvat-pādābja-smaraṇa-paramānanda-laharī  
+vihārāsaktaṃ ced-hṛdayaṃ-iha kiṃ tena vapuśā 10  
+vaṭurvā gehī vā yatir-api jaṭī vā taditaro  
+naro vā yaḥ kaścid-bhavatu bhava kiṃ tena bhavati  
+yadīyaṃ hṛt-padmaṃ yadi bhavad-adhīnaṃ paśu-pate  
+tadīyas-tvaṃ śambho bhavasi bhava bhāraṃ ca vahasi 11  
+guhāyāṃ gehe vā bahir-api vane vā(a)dri-śikhare  
+jale vā vahnau vā vasatu vasateḥ kiṃ vada phalam  
+sadā yasyaivāntaḥkaraṇam-api śambo tava pade  
+sthitaṃ ced-yogo(a)sau sa ca parama-yogī sa ca sukhī 12  
+asāre saṃsāre nija-bhajana-dūre jaḍadhiyā  
+bharamantaṃ mām-andhaṃ parama-kṛpayā pātum ucitam  
+mad-anyaḥ ko dīnas-tava kṛpaṇa-rakśāti-nipuṇas-  
+tvad-anyaḥ ko vā me tri-jagati śaraṇyaḥ paśu-pate 13  
+prabhus-tvaṃ dīnānāṃ khalu parama-bandhuḥ paśu-pate  
+pramukhyo(a)haṃ teśām-api kim-uta bandhutvam-anayoḥ  
+tvayaiva kśantavyāḥ śiva mad-aparādhāś-ca sakalāḥ  
+prayatnāt-kartavyaṃ mad-avanam-iyaṃ bandhu-saraṇiḥ 14  
+upekśā no cet kiṃ na harasi bhavad-dhyāna-vimukhāṃ  
+durāśā-bhūyiśṭhāṃ vidhi-lipim-aśakto yadi bhavān  
+śiras-tad-vadidhātraṃ na nakhalu suvṛttaṃ paśu-pate  
+kathaṃ vā nir-yatnaṃ kara-nakha-mukhenaiva lulitam 15  
+virincir-dīrghāyur-bhavatu bhavatā tat-para-śiraś-  
+catuśkaṃ saṃrakśyaṃ sa khalu bhuvi dainyaṃ likhitavān  
+vicāraḥ ko vā māṃ viśada-kṛpayā pāti śiva te  
+kaṭākśa-vyāpāraḥ svayam-api ca dīnāvana-paraḥ 16  
+phalād-vā puṇyānāṃ mayi karuṇayā vā tvayi vibho  
+prasanne(a)pi svāmin bhavad-amala-pādābja-yugalam  
+kathaṃ paśyeyaṃ māṃ sthagayati namaḥ-sambhrama-juśāṃ  
+nilimpānāṃ śreṇir-nija-kanaka-māṇikya-makuṭaiḥ 17  
+tvam-eko lokānāṃ parama-phalado divya-padavīṃ  
+vahantas-tvanmūlāṃ punar-api bhajante hari-mukhāḥ  
+kiyad-vā dākśiṇyaṃ tava śiva madāśā ca kiyatī  
+kadā vā mad-rakśāṃ vahasi karuṇā-pūrita-dṛśā 18  
+durāśā-bhūyiśṭhe duradhipa-gṛha-dvāra-ghaṭake  
+durante saṃsāre durita-nilaye duḥkha janake  
+madāyāsam kiṃ na vyapanayasi kasyopakṛtaye  
+vadeyaṃ prītiś-cet tava śiva kṛtārthāḥ khalu vayam 19  
+sadā mohāṭavyāṃ carati yuvatīnāṃ kuca-girau  
+naṭaty-āśā-śākhās-vaṭati jhaṭiti svairam-abhitaḥ  
+kapālin bhikśo me hṛdaya-kapim-atyanta-capalaṃ  
+dṛḍhaṃ bhaktyā baddhvā śiva bhavad-adhīnaṃ kuru vibho 20  
+dhṛti-stambhādhāraṃ dṛḍha-guṇa nibaddhāṃ sagamanāṃ  
+vicitrāṃ padmāḍhyāṃ prati-divasa-sanmārga-ghaṭitām  
+smarāre maccetaḥ-sphuṭa-paṭa-kuṭīṃ prāpya viśadāṃ  
+jaya svāmin śaktyā saha śiva gaṇaiḥ-sevita vibho 21  
+pralobhādyair-arthāharaṇa-para-tantro dhani-gṛhe  
+praveśodyuktaḥ-san bhramati bahudhā taskara-pate  
+imaṃ cetaś-coraṃ katham-iha sahe śankara vibho  
+tavādhīnaṃ kṛtvā mayi niraparādhe kuru kṛpām 22  
+karomi tvat-pūjāṃ sapadi sukhado me bhava vibho  
+vidhitvaṃ viśṇutvam diśasi khalu tasyāḥ phalam-iti  
+punaśca tvāṃ draśṭuṃ divi bhuvi vahan pakśi-mṛgatām-  
+adṛśṭvā tat-khedaṃ katham-iha sahe śankara vibho 23  
+kadā vā kailāse kanaka-maṇi-saudhe saha-gaṇair-  
+vasan śambhor-agre sphuṭa-ghaṭita-mūrdhānjali-puṭaḥ  
+vibho sāmba svāmin parama-śiva pāhīti nigadan  
+vidhātṛṛṇāṃ kalpān kśaṇam-iva vineśyāmi sukhataḥ 24  
+stavair-brahmādīnāṃ jaya-jaya-vacobhir-niyamānāṃ  
+gaṇānāṃ kelībhir-madakala-mahokśasya kakudi  
+sthitaṃ nīla-grīvaṃ tri-nayanaṃ-umāśliśṭa-vapuśaṃ  
+kadā tvāṃ paśyeyaṃ kara-dhṛta-mṛgaṃ khaṇḍa-paraśum 25  
+kadā vā tvāṃ dṛśṭvā giriśa tava bhavyānghri-yugalaṃ  
+gṛhītvā hastābhyāṃ śirasi nayane vakśasi vahan  
+samāśliśyāghrāya sphuṭa-jalaja-gandhān parimalān-  
+alabhyāṃ brahmādyair-mudam-anubhaviśyāmi hṛdaye 26  
+karasthe hemādrau giriśa nikaṭasthe dhana-patau  
+gṛhasthe svarbhūjā(a)mara-surabhi-cintāmaṇi-gaṇe  
+śirasthe śītāṃśau caraṇa-yugalasthe(a)khila śubhe  
+kam-arthaṃ dāsye(a)haṃ bhavatu bhavad-arthaṃ mama manaḥ 27  
+sārūpyaṃ tava pūjane śiva mahā-deveti saṅkīrtane  
+sāmīpyaṃ śiva bhakti-dhurya-janatā-sāṅgatya-sambhāśaṇe  
+sālokyaṃ ca carācarātmaka-tanu-dhyāne bhavānī-pate  
+sāyujyaṃ mama siddhim-atra bhavati svāmin kṛtārthosmyaham 28  
+tvat-pādāmbujam-arcayāmi paramaṃ tvāṃ cintayāmi-anvahaṃ  
+tvām-īśaṃ śaraṇaṃ vrajāmi vacasā tvām-eva yāce vibho  
+vīkśāṃ me diśa cākśuśīṃ sa-karuṇāṃ divyaiś-ciraṃ prārthitāṃ  
+śambho loka-guro madīya-manasaḥ saukhyopadeśaṃ kuru 29  
+vastrod-dhūta vidhau sahasra-karatā puśpārcane viśṇutā  
+gandhe gandha-vahātmatā(a)nna-pacane bahir-mukhādhyakśatā  
+pātre kāncana-garbhatāsti mayi ced bālendu cūḍā-maṇe  
+śuśrūśāṃ karavāṇi te paśu-pate svāmin tri-lokī-guro 30  
+nālaṃ vā paramopakārakam-idaṃ tvekaṃ paśūnāṃ pate  
+paśyan kukśi-gatān carācara-gaṇān bāhyasthitān rakśitum  
+sarvāmartya-palāyanauśadham-ati-jvālā-karaṃ bhī-karaṃ  
+nikśiptaṃ garalaṃ gale na galitaṃ nodgīrṇam-eva-tvayā 31  
+jvālograḥ sakalāmarāti-bhayadaḥ kśvelaḥ kathaṃ vā tvayā  
+dṛśṭaḥ kiṃ ca kare dhṛtaḥ kara-tale kiṃ pakva-jambū-phalam  
+jihvāyāṃ nihitaśca siddha-ghuṭikā vā kaṇṭha-deśe bhṛtaḥ  
+kiṃ te nīla-maṇir-vibhūśaṇam-ayaṃ śambho mahātman vada 32  
+nālaṃ vā sakṛd-eva deva bhavataḥ sevā natir-vā nutiḥ  
+pūjā vā smaraṇaṃ kathā-śravaṇam-api-ālokanaṃ mādṛśām  
+svāminn-asthira-devatānusaraṇāyāsena kiṃ labhyate  
+kā vā muktir-itaḥ kuto bhavati cet kiṃ prārthanīyaṃ tadā 33  
+kiṃ brūmas-tava sāhasaṃ paśu-pate kasyāsti śambho bhavad-  
+dhairyaṃ cedṛśam-ātmanaḥ-sthitir-iyaṃ cānyaiḥ kathaṃ labhyate  
+bhraśyad-deva-gaṇaṃ trasan-muni-gaṇaṃ naśyat-prapancaṃ layaṃ  
+paśyan-nirbhaya eka eva viharati-ānanda-sāndro bhavān 34  
+yoga-kśema-dhuraṃ-dharasya sakalaḥ-śreyaḥ pradodyogino  
+dṛśṭādṛśṭa-matopadeśa-kṛtino bāhyāntara-vyāpinaḥ  
+sarvajnasya dayā-karasya bhavataḥ kiṃ veditavyaṃ mayā  
+śambho tvaṃ paramāntaraṅga iti me citte smarāmi-anvaham 35  
+bhakto bhakti-guṇāvṛte mud-amṛtā-pūrṇe prasanne manaḥ  
+kumbhe sāmba tavānghri-pallava yugaṃ saṃsthāpya saṃvit-phalam  
+sattvaṃ mantram-udīrayan-nija śarīrāgāra śuddhiṃ vahan  
+puṇyāhaṃ prakaṭī karomi ruciraṃ kalyāṇam-āpādayan 36  
+āmnāyāmbudhim-ādareṇa sumanaḥ-sanghāḥ-samudyan-mano  
+manthānaṃ dṛḍha bhakti-rajju-sahitaṃ kṛtvā mathitvā tataḥ  
+somaṃ kalpa-taruṃ su-parva-surabhiṃ cintā-maṇiṃ dhīmatāṃ  
+nityānanda-sudhāṃ nirantara-ramā-saubhāgyam-ātanvate 37  
+prāk-puṇyācala-mārga-darśita-sudhā-mūrtiḥ prasannaḥ-śivaḥ  
+somaḥ-sad-guṇa-sevito mṛga-dharaḥ pūrṇās-tamo-mocakaḥ  
+cetaḥ puśkara-lakśito bhavati ced-ānanda-pātho-nidhiḥ  
+prāgalbhyena vijṛmbhate sumanasāṃ vṛttis-tadā jāyate 38  
+dharmo me catur-anghrikaḥ sucaritaḥ pāpaṃ vināśaṃ gataṃ  
+kāma-krodha-madādayo vigalitāḥ kālāḥ sukhāviśkṛtāḥ  
+jnānānanda-mahauśadhiḥ suphalitā kaivalya nāthe sadā  
+mānye mānasa-puṇḍarīka-nagare rājāvataṃse sthite 39  
+dhī-yantreṇa vaco-ghaṭena kavitā-kulyopakulyākramair-  
+ānītaiśca sadāśivasya caritāmbho-rāśi-divyāmṛtaiḥ  
+hṛt-kedāra-yutāś-ca bhakti-kalamāḥ sāphalyam-ātanvate  
+durbhikśān-mama sevakasya bhagavan viśveśa bhītiḥ kutaḥ 40  
+pāpotpāta-vimocanāya ruciraiśvaryāya mṛtyuṃ-jaya  
+stotra-dhyāna-nati-pradikśiṇa-saparyālokanākarṇane  
+jihvā-citta-śironghri-hasta-nayana-śrotrair-aham prārthito  
+mām-ājnāpaya tan-nirūpaya muhur-māmeva mā me(a)vacaḥ 41  
+gāmbhīryaṃ parikhā-padaṃ ghana-dhṛtiḥ prākāra-udyad-guṇa  
+stomaś-cāpta-balaṃ ghanendriya-cayo dvārāṇi dehe sthitaḥ  
+vidyā-vastu-samṛddhir-iti-akhila-sāmagrī-samete sadā  
+durgāti-priya-deva māmaka-mano-durge nivāsaṃ kuru 42  
+mā gaccha tvam-itas-tato giriśa bho mayyeva vāsaṃ kuru  
+svāminn-ādi kirāta māmaka-manaḥ kāntāra-sīmāntare  
+vartante bahuśo mṛgā mada-juśo mātsarya-mohādayas-  
+tān hatvā mṛgayā-vinoda rucitā-lābhaṃ ca samprāpsyasi 43  
+kara-lagna mṛgaḥ karīndra-bhango  
+ghana śārdūla-vikhaṇḍano(a)sta-jantuḥ  
+giriśo viśad-ākṛtiś-ca cetaḥ  
+kuhare panca mukhosti me kuto bhīḥ 44  
+chandaḥ-śākhi-śikhānvitair-dvija-varaiḥ saṃsevite śāśvate  
+saukhyāpādini kheda-bhedini sudhā-sāraiḥ phalair-dīpite  
+cetaḥ pakśi-śikhā-maṇe tyaja vṛthā-sancāram-anyair-alaṃ  
+nityaṃ śankara-pāda-padma-yugalī-nīḍe vihāraṃ kuru 45  
+ākīrṇe nakha-rāji-kānti-vibhavair-udyat-sudhā-vaibhavair-  
+ādhautepi ca padma-rāga-lalite haṃsa-vrajair-āśrite  
+nityaṃ bhakti-vadhū gaṇaiś-ca rahasi svecchā-vihāraṃ kuru  
+sthitvā mānasa-rāja-haṃsa girijā nāthānghri-saudhāntare 46  
+śambhu-dhyāna-vasanta-sangini hṛdārāme(a)gha-jīrṇacchadāḥ  
+srastā bhakti latācchaṭā vilasitāḥ puṇya-pravāla-śritāḥ  
+dīpyante guṇa-korakā japa-vacaḥ puśpāṇi sad-vāsanā  
+jnānānanda-sudhā-maranda-laharī saṃvit-phalābhyunnatiḥ 47  
+nityānanda-rasālayaṃ sura-muni-svāntāmbujātāśrayaṃ  
+svacchaṃ sad-dvija-sevitaṃ kaluśa-hṛt-sad-vāsanāviśkṛtam  
+śambhu-dhyāna-sarovaraṃ vraja mano-haṃsāvataṃsa sthiraṃ  
+kiṃ kśudrāśraya-palvala-bhramaṇa-sañjāta-śramaṃ prāpsyasi 48  
+ānandāmṛta-pūritā hara-padāmbhojālavālodyatā  
+sthairyopaghnam-upetya bhakti latikā śākhopaśākhānvitā  
+ucchair-mānasa-kāyamāna-paṭalīm-ākramya niś-kalmaśā  
+nityābhīśṭa-phala-pradā bhavatu me sat-karma-saṃvardhitā 49  
+sandhyārambha-vijṛmbhitaṃ śruti-śira-sthānāntar-ādhiśṭhitaṃ  
+sa-prema bhramarābhirāmam-asakṛt sad-vāsanā-śobhitam  
+bhogīndrābharaṇaṃ samasta-sumanaḥ-pūjyaṃ guṇāviśkṛtaṃ  
+seve śrī-giri-mallikārjuna-mahā-lingaṃ śivālingitam 50  
+bhṛngīcchā-naṭanotkaṭaḥ kari-mada-grāhī sphuran-mādhava-  
+āhlādo nāda-yuto mahāsita-vapuḥ panceśuṇā cādṛtaḥ  
+sat-pakśaḥ sumano-vaneśu sa punaḥ sākśān-madīye mano  
+rājīve bhramarādhipo viharatāṃ śrī śaila-vāsī vibhuḥ 51  
+kāruṇyāmṛta-varśiṇaṃ ghana-vipad-grīśmacchidā-karmaṭhaṃ  
+vidyā-sasya-phalodayāya sumanaḥ-saṃsevyam-icchākṛtim  
+nṛtyad-bhakta-mayūram-adri-nilayaṃ cancaj-jaṭā-maṇḍalaṃ  
+śambho vānchati nīla-kandhara-sadā tvāṃ me manaś-cātakaḥ 52  
+ākāśena śikhī samasta phaṇināṃ netrā kalāpī natā-  
+(a)nugrāhi-praṇavopadeśa-ninadaiḥ kekīti yo gīyate  
+śyāmāṃ śaila-samudbhavāṃ ghana-ruciṃ dṛśṭvā naṭantaṃ mudā  
+vedāntopavane vihāra-rasikaṃ taṃ nīla-kaṇṭhaṃ bhaje 53  
+sandhyā gharma-dinātyayo hari-karāghāta-prabhūtānaka-  
+dhvāno vārida garjitaṃ diviśadāṃ dṛśṭicchaṭā cancalā  
+bhaktānāṃ paritośa bāśpa vitatir-vṛśṭir-mayūrī śivā  
+yasminn-ujjvala-tāṇḍavaṃ vijayate taṃ nīla-kaṇṭhaṃ bhaje 54  
+ādyāyāmita-tejase-śruti-padair-vedyāya sādhyāya te  
+vidyānanda-mayātmane tri-jagataḥ-saṃrakśaṇodyogine  
+dhyeyāyākhila-yogibhiḥ-sura-gaṇair-geyāya māyāvine  
+samyak tāṇḍava-sambhramāya jaṭine seyaṃ natiḥ-śambhave 55  
+nityāya tri-guṇātmane pura-jite kātyāyanī-śreyase  
+satyāyādi kuṭumbine muni-manaḥ pratyakśa-cin-mūrtaye  
+māyā-sṛśṭa-jagat-trayāya sakala-āmnāyānta-sancāriṇe  
+sāyaṃ tāṇḍava-sambhramāya jaṭine seyaṃ natiḥ-śambhave 56  
+nityaṃ svodara-pośaṇāya sakalān-uddiśya vittāśayā  
+vyarthaṃ paryaṭanaṃ karomi bhavataḥ-sevāṃ na jāne vibho  
+maj-janmāntara-puṇya-pāka-balatas-tvaṃ śarva sarvāntaras-  
+tiśṭhasyeva hi tena vā paśu-pate te rakśaṇīyo(a)smyaham 57  
+eko vārija-bāndhavaḥ kśiti-nabho vyāptaṃ tamo-maṇḍalaṃ  
+bhitvā locana-gocaropi bhavati tvaṃ koṭi-sūrya-prabhaḥ  
+vedyaḥ kiṃ na bhavasyaho ghana-taraṃ kīdṛngbhaven-mattamas-  
+tat-sarvaṃ vyapanīya me paśu-pate sākśāt prasanno bhava 58  
+haṃsaḥ padma-vanaṃ samicchati yathā nīlāmbudaṃ cātakaḥ  
+kokaḥ koka-nada-priyaṃ prati-dinaṃ candraṃ cakoras-tathā  
+ceto vānchati māmakaṃ paśu-pate cin-mārga mṛgyaṃ vibho  
+gaurī nātha bhavat-padābja-yugalaṃ kaivalya-saukhya-pradam 59  
+rodhas-toyahṛtaḥ śrameṇa-pathikaś-chāyāṃ taror-vṛśṭitaḥ  
+bhītaḥ svastha gṛhaṃ gṛhastham-atithir-dīnaḥ prabhaṃ dhārmikam  
+dīpaṃ santamasākulaś-ca śikhinaṃ śītāvṛtas-tvaṃ tathā  
+cetaḥ-sarva-bhayāpahaṃ-vraja sukhaṃ śambhoḥ padāmbhoruham 60  
+ankolaṃ nija bīja santatir-ayaskāntopalaṃ sūcikā  
+sādhvī naija vibhuṃ latā kśiti-ruhaṃ sindhuh-sarid-vallabham  
+prāpnotīha yathā tathā paśu-pateḥ pādāravinda-dvayaṃ  
+cetovṛttir-upetya tiśṭhati sadā sā bhaktir-iti-ucyate 61  
+ānandāśrubhir-ātanoti pulakaṃ nairmalyataś-chādanaṃ  
+vācā śankha mukhe sthitaiś-ca jaṭharā-pūrtiṃ caritrāmṛtaiḥ  
+rudrākśair-bhasitena deva vapuśo rakśāṃ bhavad-bhāvanā-  
+paryanke viniveśya bhakti jananī bhaktārbhakaṃ rakśati 62  
+mārgā-vartita pādukā paśu-pater-aṅgasya kūrcāyate  
+gaṇḍūśāmbu-niśecanaṃ pura-ripor-divyābhiśekāyate  
+kincid-bhakśita-māṃsa-śeśa-kabalaṃ navyopahārāyate  
+bhaktiḥ kiṃ na karoti-aho vana-caro bhaktāvatamsāyate 63  
+vakśastāḍanam-antakasya kaṭhināpasmāra sammardanaṃ  
+bhū-bhṛt-paryaṭanaṃ namat-sura-śiraḥ-koṭīra sangharśaṇam  
+karmedaṃ mṛdulasya tāvaka-pada-dvandvasya gaurī-pate  
+macceto-maṇi-pādukā-viharaṇaṃ śambho sadāngī-kuru 64  
+vakśas-tāḍana śankayā vicalito vaivasvato nirjarāḥ  
+koṭīrojjvala-ratna-dīpa-kalikā-nīrājanaṃ kurvate  
+dṛśṭvā mukti-vadhūs-tanoti nibhṛtāśleśaṃ bhavānī-pate  
+yac-cetas-tava pāda-padma-bhajanaṃ tasyeha kiṃ dur-labham 65  
+krīḍārthaṃ sṛjasi prapancam-akhilaṃ krīḍā-mṛgās-te janāḥ  
+yat-karmācaritaṃ mayā ca bhavataḥ prītyai bhavatyeva tat  
+śambho svasya kutūhalasya karaṇaṃ macceśṭitaṃ niścitaṃ  
+tasmān-māmaka rakśaṇaṃ paśu-pate kartavyam-eva tvayā 66  
+bahu-vidha-paritośa-bāśpa-pūra-  
+sphuṭa-pulakānkita-cāru-bhoga-bhūmim  
+cira-pada-phala-kānkśi-sevyamānāṃ  
+parama sadāśiva-bhāvanāṃ prapadye 67  
+amita-mudamṛtaṃ muhur-duhantīṃ  
+vimala-bhavat-pada-gośṭham-āvasantīm  
+sadaya paśu-pate supuṇya-pākāṃ  
+mama paripālaya bhakti dhenum-ekām 68  
+jaḍatā paśutā kalankitā  
+kuṭila-caratvaṃ ca nāsti mayi deva  
+asti yadi rāja-maule  
+bhavad-ābharaṇasya nāsmi kiṃ pātram 69  
+arahasi rahasi svatantra-buddhyā  
+vari-vasituṃ sulabhaḥ prasanna-mūrtiḥ  
+agaṇita phala-dāyakaḥ prabhur-me  
+jagad-adhiko hṛdi rāja-śekharosti 70  
+ārūḍha-bhakti-guṇa-kuncita-bhāva-cāpa-  
+yuktaiḥ-śiva-smaraṇa-bāṇa-gaṇair-amoghaiḥ  
+nirjitya kilbiśa-ripūn vijayī sudhīndraḥ-  
+sānandam-āvahati susthira-rāja-lakśmīm 71  
+dhyānānjanena samavekśya tamaḥ-pradeśaṃ  
+bhitvā mahā-balibhir-īśvara nāma-mantraiḥ  
+divyāśritaṃ bhujaga-bhūśaṇam-udvahanti  
+ye pāda-padmam-iha te śiva te kṛtārthāḥ 72  
+bhū-dāratām-udavahad-yad-apekśayā śrī-  
+bhū-dāra eva kimataḥ sumate labhasva  
+kedāram-ākalita mukti mahauśadhīnāṃ  
+pādāravinda bhajanaṃ parameśvarasya 73  
+āśā-pāśa-kleśa-dur-vāsanādi-  
+bhedodyuktair-divya-gandhair-amandaiḥ  
+āśā-śāṭīkasya pādāravindaṃ  
+cetaḥ-peṭīṃ vāsitāṃ me tanotu 74  
+kalyāṇinaṃ sarasa-citra-gatiṃ savegaṃ  
+sarvengitajnam-anaghaṃ dhruva-lakśaṇāḍhyam  
+cetas-turangam-adhiruhya cara smarāre  
+netaḥ-samasta jagatāṃ vṛśabhādhirūḍha 75  
+bhaktir-maheśa-pada-puśkaram-āvasantī  
+kādambinīva kurute paritośa-varśam  
+sampūrito bhavati yasya manas-taṭākas-  
+taj-janma-sasyam-akhilaṃ saphalaṃ ca nānyat 76  
+buddhiḥ-sthirā bhavitum-īśvara-pāda-padma  
+saktā vadhūr-virahiṇīva sadā smarantī  
+sad-bhāvanā-smaraṇa-darśana-kīrtanādi  
+sammohiteva śiva-mantra-japena vinte 77  
+sad-upacāra-vidhiśu-anu-bodhitāṃ  
+savinayāṃ suhṛdaṃ sadupāśritām  
+mama samuddhara buddhim-imāṃ prabho  
+vara-guṇena navoḍha-vadhūm-iva 78  
+nityaṃ yogi-manah-saroja-dala-sancāra-kśamas-tvat-kramaḥ-  
+śambho tena kathaṃ kaṭhora-yama-rāḍ-vakśaḥ-kavāṭa-kśatiḥ  
+atyantaṃ mṛdulaṃ tvad-anghri-yugalaṃ hā me manaś-cintayati-  
+etal-locana-gocaraṃ kuru vibho hastena saṃvāhaye 79  
+eśyatyeśa janiṃ mano(a)sya kaṭhinaṃ tasmin-naṭānīti mad-  
+rakśāyai giri sīmni komala-pada-nyāsaḥ purābhyāsitaḥ  
+no-ced-divya-gṛhāntareśu sumanas-talpeśu vedyādiśu  
+prāyaḥ-satsu śilā-taleśu naṭanaṃ śambho kimarthaṃ tava 80  
+kancit-kālam-umā-maheśa bhavataḥ pādāravindārcanaiḥ  
+kancid-dhyāna-samādhibhiś-ca natibhiḥ kancit kathākarṇanaiḥ  
+kancit kancid-avekśaṇaiś-ca nutibhiḥ kancid-daśām-īdṛśīṃ  
+yaḥ prāpnoti mudā tvad-arpita manā jīvan sa muktaḥ khalu 81  
+bāṇatvaṃ vṛśabhatvam-ardha-vapuśā bhāryātvam-āryā-pate  
+ghoṇitvaṃ sakhitā mṛdanga vahatā cetyādi rūpaṃ dadhau  
+tvat-pāde nayanārpaṇaṃ ca kṛtavān tvad-deha bhāgo hariḥ  
+pūjyāt-pūjya-taraḥ-sa eva hi na cet ko vā tadanyo(a)dhikaḥ 82  
+janana-mṛti-yutānāṃ sevayā devatānāṃ  
+na bhavati sukha-leśaḥ saṃśayo nāsti tatra  
+ajanim-amṛta rūpaṃ sāmbam-īśaṃ bhajante  
+ya iha parama saukhyaṃ te hi dhanyā labhante 83  
+śiva tava paricaryā sannidhānāya gauryā  
+bhava mama guṇa-dhuryāṃ buddhi-kanyāṃ pradāsye  
+sakala-bhuvana-bandho saccid-ānanda-sindho  
+sadaya hṛdaya-gehe sarvadā saṃvasa tvam 84  
+jaladhi mathana dakśo naiva pātāla bhedī  
+na ca vana mṛgayāyāṃ naiva lubdhaḥ pravīṇaḥ  
+aśana-kusuma-bhūśā-vastra-mukhyāṃ saparyāṃ  
+kathaya katham-ahaṃ te kalpayānīndu-maule 85  
+pūjā-dravya-samṛddhayo viracitāḥ pūjāṃ kathaṃ kurmahe  
+pakśitvaṃ na ca vā kīṭitvam-api na prāptaṃ mayā dur-labham  
+jāne mastakam-anghri-pallavam-umā-jāne na te(a)haṃ vibho  
+na jnātaṃ hi pitāmahena hariṇā tattvena tad-rūpiṇā 86  
+aśanaṃ garalaṃ phaṇī kalāpo  
+vasanaṃ carma ca vāhanaṃ mahokśaḥ  
+mama dāsyasi kiṃ kim-asti śambho  
+tava pādāmbuja-bhaktim-eva dehi 87  
+yadā kṛtāmbho-nidhi-setu-bandhanaḥ  
+karastha-lādhaḥ-kṛta-parvatādhipaḥ  
+bhavāni te langhita-padma-sambhavas-  
+tadā śivārcā-stava bhāvana-kśamaḥ 88  
+natibhir-nutibhis-tvam-īśa pūjā  
+vidhibhir-dhyāna-samādhibhir-na tuśṭaḥ  
+dhanuśā musalena cāśmabhir-vā  
+vada te prīti-karaṃ tathā karomi 89  
+vacasā caritaṃ vadāmi śambhor-  
+aham-udyoga vidhāsu te(a)prasaktaḥ  
+manasākṛtim-īśvarasya seve  
+śirasā caiva sadāśivaṃ namāmi 90  
+ādyā(a)vidyā hṛd-gatā nirgatāsīt-  
+vidyā hṛdyā hṛd-gatā tvat-prasādāt  
+seve nityaṃ śrī-karaṃ tvat-padābjaṃ  
+bhāve mukter-bhājanaṃ rāja-maule 91  
+dūrīkṛtāni duritāni durakśarāṇi  
+daur-bhāgya-duḥkha-durahaṅkṛti-dur-vacāṃsi  
+sāraṃ tvadīya caritaṃ nitarāṃ pibantaṃ  
+gaurīśa mām-iha samuddhara sat-kaṭākśaiḥ 92  
+soma kalā-dhara-maulau  
+komala ghana-kandhare mahā-mahasi  
+svāmini girijā nāthe  
+māmaka hṛdayaṃ nirantaraṃ ramatām 93  
+sā rasanā te nayane  
+tāveva karau sa eva kṛta-kṛtyaḥ  
+yā ye yau yo bhargaṃ  
+vadatīkśete sadārcataḥ smarati 94  
+ati mṛdulau mama caraṇau-  
+ati kaṭhinaṃ te mano bhavānīśa  
+iti vicikitsāṃ santyaja  
+śiva katham-āsīd-girau tathā praveśaḥ 95  
+dhaiyānkuśena nibhṛtaṃ  
+rabhasād-ākṛśya bhakti-śṛnkhalayā  
+pura-hara caraṇālāne  
+hṛdaya-madebhaṃ badhāna cid-yantraiḥ 96  
+pracaratyabhitaḥ pragalbha-vṛttyā  
+madavān-eśa manaḥ-karī garīyān  
+parigṛhya nayena bhakti-rajjvā  
+parama sthāṇu-padaṃ dṛḍhaṃ nayāmum 97  
+sarvālankāra-yuktāṃ sarala-pada-yutāṃ sādhu-vṛttāṃ suvarṇāṃ  
+sadbhiḥ-samstūya-mānāṃ sarasa guṇa-yutāṃ lakśitāṃ lakśaṇāḍhyām  
+udyad-bhūśā-viśeśām-upagata-vinayāṃ dyota-mānārtha-rekhāṃ  
+kalyāṇīṃ deva gaurī-priya mama kavitā-kanyakāṃ tvaṃ gṛhāṇa 98  
+idaṃ te yuktaṃ vā parama-śiva kāruṇya jaladhe  
+gatau tiryag-rūpaṃ tava pada-śiro-darśana-dhiyā  
+hari-brahmāṇau tau divi bhuvi carantau śrama-yutau  
+kathaṃ śambho svāmin kathaya mama vedyosi purataḥ 99  
+stotreṇālam-ahaṃ pravacmi na mṛśā devā virincādayaḥ  
+stutyānāṃ gaṇanā-prasanga-samaye tvām-agragaṇyaṃ viduḥ  
+māhātmyāgra-vicāraṇa-prakaraṇe dhānā-tuśastomavad-  
+dhūtās-tvāṃ vidur-uttamottama phalaṃ śambho bhavat-sevakāḥ 100  
+### PlainEnglish
+
+#### shivaanaMda lahari
+
+kalaabhyaaM cooDaalaMkRRita-shashi kalaabhyaaM nija tapaH-  
+phalaabhyaaM bhakteshu prakaTita-phalaabhyaaM bhavatu me ❘  
+shivaabhyaaM-astoka-tribhuvana shivaabhyaaM hRRidi punar-  
+bhavaabhyaaM aananda sphura-danubhavaabhyaaM natiriyam 
+‖ 1 ‖
+
+galantee shambho tvac-carita-saritaH kilbisha-rajo  
+dalantee dheekulyaa-saraNishu patantee vijayataam  
+dishantee saMsaara-bhramaNa-paritaapa-upashamanaM  
+vasantee mac-ceto-hRRidabhuvi shivaananda-laharee 2  
+trayee-vedyaM hRRidyaM tri-pura-haraM aadyaM tri-nayanaM  
+jaTaa-bhaarodaaraM calad-uraga-haaraM mRRiga dharam  
+mahaa-devaM devaM mayi sadaya-bhaavaM pashu-patiM  
+cid-aalambaM saambaM shivam-ati-viDambaM hRRidi bhaje 3  
+sahasraM vartante jagati vibudhaaH kshudra-phaladaa  
+na manye svapne vaa tad-anusaraNaM tat-kRRita-phalam  
+hari-brahmaadeenaaM-api nikaTa-bhaajaaM-asulabhaM  
+ciraM yaace shambho shiva tava padaambhoja-bhajanam 4  
+smRRitau shaastre vaidye shakuna-kavitaa-gaana-phaNitau  
+puraaNe mantre vaa stuti-naTana-haasyeshu-acaturaH  
+kathaM raajnaaM preetir-bhavati mayi ko(a)haM pashu-pate  
+pashuM maaM sarvajna prathita-kRRipayaa paalaya vibho 5  
+ghaTo vaa mRRit-piNDo-api-aNur-api ca dhoomo-agnir-acalaH  
+paTo vaa tantur-vaa pariharati kiM ghora-shamanam  
+vRRithaa kaNTha-kshobhaM vahasi tarasaa tarka-vacasaa  
+padaambhojaM shambhor-bhaja parama-saukhyaM vraja sudheeH 6  
+manas-te paadaabje nivasatu vacaH stotra-phaNitau  
+karau ca-abhyarcaayaaM shrutir-api kathaakarNana-vidhau  
+tava dhyaane buddhir-nayana-yugalaM moorti-vibhave  
+para-granthaan kair-vaa parama-shiva jaane param-ataH 7  
+yathaa buddhiH-shuktau rajataM iti kaacaashmani maNir-  
+jale paishTe ksheeraM bhavati mRRiga-tRRishNaasu salilam  
+tathaa deva-bhraantyaa bhajati bhavad-anyaM jaDa jano  
+mahaa-deveshaM tvaaM manasi ca na matvaa pashu-pate 8  
+gabheere kaasaare vishati vijane ghora-vipine  
+vishaale shaile ca bhramati kusumaarthaM jaDa-matiH  
+samarpyaikaM cetaH-sarasijaM umaa naatha bhavate  
+sukhena-avasthaatuM jana iha na jaanaati kim-aho 9  
+naratvaM devatvaM naga-vana-mRRigatvaM mashakataa  
+pashutvaM keeTatvaM bhavatu vihagatvaadi-jananam  
+sadaa tvat-paadaabja-smaraNa-paramaananda-laharee  
+vihaaraasaktaM ced-hRRidayaM-iha kiM tena vapushaa 10  
+vaTurvaa gehee vaa yatir-api jaTee vaa taditaro  
+naro vaa yaH kashcid-bhavatu bhava kiM tena bhavati  
+yadeeyaM hRRit-padmaM yadi bhavad-adheenaM pashu-pate  
+tadeeyas-tvaM shambho bhavasi bhava bhaaraM ca vahasi 11  
+guhaayaaM gehe vaa bahir-api vane vaa(a)dri-shikhare  
+jale vaa vahnau vaa vasatu vasateH kiM vada phalam  
+sadaa yasyaivaantaHkaraNam-api shambo tava pade  
+sthitaM c.ed-yogo(a)sau sa ca parama-yogee sa ca sukhee 12  
+asaare saMsaare nija-bhajana-doore jaDadhiyaa  
+bharamantaM maam-andhaM parama-kRRipayaa paatum ucitam  
+mad-anyaH ko deenas-tava kRRipaNa-rakshaati-nipuNas-  
+tvad-anyaH ko vaa me tri-jagati sharaNyaH pashu-pate 13  
+prabhus-tvaM deenaanaaM khalu parama-bandhuH pashu-pate  
+pramukhyo(a)haM teshaam-api kim-uta bandhutvam-anayoH  
+tvayaiva kshantavyaaH shiva mad-aparaadhaash-ca sakalaaH  
+prayatnaat-kartavyaM mad-avanam-iyaM bandhu-saraNiH 14  
+upekshaa no cet kiM na harasi bhavad-dhyaana-vimukhaaM  
+duraashaa-bhooyishThaaM vidhi-lipim-ashakto yadi bhavaan  
+shiras-tad-vadidhaatraM na nakhalu suvRRittaM pashu-pate  
+kathaM vaa nir-yatnaM kara-nakha-mukhenaiva lulitam 15  
+virincir-deerghaayur-bhavatu bhavataa tat-para-shirash-  
+catushkaM saMrakshyaM sa khalu bhuvi dainyaM likhitavaan  
+vicaaraH ko vaa maaM vishada-kRRipayaa paati shiva te  
+kaTaaksha-vyaapaaraH svayam-api ca deenaavana-paraH 16  
+phalaad-vaa puNyaanaaM mayi karuNayaa vaa tvayi vibho  
+prasanne(a)pi svaamin bhavad-amala-paadaabja-yugalam  
+kathaM pashyeyaM maaM sthagayati namaH-sambhrama-jushaaM  
+nilimpaanaaM shreNir-nija-kanaka-maaNikya-makuTaiH 17  
+tvam-eko lokaanaaM parama-phalado divya-padaveeM  
+vahantas-tvanmoolaaM punar-api bhajante hari-mukhaaH  
+kiyad-vaa daakshiNyaM tava shiva madaashaa ca kiyatee  
+kadaa vaa mad-rakshaaM vahasi karuNaa-poorita-dRRishaa 18  
+duraashaa-bhooyishThe duradhipa-gRRiha-dvaara-ghaTake  
+durante saMsaare durita-nilaye duHkha janake  
+madaayaasam kiM na vyapanayasi kasyopakRRitaye  
+vadeyaM preetish-cet tava shiva kRRitaarthaaH khalu vayam 19  
+sadaa mohaaTavyaaM carati yuvateenaaM kuca-girau  
+naTaty-aashaa-shaakhaas-vaTati jhaTiti svairam-abhitaH  
+kapaalin bhiksho me hRRidaya-kapim-atyanta-capalaM  
+dRRiDhaM bhaktyaa baddhvaa shiva bhavad-adheenaM kuru vibho 20  
+dhRRiti-stambhaadhaaraM dRRiDha-guNa nibaddhaaM sagamanaaM  
+vicitraaM padmaaDhyaaM prati-divasa-sanmaarga-ghaTitaam  
+smaraare maccetaH-sphuTa-paTa-kuTeeM praapya vishadaaM  
+jaya svaamin shaktyaa saha shiva gaNaiH-sevita vibho 21  
+pralobhaadyair-arthaaharaNa-para-tantro dhani-gRRihe  
+praveshodyuktaH-san bhramati bahudhaa taskara-pate  
+imaM cetash-coraM katham-iha sahe shankara vibho  
+tavaadheenaM kRRitvaa mayi niraparaadhe kuru kRRipaam 22  
+karomi tvat-poojaaM sapadi sukhado me bhava vibho  
+vidhitvaM vishNutvam dishasi khalu tasyaaH phalam-iti  
+punashca tvaaM drashTuM divi bhuvi vahan pakshi-mRRigataam-  
+adRRishTvaa tat-khedaM katham-iha sahe shankara vibho 23  
+kadaa vaa kailaase kanaka-maNi-saudhe saha-gaNair-  
+vasan shambhor-agre sphuTa-ghaTita-moordhaanjali-puTaH  
+vibho saamba svaamin parama-shiva paaheeti nigadan  
+vidhaatRRiRRiNaaM kalpaan kshaNam-iva vineshyaami sukhataH 24  
+stavair-brahmaadeenaaM jaya-jaya-vacobhir-niyamaanaaM  
+gaNaanaaM keleebhir-madakala-mahokshasya kakudi  
+sthitaM neela-greevaM tri-nayanaM-umaashlishTa-vapushaM  
+kadaa tvaaM pashyeyaM kara-dhRRita-mRRigaM khaNDa-parashum 25  
+kadaa vaa tvaaM dRRishTvaa girisha tava bhavyaanghri-yugalaM  
+gRRiheetvaa hastaabhyaaM shirasi nayane vakshasi vahan  
+samaashlishyaaghraaya sphuTa-jalaja-gandhaan parimalaan-  
+alabhyaaM brahmaadyair-mudam-anubhavishyaami hRRidaye 26  
+karasthe hemaadrau girisha nikaTasthe dhana-patau  
+gRRihasthe svarbhoojaa(a)mara-surabhi-cintaamaNi-gaNe  
+shirasthe sheetaaMshau caraNa-yugalasthe(a)khila shubhe  
+kam-arthaM daasye(a)haM bhavatu bhavad-arthaM mama manaH 27  
+saaroopyaM tava poojane shiva mahaa-deveti saMkeertane  
+saameepyaM shiva bhakti-dhurya-janataa-saaMgatya-saMbhaashaNe  
+saalokyaM ca caraacaraatmaka-tanu-dhyaane bhavaanee-pate  
+saayujyaM mama siddhim-atra bhavati svaamin kRRitaarthosmyaham 28  
+tvat-paadaambujam-arcayaami paramaM tvaaM cintayaami-anvahaM  
+tvaam-eeshaM sharaNaM vrajaami vacasaa tvaam-eva yaace vibho  
+veekshaaM me disha caakshusheeM sa-karuNaaM divyaish-ciraM praarthitaaM  
+shambho loka-guro madeeya-manasaH saukhyopadeshaM kuru 29  
+vastrod-dhoota vidhau sahasra-karataa pushpaarcane vishNutaa  
+gandhe gandha-vahaatmataa(a)nna-pacane bahir-mukhaadhyakshataa  
+paatre kaancana-garbhataasti mayi ced baalendu cooDaa-maNe  
+shushrooshaaM karavaaNi te pashu-pate svaamin tri-lokee-guro 30  
+naalaM vaa paramopakaarakam-idaM tvekaM pashoonaaM pate  
+pashyan kukshi-gataan caraacara-gaNaan baahyasthitaan rakshitum  
+sarvaamartya-palaayanaushadham-ati-jvaalaa-karaM bhee-karaM  
+nikshiptaM garalaM gale na galitaM nodgeerNam-eva-tvayaa 31  
+jvaalograH sakalaamaraati-bhayadaH kshvelaH kathaM vaa tvayaa  
+dRRishTaH kiM ca kare dhRRitaH kara-tale kiM pakva-jamboo-phalam  
+jihvaayaaM nihitashca siddha-ghuTikaa vaa kaNTha-deshe bhRRitaH  
+kiM te neela-maNir-vibhooshaNam-ayaM shambho mahaatman vada 32  
+naalaM vaa sakRRid-eva deva bhavataH sevaa natir-vaa nutiH  
+poojaa vaa smaraNaM kathaa-shravaNam-api-aalokanaM maadRRishaam  
+svaaminn-asthira-devataanusaraNaayaasena kiM labhyate  
+kaa vaa muktir-itaH kuto bhavati cet kiM praarthaneeyaM tadaa 33  
+kiM broomas-tava saahasaM pashu-pate kasyaasti shambho bhavad-  
+dhairyaM cedRRisham-aatmanaH-sthitir-iyaM caanyaiH kathaM labhyate  
+bhrashyad-deva-gaNaM trasan-muni-gaNaM nashyat-prapancaM layaM  
+pashyan-nirbhaya eka eva viharati-aananda-saandro bhavaan 34  
+yoga-kshema-dhuraM-dharasya sakalaH-shreyaH pradodyogino  
+dRRishTaadRRishTa-matopadesha-kRRitino baahyaantara-vyaapinaH  
+sarvajnasya dayaa-karasya bhavataH kiM veditavyaM mayaa  
+shambho tvaM paramaantaraMga iti me citte smaraami-anvaham 35  
+bhakto bhakti-guNaavRRite mud-amRRitaa-poorNe prasanne manaH  
+kumbhe saamba tavaanghri-pallava yugaM saMsthaapya saMvit-phalam  
+sattvaM mantram-udeerayan-nija shareeraagaara shuddhiM vahan  
+puNyaahaM prakaTee karomi ruciraM kalyaaNam-aapaadayan 36  
+aamnaayaambudhim-aadareNa sumanaH-sanghaaH-samudyan-mano  
+manthaanaM dRRiDha bhakti-rajju-sahitaM kRRitvaa mathitvaa tataH  
+somaM kalpa-taruM su-parva-surabhiM cintaa-maNiM dheemataaM  
+nityaananda-sudhaaM nirantara-ramaa-saubhaagyam-aatanvate 37  
+praak-puNyaacala-maarga-darshita-sudhaa-moortiH prasannaH-shivaH  
+somaH-sad-guNa-sevito mRRiga-dharaH poorNaas-tamo-mocakaH  
+cetaH pushkara-lakshito bhavati ced-aananda-paatho-nidhiH  
+praagalbhyena vijRRimbhate sumanasaaM vRRittis-tadaa jaayate 38  
+dharmo me catur-anghrikaH sucaritaH paapaM vinaashaM gataM  
+kaama-krodha-madaadayo vigalitaaH kaalaaH sukhaavishkRRitaaH  
+jnaanaananda-mahaushadhiH suphalitaa kaivalya naathe sadaa  
+maanye maanasa-puNDareeka-nagare raajaavataMse sthite 39  
+dhee-yantreNa vaco-ghaTena kavitaa-kulyopakulyaakramair-  
+aaneetaishca sadaashivasya caritaambho-raashi-divyaamRRitaiH  
+hRRit-kedaara-yutaash-ca bhakti-kalamaaH saaphalyam-aatanvate  
+durbhikshaan-mama sevakasya bhagavan vishvesha bheetiH kutaH 40  
+paapotpaata-vimocanaaya ruciraishvaryaaya mRRityuM-jaya  
+stotra-dhyaana-nati-pradikshiNa-saparyaalokanaakarNane  
+jihvaa-citta-shironghri-hasta-nayana-shrotrair-aham praarthito  
+maam-aajnaapaya tan-niroopaya muhur-maameva maa me(a)vacaH 41  
+gaambheeryaM parikhaa-padaM ghana-dhRRitiH praakaara-udyad-guNa  
+stomash-caapta-balaM ghanendriya-cayo dvaaraaNi dehe sthitaH  
+vidyaa-vastu-samRRiddhir-iti-akhila-saamagree-samete sadaa  
+durgaati-priya-deva maamaka-mano-durge nivaasaM kuru 42  
+maa gaccha tvam-itas-tato girisha bho mayyeva vaasaM kuru  
+svaaminn-aadi kiraata maamaka-manaH kaantaara-seemaantare  
+vartante bahusho mRRigaa mada-jusho maatsarya-mohaadayas-  
+taan hatvaa mRRigayaa-vinoda rucitaa-laabhaM ca saMpraapsyasi 43  
+kara-lagna mRRigaH kareendra-bhango  
+ghana shaardoola-vikhaNDano(a)sta-jantuH  
+girisho vishad-aakRRitish-ca cetaH  
+kuhare panca mukhosti me kuto bheeH 44  
+chandaH-shaakhi-shikhaanvitair-dvija-varaiH saMsevite shaashvate  
+saukhyaapaadini kheda-bhedini sudhaa-saaraiH phalair-deepite  
+cetaH pakshi-shikhaa-maNe tyaja vRRithaa-sancaaram-anyair-alaM  
+nityaM shankara-paada-padma-yugalee-neeDe vihaaraM kuru 45  
+aakeerNe nakha-raaji-kaanti-vibhavair-udyat-sudhaa-vaibhavair-  
+aadhautepi ca padma-raaga-lalite haMsa-vrajair-aashrite  
+nityaM bhakti-vadhoo gaNaish-ca rahasi svecchaa-vihaaraM kuru  
+sthitvaa maanasa-raaja-haMsa girijaa naathaanghri-saudhaantare 46  
+shambhu-dhyaana-vasanta-sangini hRRidaaraame(a)gha-jeerNacchadaaH  
+srastaa bhakti lataacchaTaa vilasitaaH puNya-pravaala-shritaaH  
+deepyante guNa-korakaa japa-vacaH pushpaaNi sad-vaasanaa  
+jnaanaananda-sudhaa-maranda-laharee saMvit-phalaabhyunnatiH 47  
+nityaananda-rasaalayaM sura-muni-svaantaambujaataashrayaM  
+svacchaM sad-dvija-sevitaM kalusha-hRRit-sad-vaasanaavishkRRitam  
+shambhu-dhyaana-sarovaraM vraja mano-haMsaavataMsa sthiraM  
+kiM kshudraashraya-palvala-bhramaNa-saMjaata-shramaM praapsyasi 48  
+aanandaamRRita-pooritaa hara-padaambhojaalavaalodyataa  
+sthairyopaghnam-upetya bhakti latikaa shaakhopashaakhaanvitaa  
+ucchair-maanasa-kaayamaana-paTaleem-aakramya nish-kalmashaa  
+nityaabheeshTa-phala-pradaa bhavatu me sat-karma-saMvardhitaa 49  
+sandhyaarambha-vijRRimbhitaM shruti-shira-sthaanaantar-aadhishThitaM  
+sa-prema bhramaraabhiraamam-asakRRit sad-vaasanaa-shobhitam  
+bhogeendraabharaNaM samasta-sumanaH-poojyaM guNaavishkRRitaM  
+seve shree-giri-mallikaarjuna-mahaa-lingaM shivaalingitam 50  
+bhRRingeecchaa-naTanotkaTaH kari-mada-graahee sphuran-maadhava-  
+aahlaado naada-yuto mahaasita-vapuH panceshuNaa caadRRitaH  
+sat-pakshaH sumano-vaneshu sa punaH saakshaan-madeeye mano  
+raajeeve bhramaraadhipo viharataaM shree shaila-vaasee vibhuH 51  
+kaaruNyaamRRita-varshiNaM ghana-vipad-greeshmacchidaa-karmaThaM  
+vidyaa-sasya-phalodayaaya sumanaH-saMsevyam-icchaakRRitim  
+nRRityad-bhakta-mayooram-adri-nilayaM cancaj-jaTaa-maNDalaM  
+shambho vaanchati neela-kandhara-sadaa tvaaM me manash-caatakaH 52  
+aakaashena shikhee samasta phaNinaaM netraa kalaapee nataa-  
+(a)nugraahi-praNavopadesha-ninadaiH kekeeti yo geeyate  
+shyaamaaM shaila-samudbhavaaM ghana-ruciM dRRishTvaa naTantaM mudaa  
+vedaantopavane vihaara-rasikaM taM neela-kaNThaM bhaje 53  
+sandhyaa gharma-dinaatyayo hari-karaaghaata-prabhootaanaka-  
+dhvaano vaarida garjitaM divishadaaM dRRishTicchaTaa cancalaa  
+bhaktaanaaM paritosha baashpa vitatir-vRRishTir-mayooree shivaa  
+yasminn-ujjvala-taaNDavaM vijayate taM neela-kaNThaM bhaje 54  
+aadyaayaamita-tejase-shruti-padair-vedyaaya saadhyaaya te  
+vidyaananda-mayaatmane tri-jagataH-saMrakshaNodyogine  
+dhyeyaayaakhila-yogibhiH-sura-gaNair-geyaaya maayaavine  
+samyak taaNDava-saMbhramaaya jaTine seyaM natiH-shambhave 55  
+nityaaya tri-guNaatmane pura-jite kaatyaayanee-shreyase  
+satyaayaadi kuTumbine muni-manaH pratyaksha-cin-moortaye  
+maayaa-sRRishTa-jagat-trayaaya sakala-aamnaayaanta-sancaariNe  
+saayaM taaNDava-sambhramaaya jaTine seyaM natiH-shambhave 56  
+nityaM svodara-poshaNaaya sakalaan-uddishya vittaashayaa  
+vyarthaM paryaTanaM karomi bhavataH-sevaaM na jaane vibho  
+maj-janmaantara-puNya-paaka-balatas-tvaM sharva sarvaantaras-  
+tishThasyeva hi tena vaa pashu-pate te rakshaNeeyo(a)smyaham 57  
+eko vaarija-baandhavaH kshiti-nabho vyaaptaM tamo-maNDalaM  
+bhitvaa locana-gocaropi bhavati tvaM koTi-soorya-prabhaH  
+vedyaH kiM na bhavasyaho ghana-taraM keedRRingbhaven-mattamas-  
+tat-sarvaM vyapaneeya me pashu-pate saakshaat prasanno bhava 58  
+haMsaH padma-vanaM samicchati yathaa neelaambudaM caatakaH  
+kokaH koka-nada-priyaM prati-dinaM candraM cakoras-tathaa  
+ceto vaanchati maamakaM pashu-pate cin-maarga mRRigyaM vibho  
+gauree naatha bhavat-padaabja-yugalaM kaivalya-saukhya-pradam 59  
+rodhas-toyahRRitaH shrameNa-pathikash-chaayaaM taror-vRRishTitaH  
+bheetaH svastha gRRihaM gRRihastham-atithir-deenaH prabhaM dhaarmikam  
+deepaM santamasaakulash-ca shikhinaM sheetaavRRitas-tvaM tathaa  
+cetaH-sarva-bhayaapahaM-vraja sukhaM shambhoH padaambhoruham 60  
+ankolaM nija beeja santatir-ayaskaantopalaM soocikaa  
+saadhvee naija vibhuM lataa kshiti-ruhaM sindhuh-sarid-vallabham  
+praapnoteeha yathaa tathaa pashu-pateH paadaaravinda-dvayaM  
+cetovRRittir-upetya tishThati sadaa saa bhaktir-iti-ucyate 61  
+aanandaashrubhir-aatanoti pulakaM nairmalyatash-chaadanaM  
+vaacaa shankha mukhe sthitaish-ca jaTharaa-poortiM caritraamRRitaiH  
+rudraakshair-bhasitena deva vapusho rakshaaM bhavad-bhaavanaa-  
+paryanke viniveshya bhakti jananee bhaktaarbhakaM rakshati 62  
+maargaa-vartita paadukaa pashu-pater-aMgasya koorcaayate  
+gaNDooshaambu-nishecanaM pura-ripor-divyaabhishekaayate  
+kincid-bhakshita-maaMsa-shesha-kabalaM navyopahaaraayate  
+bhaktiH kiM na karoti-aho vana-caro bhaktaavatamsaayate 63  
+vakshastaaDanam-antakasya kaThinaapasmaara sammardanaM  
+bhoo-bhRRit-paryaTanaM namat-sura-shiraH-koTeera sangharshaNam  
+karmedaM mRRidulasya taavaka-pada-dvandvasya gauree-pate  
+macceto-maNi-paadukaa-viharaNaM shambho sadaangee-kuru 64  
+vakshas-taaDana shankayaa vicalito vaivasvato nirjaraaH  
+koTeerojjvala-ratna-deepa-kalikaa-neeraajanaM kurvate  
+dRRishTvaa mukti-vadhoos-tanoti nibhRRitaashleshaM bhavaanee-pate  
+yac-cetas-tava paada-padma-bhajanaM tasyeha kiM dur-labham 65  
+kreeDaarthaM sRRijasi prapancam-akhilaM kreeDaa-mRRigaas-te janaaH  
+yat-karmaacaritaM mayaa ca bhavataH preetyai bhavatyeva tat  
+shambho svasya kutoohalasya karaNaM macceshTitaM nishcitaM  
+tasmaan-maamaka rakshaNaM pashu-pate kartavyam-eva tvayaa 66  
+bahu-vidha-paritosha-baashpa-poora-  
+sphuTa-pulakaankita-caaru-bhoga-bhoomim  
+cira-pada-phala-kaankshi-sevyamaanaaM  
+parama sadaashiva-bhaavanaaM prapadye 67  
+amita-mudamRRitaM muhur-duhanteeM  
+vimala-bhavat-pada-goshTham-aavasanteem  
+sadaya pashu-pate supuNya-paakaaM  
+mama paripaalaya bhakti dhenum-ekaam 68  
+jaDataa pashutaa kalankitaa  
+kuTila-caratvaM ca naasti mayi deva  
+asti yadi raaja-maule  
+bhavad-aabharaNasya naasmi kiM paatram 69  
+arahasi rahasi svatantra-buddhyaa  
+vari-vasituM sulabhaH prasanna-moortiH  
+agaNita phala-daayakaH prabhur-me  
+jagad-adhiko hRRidi raaja-shekharosti 70  
+aarooDha-bhakti-guNa-kuncita-bhaava-caapa-  
+yuktaiH-shiva-smaraNa-baaNa-gaNair-amoghaiH  
+nirjitya kilbisha-ripoon vijayee sudheendraH-  
+saanandam-aavahati susthira-raaja-lakshmeem 71  
+dhyaanaanjanena samavekshya tamaH-pradeshaM  
+bhitvaa mahaa-balibhir-eeshvara naama-mantraiH  
+divyaashritaM bhujaga-bhooshaNam-udvahanti  
+ye paada-padmam-iha te shiva te kRRitaarthaaH 72  
+bhoo-daarataam-udavahad-yad-apekshayaa shree-  
+bhoo-daara eva kimataH sumate labhasva  
+kedaaram-aakalita mukti mahaushadheenaaM  
+paadaaravinda bhajanaM parameshvarasya 73  
+aashaa-paasha-klesha-dur-vaasanaadi-  
+bhedodyuktair-divya-gandhair-amandaiH  
+aashaa-shaaTeekasya paadaaravindaM  
+cetaH-peTeeM vaasitaaM me tanotu 74  
+kalyaaNinaM sarasa-citra-gatiM savegaM  
+sarvengitajnam-anaghaM dhruva-lakshaNaaDhyam  
+cetas-turangam-adhiruhya cara smaraare  
+netaH-samasta jagataaM vRRishabhaadhirooDha 75  
+bhaktir-mahesha-pada-pushkaram-aavasantee  
+kaadambineeva kurute paritosha-varsham  
+sampoorito bhavati yasya manas-taTaakas-  
+taj-janma-sasyam-akhilaM saphalaM ca naanyat 76  
+buddhiH-sthiraa bhavitum-eeshvara-paada-padma  
+saktaa vadhoor-virahiNeeva sadaa smarantee  
+sad-bhaavanaa-smaraNa-darshana-keertanaadi  
+sammohiteva shiva-mantra-japena vinte 77  
+sad-upacaara-vidhishu-anu-bodhitaaM  
+savinayaaM suhRRidaM sadupaashritaam  
+mama samuddhara buddhim-imaaM prabho  
+vara-guNena navoDha-vadhoom-iva 78  
+nityaM yogi-manah-saroja-dala-sancaara-kshamas-tvat-kramaH-  
+shambho tena kathaM kaThora-yama-raaD-vakshaH-kavaaTa-kshatiH  
+atyantaM mRRidulaM tvad-anghri-yugalaM haa me manash-cintayati-  
+etal-locana-gocaraM kuru vibho hastena saMvaahaye 79  
+eshyatyesha janiM mano(a)sya kaThinaM tasmin-naTaaneeti mad-  
+rakshaayai giri seemni komala-pada-nyaasaH puraabhyaasitaH  
+no-ced-divya-gRRihaantareshu sumanas-talpeshu vedyaadishu  
+praayaH-satsu shilaa-taleshu naTanaM shambho kimarthaM tava 80  
+kancit-kaalam-umaa-mahesha bhavataH paadaaravindaarcanaiH  
+kancid-dhyaana-samaadhibhish-ca natibhiH kancit kathaakarNanaiH  
+kancit kancid-avekshaNaish-ca nutibhiH kancid-dashaam-eedRRisheeM  
+yaH praapnoti mudaa tvad-arpita manaa jeevan sa muktaH khalu 81  
+baaNatvaM vRRishabhatvam-ardha-vapushaa bhaaryaatvam-aaryaa-pate  
+ghoNitvaM sakhitaa mRRidanga vahataa cetyaadi roopaM dadhau  
+tvat-paade nayanaarpaNaM ca kRRitavaan tvad-deha bhaago hariH  
+poojyaat-poojya-taraH-sa eva hi na cet ko vaa tadanyo(a)dhikaH 82  
+janana-mRRiti-yutaanaaM sevayaa devataanaaM  
+na bhavati sukha-leshaH saMshayo naasti tatra  
+ajanim-amRRita roopaM saambam-eeshaM bhajante  
+ya iha parama saukhyaM te hi dhanyaa labhante 83  
+shiva tava paricaryaa sannidhaanaaya gauryaa  
+bhava mama guNa-dhuryaaM buddhi-kanyaaM pradaasye  
+sakala-bhuvana-bandho saccid-aananda-sindho  
+sadaya hRRidaya-gehe sarvadaa saMvasa tvam 84  
+jaladhi mathana daksho naiva paataala bhedee  
+na ca vana mRRigayaayaaM naiva lubdhaH praveeNaH  
+ashana-kusuma-bhooshaa-vastra-mukhyaaM saparyaaM  
+kathaya katham-ahaM te kalpayaaneendu-maule 85  
+poojaa-dravya-samRRiddhayo viracitaaH poojaaM kathaM kurmahe  
+pakshitvaM na ca vaa keeTitvam-api na praaptaM mayaa dur-labham  
+jaane mastakam-anghri-pallavam-umaa-jaane na te(a)haM vibho  
+na jnaataM hi pitaamahena hariNaa tattvena tad-roopiNaa 86  
+ashanaM garalaM phaNee kalaapo  
+vasanaM carma ca vaahanaM mahokshaH  
+mama daasyasi kiM kim-asti shambho  
+tava paadaambuja-bhaktim-eva dehi 87  
+yadaa kRRitaaMbho-nidhi-setu-bandhanaH  
+karastha-laadhaH-kRRita-parvataadhipaH  
+bhavaani te langhita-padma-sambhavas-  
+tadaa shivaarcaa-stava bhaavana-kshamaH 88  
+natibhir-nutibhis-tvam-eesha poojaa  
+vidhibhir-dhyaana-samaadhibhir-na tushTaH  
+dhanushaa musalena caashmabhir-vaa  
+vada te preeti-karaM tathaa karomi 89  
+vacasaa caritaM vadaami shambhor-  
+aham-udyoga vidhaasu te(a)prasaktaH  
+manasaakRRitim-eeshvarasya seve  
+shirasaa caiva sadaashivaM namaami 90  
+aadyaa(a)vidyaa hRRid-gataa nirgataaseet-  
+vidyaa hRRidyaa hRRid-gataa tvat-prasaadaat  
+seve nityaM shree-karaM tvat-padaabjaM  
+bhaave mukter-bhaajanaM raaja-maule 91  
+dooreekRRitaani duritaani duraksharaaNi  
+daur-bhaagya-duHkha-durahaMkRRiti-dur-vacaaMsi  
+saaraM tvadeeya caritaM nitaraaM pibantaM  
+gaureesha maam-iha samuddhara sat-kaTaakshaiH 92  
+soma kalaa-dhara-maulau  
+komala ghana-kandhare mahaa-mahasi  
+svaamini girijaa naathe  
+maamaka hRRidayaM nirantaraM ramataam 93  
+saa rasanaa te nayane  
+taaveva karau sa eva kRRita-kRRityaH  
+yaa ye yau yo bhargaM  
+vadateekshete sadaarcataH smarati 94  
+ati mRRidulau mama caraNau-  
+ati kaThinaM te mano bhavaaneesha  
+iti vicikitsaaM santyaja  
+shiva katham-aaseed-girau tathaa praveshaH 95  
+dhaiyaankushena nibhRRitaM  
+rabhasaad-aakRRishya bhakti-shRRinkhalayaa  
+pura-hara caraNaalaane  
+hRRidaya-madebhaM badhaana cid-yantraiH 96  
+pracaratyabhitaH pragalbha-vRRittyaa  
+madavaan-esha manaH-karee gareeyaan  
+parigRRihya nayena bhakti-rajjvaa  
+parama sthaaNu-padaM dRRiDhaM nayaamum 97  
+sarvaalankaara-yuktaaM sarala-pada-yutaaM saadhu-vRRittaaM suvarNaaM  
+sadbhiH-samstooya-maanaaM sarasa guNa-yutaaM lakshitaaM lakshaNaaDhyaam  
+udyad-bhooshaa-visheshaam-upagata-vinayaaM dyota-maanaartha-rekhaaM  
+kalyaaNeeM deva gauree-priya mama kavitaa-kanyakaaM tvaM gRRihaaNa 98  
+idaM te yuktaM vaa parama-shiva kaaruNya jaladhe  
+gatau tiryag-roopaM tava pada-shiro-darshana-dhiyaa  
+hari-brahmaaNau tau divi bhuvi carantau shrama-yutau  
+kathaM shambho svaamin kathaya mama vedyosi purataH 99  
+stotreNaalam-ahaM pravacmi na mRRishaa devaa virincaadayaH  
+stutyaanaaM gaNanaa-prasanga-samaye tvaam-agragaNyaM viduH  
+maahaatmyaagra-vicaaraNa-prakaraNe dhaanaa-tushastomavad-  
+dhootaas-tvaaM vidur-uttamottama phalaM shambho bhavat-sevakaaH 100  

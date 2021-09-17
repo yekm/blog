@@ -289,3 +289,45 @@ y.eduTane nilucunnaa DeekRRishhNuDu ‖
 అదన శ్రీ వేంకటేశుడై యలమేల్మంగ(గూడి  
 యెదుటనే నిలుచున్నా డీకృష్ణుడు ‖  
 
+### English
+
+#### annamayya kīrtana satulāla chūḍare
+
+satulāla cūḍare śrāvaṇabahuḻāśhṭami  
+sakalāya naḍureyi galige śrīkṛśhuḍu ❘  
+puṭṭeyapuḍe caturbhujālu śaṅkhucakrālu  
+yeṭṭu dhariyiñcene yī kṛśhṇuḍu ❘  
+aṭṭe kirīṭamu nābharaṇālu dhariñci  
+yeṭṭa neduṭa nunnāḍu yī kṛśhṇuḍu ‖
+
+vacci brahmayu rudruḍu vākiṭa nutiñcagānu  
+yiccagiñci vinucunnā(ḍīkṛśhṇuḍu ❘  
+muccaṭāḍī devakito muñci vasudevunito  
+heccinamahimalato yī kṛśhṇuḍu ‖
+
+koda dīra mari nandagopunaku yaśodaku  
+idigo tā biḍḍāḍāye nīkṛśhṇuḍu ❘  
+adana śrī veṅkaṭeśuḍai yalamelmaṅga(gūḍi  
+yeduṭane nilucunnā ḍīkṛśhṇuḍu ‖
+
+### PlainEnglish
+
+#### annamayya keertana satulaala chooDare
+
+satulaala cooDare shraavaNabahuLaashhTami  
+sakalaaya naDureyi galig.e shreekRRishhuDu ❘  
+puTTeyapuDe caturbhujaalu shaMkhucakraalu  
+y.eTTu dhariyiMc.ene yee kRRishhNuDu ❘  
+aTT.e kireeTamu naabharaNaalu dhariMci  
+y.eTTa n.eduTa nunnaaDu yee kRRishhNuDu ‖
+
+vacci brahmayu rudruDu vaakiTa nutiMcagaanu  
+yiccagiMci vinucunnaa(DeekRRishhNuDu ❘  
+muccaTaaDee devakito muMci vasudevunito  
+h.eccinamahimalato yee kRRishhNuDu ‖
+
+k.oda deera mari naMdagopunaku yashodaku  
+idigo taa biDDaaDaay.e neekRRishhNuDu ❘  
+adana shree veMkaTeshuDai yalamelmaMga(gooDi  
+y.eduTane nilucunnaa DeekRRishhNuDu ‖
+

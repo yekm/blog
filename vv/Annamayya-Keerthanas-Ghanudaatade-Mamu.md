@@ -289,3 +289,47 @@ maasa coopi nitaDatanik.e sharaNu ‖
 దాసుల కొరకై తగు శ్రీవేంకట  
 మాస చూపి నితడతనికె శరణు ‖  
 
+### English
+
+#### annamayya kīrtana ghanuḍātaḍe mamu
+
+ghanuḍātaḍe mamu gācugāka hari   
+aniśamu nemika natanike śaraṇu ‖
+
+yevvani nābhini yī brahmādulu   
+yevvaḍu rakśhakuḍinniṭiki ❘  
+yevvani mūlamu yī sacarācara   
+mavvala nivvala natanike śaraṇu ‖
+
+puruśhottamuḍani pogaḍi revvarini   
+kari nevvaḍu gāce ❘  
+dhara yevvaḍetti danujula borigone   
+aruduga memika natanike śaraṇu ‖
+
+śrīsati yevvani jeri vuramunanu   
+bhāsille nevvaḍu paramambai ❘  
+dāsula korakai tagu śrīveṅkaṭa   
+māsa cūpi nitaḍatanike śaraṇu ‖
+
+### PlainEnglish
+
+#### annamayya keertana ghanuDaataDe mamu
+
+ghanuDaataDe mamu gaacugaaka hari   
+anishamu nemika natanik.e sharaNu ‖
+
+y.evvani naabhini yee brahmaadulu   
+y.evvaDu rakshhakuDinniTiki ❘  
+y.evvani moolamu yee sacaraacara   
+mavvala nivvala natanike sharaNu ‖
+
+purushhottamuDani p.ogaDi r.evvarini   
+kari n.evvaDu gaac.e ❘  
+dhara y.evvaD.etti danujula b.orig.on.e   
+aruduga memika natanik.e sharaNu ‖
+
+shreesati y.evvani jeri vuramunanu   
+bhaasill.e n.evvaDu paramaMbai ❘  
+daasula k.orakai tagu shreeveMkaTa   
+maasa coopi nitaDatanik.e sharaNu ‖
+

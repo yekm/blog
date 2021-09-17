@@ -8037,3 +8037,1577 @@ oM tatsat sarvaM shree kRRishhNaarpaNamastu ‖
 ఓం తత్సత్ సర్వం శ్రీ కృష్ణార్పణమస్తు ‖  
 
 
+### English
+
+#### śrī viśhṇu sahasra nāma stotram
+
+oṃ śuklāmbaradharaṃ viśhṇuṃ śaśivarṇaṃ chaturbhujam ❘  
+prasannavadanaṃ dhyāyet sarvavighnopaśāntaye 
+‖ 1 ‖
+
+yasyadviradavaktrādyāḥ pāriśhadyāḥ paraḥ śatam ❘  
+vighnaṃ nighnanti satataṃ viśhvaksenaṃ tamāśraye 
+‖ 2 ‖
+
+pūrva pīṭhikā  
+vyāsaṃ vasiśhṭha naptāraṃ śakteḥ pautramakalmaśhaṃ ❘  
+parāśarātmajaṃ vande śukatātaṃ taponidhiṃ 
+‖ 3 ‖
+
+vyāsāya viśhṇu rūpāya vyāsarūpāya viśhṇave ❘  
+namo vai brahmanidhaye vāsiśhṭhāya namo namaḥ 
+‖ 4 ‖
+
+avikārāya śuddhāya nityāya paramātmane ❘  
+sadaika rūpa rūpāya viśhṇave sarvajiśhṇave 
+‖ 5 ‖
+
+yasya smaraṇamātreṇa janmasaṃsārabandhanāt ❘  
+vimuchyate namastasmai viśhṇave prabhaviśhṇave 
+‖ 6 ‖
+
+oṃ namo viśhṇave prabhaviśhṇave ❘  
+śrī vaiśampāyana uvācha  
+śrutvā dharmā naśeśheṇa pāvanāni cha sarvaśaḥ ❘  
+yudhiśhṭhiraḥ śāntanavaṃ punarevābhya bhāśhata 
+‖ 7 ‖
+
+yudhiśhṭhira uvācha  
+kimekaṃ daivataṃ loke kiṃ vā'pyekaṃ parāyaṇaṃ  
+stuvantaḥ kaṃ kamarchantaḥ prāpnuyurmānavāḥ śubham 
+‖ 8 ‖
+
+ko dharmaḥ sarvadharmāṇāṃ bhavataḥ paramo mataḥ ❘  
+kiṃ japanmuchyate janturjanmasaṃsāra bandhanāt 
+‖ 9 ‖
+
+śrī bhīśhma uvācha  
+jagatprabhuṃ devadeva manantaṃ puruśhottamaṃ ❘  
+stuvannāma sahasreṇa puruśhaḥ satatotthitaḥ 
+‖ 10 ‖
+
+tameva chārchayannityaṃ bhaktyā puruśhamavyayaṃ ❘  
+dhyāyan stuvannamasyaṃścha yajamānastameva cha 
+‖ 11 ‖
+
+anādi nidhanaṃ viśhṇuṃ sarvaloka maheśvaraṃ ❘  
+lokādhyakśhaṃ stuvannityaṃ sarva duḥkhātigo bhavet 
+‖ 12 ‖
+
+brahmaṇyaṃ sarva dharmajJṇaṃ lokānāṃ kīrti vardhanaṃ ❘  
+lokanāthaṃ mahadbhūtaṃ sarvabhūta bhavodbhavam
+‖ 13 ‖
+
+eśha me sarva dharmāṇāṃ dharmoadhika tamomataḥ ❘  
+yadbhaktyā puṇḍarīkākśhaṃ stavairarchennaraḥ sadā 
+‖ 14 ‖
+
+paramaṃ yo mahattejaḥ paramaṃ yo mahattapaḥ ❘  
+paramaṃ yo mahadbrahma paramaṃ yaḥ parāyaṇam ❘  
+15 ‖
+
+pavitrāṇāṃ pavitraṃ yo maṅgaldānāṃ cha maṅgaldaṃ ❘  
+daivataṃ devatānāṃ cha bhūtānāṃ yoavyayaḥ pitā 
+‖ 16 ‖
+
+yataḥ sarvāṇi bhūtāni bhavantyādi yugāgame ❘  
+yasmiṃścha pralayaṃ yānti punareva yugakśhaye 
+‖ 17 ‖
+
+tasya loka pradhānasya jagannāthasya bhūpate ❘  
+viśhṇornāma sahasraṃ me śruṇu pāpa bhayāpaham 
+‖ 18 ‖
+
+yāni nāmāni gauṇāni vikhyātāni mahātmanaḥ ❘  
+ṛśhibhiḥ parigītāni tāni vakśhyāmi bhūtaye 
+‖ 19 ‖
+
+ṛśhirnāmnāṃ sahasrasya vedavyāso mahāmuniḥ ‖
+
+Chandoanuśhṭup tathā devo bhagavān devakīsutaḥ 
+‖ 20 ‖
+
+amṛtāṃ śūdbhavo bījaṃ śaktirdevakinandanaḥ ❘  
+trisāmā hṛdayaṃ tasya śāntyarthe viniyujyate 
+‖ 21 ‖
+
+viśhṇuṃ jiśhṇuṃ mahāviśhṇuṃ prabhaviśhṇuṃ maheśvaraṃ ‖
+
+anekarūpa daityāntaṃ namāmi puruśhottamam 
+‖ 22 ‖
+
+pūrvanyāsaḥ  
+asya śrī viśhṇordivya sahasranāma stotra mahāmantrasya ‖
+
+śrī vedavyāso bhagavān ṛśhiḥ ❘  
+anuśhṭup Chandaḥ ❘  
+śrīmahāviśhṇuḥ paramātmā śrīmannārāyaṇo devatā ❘  
+amṛtāṃśūdbhavo bhānuriti bījaṃ ❘  
+devakīnandanaḥ sraśhṭeti śaktiḥ ❘  
+udbhavaḥ, kśhobhaṇo deva iti paramomantraḥ ❘  
+śaṅkhabhṛnnandakī chakrīti kīlakam ❘  
+śārṅgadhanvā gadādhara ityastram ❘  
+rathāṅgapāṇi rakśhobhya iti netraṃ ❘  
+trisāmāsāmagaḥ sāmeti kavacham ❘  
+ānandaṃ parabrahmeti yoniḥ ❘  
+ṛtussudarśanaḥ kāla iti digbandhaḥ ‖
+
+śrīviśvarūpa iti dhyānaṃ ❘  
+śrī mahāviśhṇu prītyarthe sahasranāma jape pārāyaṇe viniyogaḥ ❘  
+karanyāsaḥ  
+viśvaṃ viśhṇurvaśhaṭkāra ityaṅguśhṭhābhyāṃ namaḥ  
+amṛtāṃ śūdbhavo bhānuriti tarjanībhyāṃ namaḥ   
+brahmaṇyo brahmakṛt brahmeti madhyamābhyāṃ namaḥ  
+suvarṇabindu rakśhobhya iti anāmikābhyāṃ namaḥ  
+nimiśhoanimiśhaḥ sragvīti kaniśhṭhikābhyāṃ namaḥ  
+rathāṅgapāṇi rakśhobhya iti karatala karapṛśhṭhābhyāṃ namaḥ  
+aṅganyāsaḥ  
+suvrataḥ sumukhaḥ sūkśhma iti jJṇānāya hṛdayāya namaḥ  
+sahasramūrtiḥ viśvātmā iti aiśvaryāya śirase svāhā  
+sahasrārchiḥ saptajihva iti śaktyai śikhāyai vaśhaṭ  
+trisāmā sāmagassāmeti balāya kavachāya huṃ  
+rathāṅgapāṇi rakśhobhya iti netrābhyāṃ vauśhaṭ  
+śāṅgadhanvā gadādhara iti vīryāya astrāyaphaṭ  
+ṛtuḥ sudarśanaḥ kāla iti digbhandhaḥ  
+dhyānam  
+kśhīrodhanvatpradeśe śuchimaṇivilasatsaikatemauktikānāṃ  
+mālākluptāsanasthaḥ sphaṭikamaṇinibhairmauktikairmaṇḍitāṅgaḥ ❘  
+śubhrairabhrairadabhrairuparivirachitairmuktapīyūśha varśhaiḥ  
+ānandī naḥ punīyādarinalinagadā śaṅkhapāṇirmukundaḥ 
+‖ 1 ‖
+
+bhūḥ pādau yasya nābhirviyadasuranilaśchandra sūryau cha netre   
+karṇāvāśāḥ śirodyaurmukhamapi dahano yasya vāsteyamabdhiḥ ❘  
+antaḥsthaṃ yasya viśvaṃ sura narakhagagobhogigandharvadaityaiḥ   
+chitraṃ raṃ ramyate taṃ tribhuvana vapuśaṃ viśhṇumīśaṃ namāmi 
+‖ 2 ‖
+
+oṃ namo bhagavate vāsudevāya !  
+śāntākāraṃ bhujagaśayanaṃ padmanābhaṃ sureśaṃ  
+viśvādhāraṃ gaganasadṛśaṃ meghavarṇaṃ śubhāṅgam ❘  
+lakśhmīkāntaṃ kamalanayanaṃ yogihṛrdhyānagamyam   
+vande viśhṇuṃ bhavabhayaharaṃ sarvalokaikanātham 
+‖ 3 ‖
+
+meghaśyāmaṃ pītakauśeyavāsaṃ   
+śrīvatsākaṃ kaustubhodbhāsitāṅgam ❘  
+puṇyopetaṃ puṇḍarīkāyatākśhaṃ   
+viśhṇuṃ vande sarvalokaikanātham 
+‖ 4 ‖
+
+namaḥ samasta bhūtānāṃ ādi bhūtāya bhūbhṛte ❘  
+anekarūpa rūpāya viśhṇave prabhaviśhṇave 
+‖ 5‖
+
+saśaṅkhachakraṃ sakirīṭakuṇḍalaṃ   
+sapītavastraṃ sarasīruhekśhaṇaṃ ❘  
+sahāra vakśhaḥsthala śobhi kaustubhaṃ   
+namāmi viśhṇuṃ śirasā chaturbhujam ❘  
+6‖
+
+Chāyāyāṃ pārijātasya hemasiṃhāsanopari  
+āsīnamambudaśyāmamāyatākśhamalaṅkṛtam 
+‖ 7 ‖
+
+chandrānanaṃ chaturbāhuṃ śrīvatsāṅkita vakśhasam  
+rukmiṇī satyabhāmābhyāṃ sahitaṃ kṛśhṇamāśraye 
+‖ 8 ‖
+
+pañchapūja  
+laṃ - pṛthivyātmane ganthaṃ samarpayāmi  
+haṃ - ākāśātmane puśhpaiḥ pūjayāmi  
+yaṃ - vāyvātmane dhūpamāghrāpayāmi  
+raṃ - agnyātmane dīpaṃ darśayāmi  
+vaṃ - amṛtātmane naivedyaṃ nivedayāmi  
+saṃ - sarvātmane sarvopachāra pūjā namaskārān samarpayāmi  
+stotram  
+hariḥ om  
+viśvaṃ viśhṇurvaśhaṭkāro bhūtabhavyabhavatprabhuḥ ❘  
+bhūtakṛdbhūtabhṛdbhāvo bhūtātmā bhūtabhāvanaḥ 
+‖ 1 ‖
+
+pūtātmā paramātmā cha muktānāṃ paramāgatiḥ ❘  
+avyayaḥ puruśhaḥ sākśhī kśhetrajJṇoakśhara eva cha 
+‖ 2 ‖
+
+yogo yogavidāṃ netā pradhāna puruśheśvaraḥ ❘  
+nārasiṃhavapuḥ śrīmān keśavaḥ puruśhottamaḥ 
+‖ 3 ‖
+
+sarvaḥ śarvaḥ śivaḥ sthāṇurbhūtādirnidhiravyayaḥ ❘  
+sambhavo bhāvano bhartā prabhavaḥ prabhurīśvaraḥ 
+‖ 4 ‖
+
+svayambhūḥ śambhurādityaḥ puśhkarākśho mahāsvanaḥ ❘  
+anādinidhano dhātā vidhātā dhāturuttamaḥ 
+‖ 5 ‖
+
+aprameyo hṛśhīkeśaḥ padmanābhoamaraprabhuḥ ❘  
+viśvakarmā manustvaśhṭā sthaviśhṭhaḥ sthaviro dhruvaḥ 
+‖ 6 ‖
+
+agrāhyaḥ śāśvato kṛśhṇo lohitākśhaḥ pratardanaḥ ❘  
+prabhūtastrikakubdhāma pavitraṃ maṅgaldaṃ param 
+‖ 7 ‖
+
+īśānaḥ prāṇadaḥ prāṇo jyeśhṭhaḥ śreśhṭhaḥ prajāpatiḥ ❘  
+hiraṇyagarbho bhūgarbho mādhavo madhusūdanaḥ 
+‖ 8 ‖
+
+īśvaro vikramīdhanvī medhāvī vikramaḥ kramaḥ ❘  
+anuttamo durādharśhaḥ kṛtajJṇaḥ kṛtirātmavān
+‖ 9 ‖
+
+sureśaḥ śaraṇaṃ śarma viśvaretāḥ prajābhavaḥ ❘  
+ahassaṃvatsaro vyāldaḥ pratyayaḥ sarvadarśanaḥ 
+‖ 10 ‖
+
+ajassarveśvaraḥ siddhaḥ siddhiḥ sarvādirachyutaḥ ❘  
+vṛśhākapirameyātmā sarvayogavinissṛtaḥ 
+‖ 11 ‖
+
+vasurvasumanāḥ satyaḥ samātmā sammitassamaḥ ❘  
+amoghaḥ puṇḍarīkākśho vṛśhakarmā vṛśhākṛtiḥ 
+‖ 12 ‖
+
+rudro bahuśirā babhrurviśvayoniḥ śuchiśravāḥ ❘  
+amṛtaḥ śāśvatasthāṇurvarāroho mahātapāḥ 
+‖ 13 ‖
+
+sarvagaḥ sarva vidbhānurviśhvakseno janārdanaḥ ❘  
+vedo vedavidavyaṅgo vedāṅgo vedavitkaviḥ 
+‖ 14 ‖
+
+lokādhyakśhaḥ surādhyakśho dharmādhyakśhaḥ kṛtākṛtaḥ ❘  
+chaturātmā chaturvyūhaśchaturdaṃśhṭraśchaturbhujaḥ 
+‖ 15 ‖
+
+bhrājiśhṇurbhojanaṃ bhoktā sahiśhnurjagadādijaḥ ❘  
+anagho vijayo jetā viśvayoniḥ punarvasuḥ 
+‖ 16 ‖
+
+upendro vāmanaḥ prāṃśuramoghaḥ śuchirūrjitaḥ ❘  
+atīndraḥ saṅgrahaḥ sargo dhṛtātmā niyamo yamaḥ 
+‖ 17 ‖
+
+vedyo vaidyaḥ sadāyogī vīrahā mādhavo madhuḥ ❘  
+atīndriyo mahāmāyo mahotsāho mahābalaḥ 
+‖ 18 ‖
+
+mahābuddhirmahāvīryo mahāśaktirmahādyutiḥ ❘  
+anirdeśyavapuḥ śrīmānameyātmā mahādridhṛk 
+‖ 19 ‖
+
+maheśvāso mahībhartā śrīnivāsaḥ satāṅgatiḥ ❘  
+aniruddhaḥ surānando govindo govidāṃ patiḥ 
+‖ 20 ‖
+
+marīchirdamano haṃsaḥ suparṇo bhujagottamaḥ ❘  
+hiraṇyanābhaḥ sutapāḥ padmanābhaḥ prajāpatiḥ 
+‖ 21 ‖
+
+amṛtyuḥ sarvadṛk siṃhaḥ sandhātā sandhimān sthiraḥ ❘  
+ajo durmarśhaṇaḥ śāstā viśrutātmā surārihā 
+‖ 22 ‖
+
+gururgurutamo dhāma satyaḥ satyaparākramaḥ ❘  
+nimiśhoanimiśhaḥ sragvī vāchaspatirudāradhīḥ 
+‖ 23 ‖
+
+agraṇīgrāmaṇīḥ śrīmān nyāyo netā samīraṇaḥ  
+sahasramūrdhā viśvātmā sahasrākśhaḥ sahasrapāt 
+‖ 24 ‖
+
+āvartano nivṛttātmā saṃvṛtaḥ sampramardanaḥ ❘  
+ahaḥ saṃvartako vahniranilo dharaṇīdharaḥ 
+‖ 25 ‖
+
+suprasādaḥ prasannātmā viśvadhṛgviśvabhugvibhuḥ ❘  
+satkartā satkṛtaḥ sādhurjahnurnārāyaṇo naraḥ 
+‖ 26 ‖
+
+asaṅkhyeyoaprameyātmā viśiśhṭaḥ śiśhṭakṛcChuchiḥ ❘  
+siddhārthaḥ siddhasaṅkalpaḥ siddhidaḥ siddhi sādhanaḥ 
+‖ 27 ‖
+
+vṛśhāhī vṛśhabho viśhṇurvṛśhaparvā vṛśhodaraḥ ❘  
+vardhano vardhamānaścha viviktaḥ śrutisāgaraḥ 
+‖ 28 ‖
+
+subhujo durdharo vāgmī mahendro vasudo vasuḥ ❘  
+naikarūpo bṛhadrūpaḥ śipiviśhṭaḥ prakāśanaḥ 
+‖ 29 ‖
+
+ojastejodyutidharaḥ prakāśātmā pratāpanaḥ ❘  
+ṛddaḥ spaśhṭākśharo mantraśchandrāṃśurbhāskaradyutiḥ 
+‖ 30 ‖
+
+amṛtāṃśūdbhavo bhānuḥ śaśabinduḥ sureśvaraḥ ❘  
+auśhadhaṃ jagataḥ setuḥ satyadharmaparākramaḥ 
+‖ 31 ‖
+
+bhūtabhavyabhavannāthaḥ pavanaḥ pāvanoanalaḥ ❘  
+kāmahā kāmakṛtkāntaḥ kāmaḥ kāmapradaḥ prabhuḥ 
+‖ 32 ‖
+
+yugādi kṛdyugāvarto naikamāyo mahāśanaḥ ❘  
+adṛśyo vyaktarūpaścha sahasrajidanantajit 
+‖ 33 ‖
+
+iśhṭoaviśiśhṭaḥ śiśhṭeśhṭaḥ śikhaṇḍī nahuśho vṛśhaḥ ❘  
+krodhahā krodhakṛtkartā viśvabāhurmahīdharaḥ 
+‖ 34 ‖
+
+achyutaḥ prathitaḥ prāṇaḥ prāṇado vāsavānujaḥ ❘  
+apāṃnidhiradhiśhṭhānamapramattaḥ pratiśhṭhitaḥ 
+‖ 35 ‖
+
+skandaḥ skandadharo dhuryo varado vāyuvāhanaḥ ❘  
+vāsudevo bṛhadbhānurādidevaḥ purandharaḥ 
+‖ 36 ‖
+
+aśokastāraṇastāraḥ śūraḥ śaurirjaneśvaraḥ ❘  
+anukūlaḥ śatāvartaḥ padmī padmanibhekśhaṇaḥ 
+‖ 37 ‖
+
+padmanābhoaravindākśhaḥ padmagarbhaḥ śarīrabhṛt ❘  
+mahardhirṛddho vṛddhātmā mahākśho garuḍadhvajaḥ 
+‖ 38 ‖
+
+atulaḥ śarabho bhīmaḥ samayajJṇo havirhariḥ ❘  
+sarvalakśhaṇalakśhaṇyo lakśhmīvān samitiñjayaḥ 
+‖ 39 ‖
+
+vikśharo rohito mārgo heturdāmodaraḥ sahaḥ ❘  
+mahīdharo mahābhāgo vegavānamitāśanaḥ 
+‖ 40 ‖
+
+udbhavaḥ, kśhobhaṇo devaḥ śrīgarbhaḥ parameśvaraḥ ❘  
+karaṇaṃ kāraṇaṃ kartā vikartā gahano guhaḥ 
+‖ 41 ‖
+
+vyavasāyo vyavasthānaḥ saṃsthānaḥ sthānado dhruvaḥ ❘  
+parardhiḥ paramaspaśhṭaḥ tuśhṭaḥ puśhṭaḥ śubhekśhaṇaḥ 
+‖ 42 ‖
+
+rāmo virāmo virajo mārgoneyo nayoanayaḥ ❘  
+vīraḥ śaktimatāṃ śreśhṭho dharmodharma viduttamaḥ 
+‖ 43 ‖
+
+vaikuṇṭhaḥ puruśhaḥ prāṇaḥ prāṇadaḥ praṇavaḥ pṛthuḥ ❘  
+hiraṇyagarbhaḥ śatrughno vyāpto vāyuradhokśhajaḥ 
+‖ 44 ‖
+
+ṛtuḥ sudarśanaḥ kālaḥ parameśhṭhī parigrahaḥ ❘  
+ugraḥ saṃvatsaro dakśho viśrāmo viśvadakśhiṇaḥ 
+‖ 45 ‖
+
+vistāraḥ sthāvara sthāṇuḥ pramāṇaṃ bījamavyayaṃ ❘  
+arthoanartho mahākośo mahābhogo mahādhanaḥ 
+‖ 46 ‖
+
+anirviṇṇaḥ sthaviśhṭho bhūddharmayūpo mahāmakhaḥ ❘  
+nakśhatranemirnakśhatrī kśhamaḥ, kśhāmaḥ samīhanaḥ 
+‖ 47 ‖
+
+yajJṇa ijyo mahejyaścha kratuḥ satraṃ satāṅgatiḥ ❘  
+sarvadarśī vimuktātmā sarvajJṇo jJṇānamuttamaṃ 
+‖ 48 ‖
+
+suvrataḥ sumukhaḥ sūkśhmaḥ sughośhaḥ sukhadaḥ suhṛt ❘  
+manoharo jitakrodho vīra bāhurvidāraṇaḥ 
+‖ 49 ‖
+
+svāpanaḥ svavaśo vyāpī naikātmā naikakarmakṛt❘  
+❘  
+vatsaro vatsalo vatsī ratnagarbho dhaneśvaraḥ 
+‖ 50 ‖
+
+dharmagubdharmakṛddharmī sadasatkśharamakśharam‖
+
+avijJṇātā sahastrāṃśurvidhātā kṛtalakśhaṇaḥ 
+‖ 51 ‖
+
+gabhastinemiḥ sattvasthaḥ siṃho bhūta maheśvaraḥ ❘  
+ādidevo mahādevo deveśo devabhṛdguruḥ 
+‖ 52 ‖
+
+uttaro gopatirgoptā jJṇānagamyaḥ purātanaḥ ❘  
+śarīra bhūtabhṛd bhoktā kapīndro bhūridakśhiṇaḥ 
+‖ 53 ‖
+
+somapoamṛtapaḥ somaḥ purujit purusattamaḥ ❘  
+vinayo jayaḥ satyasandho dāśārhaḥ sātvatāṃ patiḥ 
+‖ 54 ‖
+
+jīvo vinayitā sākśhī mukundoamita vikramaḥ ❘  
+ambhonidhiranantātmā mahodadhi śayontakaḥ 
+‖ 55 ‖
+
+ajo mahārhaḥ svābhāvyo jitāmitraḥ pramodanaḥ ❘  
+ānandoanandanonandaḥ satyadharmā trivikramaḥ 
+‖ 56 ‖
+
+maharśhiḥ kapilāchāryaḥ kṛtajJṇo medinīpatiḥ ❘  
+tripadastridaśādhyakśho mahāśṛṅgaḥ kṛtāntakṛt 
+‖ 57 ‖
+
+mahāvarāho govindaḥ suśheṇaḥ kanakāṅgadī ❘  
+guhyo gabhīro gahano guptaśchakra gadādharaḥ 
+‖ 58 ‖
+
+vedhāḥ svāṅgoajitaḥ kṛśhṇo dṛḍhaḥ saṅkarśhaṇoachyutaḥ ❘  
+varuṇo vāruṇo vṛkśhaḥ puśhkarākśho mahāmanāḥ 
+‖ 59 ‖
+
+bhagavān bhagahā''nandī vanamālī halāyudhaḥ ❘  
+ādityo jyotirādityaḥ sahiśhṇurgatisattamaḥ 
+‖ 60 ‖
+
+sudhanvā khaṇḍaparaśurdāruṇo draviṇapradaḥ ❘  
+divaḥspṛk sarvadṛgvyāso vāchaspatirayonijaḥ 
+‖ 61 ‖
+
+trisāmā sāmagaḥ sāma nirvāṇaṃ bheśhajaṃ bhiśhak ❘  
+sanyāsakṛcChamaḥ śānto niśhṭhā śāntiḥ parāyaṇam❘  
+62 ‖
+
+śubhāṅgaḥ śāntidaḥ sraśhṭā kumudaḥ kuvaleśayaḥ ❘  
+gohito gopatirgoptā vṛśhabhākśho vṛśhapriyaḥ 
+‖ 63 ‖
+
+anivartī nivṛttātmā saṅkśheptā kśhemakṛcChivaḥ ❘  
+śrīvatsavakśhāḥ śrīvāsaḥ śrīpatiḥ śrīmatāṃvaraḥ 
+‖ 64 ‖
+
+śrīdaḥ śrīśaḥ śrīnivāsaḥ śrīnidhiḥ śrīvibhāvanaḥ ❘  
+śrīdharaḥ śrīkaraḥ śreyaḥ śrīmāṃllokatrayāśrayaḥ 
+‖ 65 ‖
+
+svakśhaḥ svaṅgaḥ śatānando nandirjyotirgaṇeśvaraḥ ❘  
+vijitātmā'vidheyātmā satkīrticChinnasaṃśayaḥ 
+‖ 66 ‖
+
+udīrṇaḥ sarvataśchakśhuranīśaḥ śāśvatasthiraḥ ❘  
+bhūśayo bhūśhaṇo bhūtirviśokaḥ śokanāśanaḥ 
+‖ 67 ‖
+
+archiśhmānarchitaḥ kumbho viśuddhātmā viśodhanaḥ ❘  
+aniruddhoapratirathaḥ pradyumnoamitavikramaḥ 
+‖ 68 ‖
+
+kālaneminihā vīraḥ śauriḥ śūrajaneśvaraḥ ❘  
+trilokātmā trilokeśaḥ keśavaḥ keśihā hariḥ 
+‖ 69 ‖
+
+kāmadevaḥ kāmapālaḥ kāmī kāntaḥ kṛtāgamaḥ ❘  
+anirdeśyavapurviśhṇurvīroananto dhanañjayaḥ 
+‖ 70 ‖
+
+brahmaṇyo brahmakṛd brahmā brahma brahmavivardhanaḥ ❘  
+brahmavid brāhmaṇo brahmī brahmajJṇo brāhmaṇapriyaḥ 
+‖ 71 ‖
+
+mahākramo mahākarmā mahātejā mahoragaḥ ❘  
+mahākraturmahāyajvā mahāyajJṇo mahāhaviḥ 
+‖ 72 ‖
+
+stavyaḥ stavapriyaḥ stotraṃ stutiḥ stotā raṇapriyaḥ ❘  
+pūrṇaḥ pūrayitā puṇyaḥ puṇyakīrtiranāmayaḥ 
+‖ 73 ‖
+
+manojavastīrthakaro vasuretā vasupradaḥ ❘  
+vasuprado vāsudevo vasurvasumanā haviḥ 
+‖ 74 ‖
+
+sadgatiḥ satkṛtiḥ sattā sadbhūtiḥ satparāyaṇaḥ ❘  
+śūraseno yaduśreśhṭhaḥ sannivāsaḥ suyāmunaḥ 
+‖ 75 ‖
+
+bhūtāvāso vāsudevaḥ sarvāsunilayoanalaḥ ❘  
+darpahā darpado dṛpto durdharoathāparājitaḥ 
+‖ 76 ‖
+
+viśvamūrtirmahāmūrtirdīptamūrtiramūrtimān ❘  
+anekamūrtiravyaktaḥ śatamūrtiḥ śatānanaḥ 
+‖ 77 ‖
+
+eko naikaḥ savaḥ kaḥ kiṃ yattat padamanuttamaṃ ❘  
+lokabandhurlokanātho mādhavo bhaktavatsalaḥ 
+‖ 78 ‖
+
+suvarṇavarṇo hemāṅgo varāṅgaśchandanāṅgadī ❘  
+vīrahā viśhamaḥ śūnyo ghṛtāśīrachalaśchalaḥ 
+‖ 79 ‖
+
+amānī mānado mānyo lokasvāmī trilokadhṛk ❘  
+sumedhā medhajo dhanyaḥ satyamedhā dharādharaḥ 
+‖ 80 ‖
+
+tejoavṛśho dyutidharaḥ sarvaśastrabhṛtāṃvaraḥ ❘  
+pragraho nigraho vyagro naikaśṛṅgo gadāgrajaḥ 
+‖ 81 ‖
+
+chaturmūrti śchaturbāhu śchaturvyūha śchaturgatiḥ ❘  
+chaturātmā chaturbhāvaśchaturvedavidekapāt 
+‖ 82 ‖
+
+samāvartoanivṛttātmā durjayo duratikramaḥ ❘  
+durlabho durgamo durgo durāvāso durārihā 
+‖ 83 ‖
+
+śubhāṅgo lokasāraṅgaḥ sutantustantuvardhanaḥ ❘  
+indrakarmā mahākarmā kṛtakarmā kṛtāgamaḥ 
+‖ 84 ‖
+
+udbhavaḥ sundaraḥ sundo ratnanābhaḥ sulochanaḥ ❘  
+arko vājasanaḥ śṛṅgī jayantaḥ sarvavijjayī 
+‖ 85 ‖
+
+suvarṇabindurakśhobhyaḥ sarvavāgīśvareśvaraḥ ❘  
+mahāhṛdo mahāgarto mahābhūto mahānidhiḥ 
+‖ 86 ‖
+
+kumudaḥ kundaraḥ kundaḥ parjanyaḥ pāvanoanilaḥ ❘  
+amṛtāśoamṛtavapuḥ sarvajJṇaḥ sarvatomukhaḥ 
+‖ 87 ‖
+
+sulabhaḥ suvrataḥ siddhaḥ śatrujicChatrutāpanaḥ ❘  
+nyagrodhoadumbaroaśvatthaśchāṇūrāndhra niśhūdanaḥ 
+‖ 88 ‖
+
+sahasrārchiḥ saptajihvaḥ saptaidhāḥ saptavāhanaḥ ❘  
+amūrtiranaghoachintyo bhayakṛdbhayanāśanaḥ 
+‖ 89 ‖
+
+aṇurbṛhatkṛśaḥ sthūlo guṇabhṛnnirguṇo mahān ❘  
+adhṛtaḥ svadhṛtaḥ svāsyaḥ prāgvaṃśo vaṃśavardhanaḥ 
+‖ 90 ‖
+
+bhārabhṛt kathito yogī yogīśaḥ sarvakāmadaḥ ❘  
+āśramaḥ śramaṇaḥ, kśhāmaḥ suparṇo vāyuvāhanaḥ 
+‖ 91 ‖
+
+dhanurdharo dhanurvedo daṇḍo damayitā damaḥ ❘  
+aparājitaḥ sarvasaho niyantā'niyamoayamaḥ 
+‖ 92 ‖
+
+sattvavān sāttvikaḥ satyaḥ satyadharmaparāyaṇaḥ ❘  
+abhiprāyaḥ priyārhoarhaḥ priyakṛt prītivardhanaḥ 
+‖ 93 ‖
+
+vihāyasagatirjyotiḥ suruchirhutabhugvibhuḥ ❘  
+ravirvirochanaḥ sūryaḥ savitā ravilochanaḥ 
+‖ 94 ‖
+
+ananto hutabhugbhoktā sukhado naikajoagrajaḥ ❘  
+anirviṇṇaḥ sadāmarśhī lokadhiśhṭhānamadbhutaḥ 
+‖ 95 ‖
+
+sanātsanātanatamaḥ kapilaḥ kapiravyayaḥ ❘  
+svastidaḥ svastikṛtsvastiḥ svastibhuk svastidakśhiṇaḥ 
+‖ 96 ‖
+
+araudraḥ kuṇḍalī chakrī vikramyūrjitaśāsanaḥ ❘  
+śabdātigaḥ śabdasahaḥ śiśiraḥ śarvarīkaraḥ 
+‖ 97 ‖
+
+akrūraḥ peśalo dakśho dakśhiṇaḥ, kśhamiṇāṃvaraḥ ❘  
+vidvattamo vītabhayaḥ puṇyaśravaṇakīrtanaḥ 
+‖ 98 ‖
+
+uttāraṇo duśhkṛtihā puṇyo duḥsvapnanāśanaḥ ❘  
+vīrahā rakśhaṇaḥ santo jīvanaḥ paryavasthitaḥ 
+‖ 99 ‖
+
+anantarūpoananta śrīrjitamanyurbhayāpahaḥ ❘  
+chaturaśro gabhīrātmā vidiśo vyādiśo diśaḥ 
+‖ 100 ‖
+
+anādirbhūrbhuvo lakśhmīḥ suvīro ruchirāṅgadaḥ ❘  
+janano janajanmādirbhīmo bhīmaparākramaḥ 
+‖ 101 ‖
+
+ādhāranilayoadhātā puśhpahāsaḥ prajāgaraḥ ❘  
+ūrdhvagaḥ satpathāchāraḥ prāṇadaḥ praṇavaḥ paṇaḥ 
+‖ 102 ‖
+
+pramāṇaṃ prāṇanilayaḥ prāṇabhṛt prāṇajīvanaḥ ❘  
+tattvaṃ tattvavidekātmā janmamṛtyujarātigaḥ 
+‖ 103 ‖
+
+bhūrbhuvaḥ svastarustāraḥ savitā prapitāmahaḥ ❘  
+yajJṇo yajJṇapatiryajvā yajJṇāṅgo yajJṇavāhanaḥ 
+‖ 104 ‖
+
+yajJṇabhṛd yajJṇakṛd yajJṇī yajJṇabhuk yajJṇasādhanaḥ ❘  
+yajJṇāntakṛd yajJṇaguhyamannamannāda eva cha 
+‖ 105 ‖
+
+ātmayoniḥ svayañjāto vaikhānaḥ sāmagāyanaḥ ❘  
+devakīnandanaḥ sraśhṭā kśhitīśaḥ pāpanāśanaḥ 
+‖ 106 ‖
+
+śaṅkhabhṛnnandakī chakrī śārṅgadhanvā gadādharaḥ ❘  
+rathāṅgapāṇirakśhobhyaḥ sarvapraharaṇāyudhaḥ 
+‖ 107 ‖
+
+śrī sarvapraharaṇāyudha oṃ nama iti ❘  
+vanamālī gadī śārṅgī śaṅkhī chakrī cha nandakī ❘  
+śrīmānnārāyaṇo viśhṇurvāsudevoabhirakśhatu 
+‖ 108 ‖
+
+śrī vāsudevoabhirakśhatu oṃ nama iti ❘  
+uttara pīṭhikā  
+phalaśrutiḥ  
+itīdaṃ kīrtanīyasya keśavasya mahātmanaḥ ❘  
+nāmnāṃ sahasraṃ divyānāmaśeśheṇa prakīrtitam❘  
+
+‖ 1 ‖
+
+ya idaṃ śṛṇuyānnityaṃ yaśchāpi parikīrtayet‖
+
+nāśubhaṃ prāpnuyāt kiñchitsoamutreha cha mānavaḥ 
+‖ 2 ‖
+
+vedāntago brāhmaṇaḥ syāt kśhatriyo vijayī bhavet ❘  
+vaiśyo dhanasamṛddhaḥ syāt śūdraḥ sukhamavāpnuyāt 
+‖ 3 ‖
+
+dharmārthī prāpnuyāddharmamarthārthī chārthamāpnuyāt ❘  
+kāmānavāpnuyāt kāmī prajārthī prāpnuyātprajām❘  
+
+‖ 4 ‖
+
+bhaktimān yaḥ sadotthāya śuchistadgatamānasaḥ ❘  
+sahasraṃ vāsudevasya nāmnāmetat prakīrtayet 
+‖ 5 ‖
+
+yaśaḥ prāpnoti vipulaṃ yātiprādhānyameva cha ❘  
+achalāṃ śriyamāpnoti śreyaḥ prāpnotyanuttamam❘  
+
+‖ 6 ‖
+
+na bhayaṃ kvachidāpnoti vīryaṃ tejaścha vindati ❘  
+bhavatyarogo dyutimān balarūpa guṇānvitaḥ 
+‖ 7 ‖
+
+rogārto muchyate rogādbaddho muchyeta bandhanāt ❘  
+bhayānmuchyeta bhītastu muchyetāpanna āpadaḥ 
+‖ 8 ‖
+
+durgāṇyatitaratyāśu puruśhaḥ puruśhottamam ❘  
+stuvannāmasahasreṇa nityaṃ bhaktisamanvitaḥ 
+‖ 9 ‖
+
+vāsudevāśrayo martyo vāsudevaparāyaṇaḥ ❘  
+sarvapāpaviśuddhātmā yāti brahma sanātanam❘  
+
+‖ 10 ‖
+
+na vāsudeva bhaktānāmaśubhaṃ vidyate kvachit ❘  
+janmamṛtyujarāvyādhibhayaṃ naivopajāyate 
+‖ 11 ‖
+
+imaṃ stavamadhīyānaḥ śraddhābhaktisamanvitaḥ ❘  
+yujyetātma sukhakśhānti śrīdhṛti smṛti kīrtibhiḥ 
+‖ 12 ‖
+
+na krodho na cha mātsaryaṃ na lobho nāśubhāmatiḥ ❘  
+bhavanti kṛtapuṇyānāṃ bhaktānāṃ puruśhottame 
+‖ 13 ‖
+
+dyauḥ sachandrārkanakśhatrā khaṃ diśo bhūrmahodadhiḥ ❘  
+vāsudevasya vīryeṇa vidhṛtāni mahātmanaḥ 
+‖ 14 ‖
+
+sasurāsuragandharvaṃ sayakśhoragarākśhasaṃ ❘  
+jagadvaśe vartatedaṃ kṛśhṇasya sa charācharam❘  
+
+‖ 15 ‖
+
+indriyāṇi manobuddhiḥ sattvaṃ tejo balaṃ dhṛtiḥ ❘  
+vāsudevātmakānyāhuḥ, kśhetraṃ kśhetrajJṇa eva cha 
+‖ 16 ‖
+
+sarvāgamānāmāchāraḥ prathamaṃ parikalpate ❘  
+āchāraprabhavo dharmo dharmasya prabhurachyutaḥ 
+‖ 17 ‖
+
+ṛśhayaḥ pitaro devā mahābhūtāni dhātavaḥ ❘  
+jaṅgamājaṅgamaṃ chedaṃ jagannārāyaṇodbhavaṃ 
+‖ 18 ‖
+
+yogojJṇānaṃ tathā sāṅkhyaṃ vidyāḥ śilpādikarma cha ❘  
+vedāḥ śāstrāṇi vijJṇānametatsarvaṃ janārdanāt 
+‖ 19 ‖
+
+eko viśhṇurmahadbhūtaṃ pṛthagbhūtānyanekaśaḥ ❘  
+trīṃlokānvyāpya bhūtātmā bhuṅkte viśvabhugavyayaḥ 
+‖ 20 ‖
+
+imaṃ stavaṃ bhagavato viśhṇorvyāsena kīrtitaṃ ❘  
+paṭhedya icchetpuruśhaḥ śreyaḥ prāptuṃ sukhāni cha 
+‖ 21 ‖
+
+viśveśvaramajaṃ devaṃ jagataḥ prabhumavyayam❘  
+bhajanti ye puśhkarākśhaṃ na te yānti parābhavaṃ 
+‖ 22 ‖
+
+na te yānti parābhavaṃ oṃ nama iti ❘  
+arjuna uvācha  
+padmapatra viśālākśha padmanābha surottama ❘  
+bhaktānā manuraktānāṃ trātā bhava janārdana 
+‖ 23 ‖
+
+śrībhagavānuvācha  
+yo māṃ nāmasahasreṇa stotumicChati pāṇḍava ❘  
+soahamekena ślokena stuta eva na saṃśayaḥ 
+‖ 24 ‖
+
+stuta eva na saṃśaya oṃ nama iti ❘  
+vyāsa uvācha  
+vāsanādvāsudevasya vāsitaṃ bhuvanatrayam ❘  
+sarvabhūtanivāsoasi vāsudeva namoastu te 
+‖ 25 ‖
+
+śrīvāsudeva namostuta oṃ nama iti ❘  
+pārvatyuvācha  
+kenopāyena laghunā viśhṇornāmasahasrakaṃ ❘  
+paṭhyate paṇḍitairnityaṃ śrotumicChāmyahaṃ prabho 
+‖ 26 ‖
+
+īśvara uvācha  
+śrīrāma rāma rāmeti rame rāme manorame ❘  
+sahasranāma tattulyaṃ rāmanāma varānane 
+‖ 27 ‖
+
+śrīrāma nāma varānana oṃ nama iti ❘  
+brahmovācha  
+namoastvanantāya sahasramūrtaye sahasrapādākśhiśirorubāhave ❘  
+sahasranāmne puruśhāya śāśvate sahasrakoṭī yugadhāriṇe namaḥ 
+‖ 28 ‖
+
+śrī sahasrakoṭī yugadhāriṇe nama oṃ nama iti ❘  
+sañjaya uvācha  
+yatra yogeśvaraḥ kṛśhṇo yatra pārtho dhanurdharaḥ ❘  
+tatra śrīrvijayo bhūtirdhruvā nītirmatirmama 
+‖ 29 ‖
+
+śrī bhagavān uvācha  
+ananyāśchintayanto māṃ ye janāḥ paryupāsate ❘  
+teśhāṃ nityābhiyuktānāṃ yogakśhemaṃ vahāmyaham❘  
+
+‖ 30 ‖
+
+paritrāṇāya sādhūnāṃ vināśāya cha duśhkṛtām❘  
+❘  
+dharmasaṃsthāpanārthāya sambhavāmi yuge yuge 
+‖ 31 ‖
+
+ārtāḥ viśhaṇṇāḥ śithilāścha bhītāḥ ghoreśhu cha vyādhiśhu vartamānāḥ ❘  
+saṅkīrtya nārāyaṇaśabdamātraṃ vimuktaduḥkhāḥ sukhino bhavanti 
+‖ 32 ‖
+
+kāyena vāchā manasendriyairvā buddhyātmanā vā prakṛteḥ svabhāvāt ❘  
+karomi yadyatsakalaṃ parasmai nārāyaṇāyeti samarpayāmi 
+‖ 33 ‖
+
+yadakśhara padabhraśhṭaṃ mātrāhīnaṃ tu yadbhavet  
+tathsarvaṃ kśhamyatāṃ deva nārāyaṇa namoastu te ❘  
+visarga bindu mātrāṇi padapādākśharāṇi cha  
+nyūnāni chātiriktāni kśhamasva puruśhottamaḥ ‖
+
+iti śrī mahābhārate śatasāhasrikāyāṃ saṃhitāyāṃ vaiyāsikyāmanuśāsana parvāntargata ānuśāsanika parvaṇi, mokśhadharme bhīśhma yudhiśhṭhira saṃvāde śrī viśhṇordivya sahasranāma stotraṃ nāmaikona pañcha śatādhika śatatamodhyāyaḥ ‖
+
+śrī viśhṇu sahasranāma stotraṃ samāptam ‖
+
+oṃ tatsat sarvaṃ śrī kṛśhṇārpaṇamastu ‖
+
+### PlainEnglish
+
+#### shree vishhNu sahasra naama stotram
+
+oM shuklaaMbaradharaM vishhNuM shashivarNaM chaturbhujam ❘  
+prasannavadanaM dhyaayet sarvavighnopashaaMtaye 
+‖ 1 ‖
+
+yasyadviradavaktraadyaaH paarishhadyaaH paraH shatam ❘  
+vighnaM nighnaMti satataM vishhvaksenaM tamaashraye 
+‖ 2 ‖
+
+poorva peeThikaa  
+vyaasaM vasishhTha naptaaraM shakteH pautramakalmashhaM ❘  
+paraasharaatmajaM vaMde shukataataM taponidhiM 
+‖ 3 ‖
+
+vyaasaaya vishhNu roopaaya vyaasaroopaaya vishhNave ❘  
+namo vai brahmanidhaye vaasishhThaaya namo namaH 
+‖ 4 ‖
+
+avikaaraaya shuddhaaya nityaaya paramaatmane ❘  
+sadaika roopa roopaaya vishhNave sarvajishhNave 
+‖ 5 ‖
+
+yasya smaraNamaatreNa janmasaMsaarabaMdhanaat ❘  
+vimuchyate namastasmai vishhNave prabhavishhNave 
+‖ 6 ‖
+
+oM namo vishhNave prabhavishhNave ❘  
+shree vaishaMpaayana uvaacha  
+shrutvaa dharmaa nasheshheNa paavanaani cha sarvashaH ❘  
+yudhishhThiraH shaaMtanavaM punarevaabhya bhaashhata 
+‖ 7 ‖
+
+yudhishhThira uvaacha  
+kimekaM daivataM loke kiM vaa.apyekaM paraayaNaM  
+stuvaMtaH kaM kamarchaMtaH praapnuyurmaanavaaH shubham 
+‖ 8 ‖
+
+ko dharmaH sarvadharmaaNaaM bhavataH paramo mataH ❘  
+kiM japanmuchyate janturjanmasaMsaara baMdhanaat 
+‖ 9 ‖
+
+shree bheeshhma uvaacha  
+jagatprabhuM devadeva manaMtaM purushhottamaM ❘  
+stuvannaama sahasreNa purushhaH satatotthitaH 
+‖ 10 ‖
+
+tameva chaarchayannityaM bhaktyaa purushhamavyayaM ❘  
+dhyaayan stuvannamasyaMshcha yajamaanastameva cha 
+‖ 11 ‖
+
+anaadi nidhanaM vishhNuM sarvaloka maheshvaraM ❘  
+lokaadhyakshhaM stuvannityaM sarva duHkhaatigo bhavet 
+‖ 12 ‖
+
+brahmaNyaM sarva dharmajjhNaM lokaanaaM keerti vardhanaM ❘  
+lokanaathaM mahadbhootaM sarvabhoota bhavodbhavam
+‖ 13 ‖
+
+eshha me sarva dharmaaNaaM dharmo.adhika tamomataH ❘  
+yadbhaktyaa puMDareekaakshhaM stavairarchennaraH sadaa 
+‖ 14 ‖
+
+paramaM yo mahattejaH paramaM yo mahattapaH ❘  
+paramaM yo mahadbrahma paramaM yaH paraayaNam ❘  
+15 ‖
+
+pavitraaNaaM pavitraM yo maMgaldaanaaM cha maMgaldaM ❘  
+daivataM devataanaaM cha bhootaanaaM yo.avyayaH pitaa 
+‖ 16 ‖
+
+yataH sarvaaNi bhootaani bhavantyaadi yugaagame ❘  
+yasmiMshcha pralayaM yaaMti punareva yugakshhaye 
+‖ 17 ‖
+
+tasya loka pradhaanasya jagannaathasya bhoopate ❘  
+vishhNornaama sahasraM me shruNu paapa bhayaapaham 
+‖ 18 ‖
+
+yaani naamaani gauNaani vikhyaataani mahaatmanaH ❘  
+RRishhibhiH parigeetaani taani vakshhyaami bhootaye 
+‖ 19 ‖
+
+RRishhirnaamnaaM sahasrasya vedavyaaso mahaamuniH ‖
+
+ChaMdo.anushhTup tathaa devo bhagavaan devakeesutaH 
+‖ 20 ‖
+
+amRRitaaM shoodbhavo beejaM shaktirdevakinaMdanaH ❘  
+trisaamaa hRRidayaM tasya shaaMtyarthe viniyujyate 
+‖ 21 ‖
+
+vishhNuM jishhNuM mahaavishhNuM prabhavishhNuM maheshvaraM ‖
+
+anekaroopa daityaaMtaM namaami purushhottamam 
+‖ 22 ‖
+
+poorvanyaasaH  
+asya shree vishhNordivya sahasranaama stotra mahaamaMtrasya ‖
+
+shree vedavyaaso bhagavaan RRishhiH ❘  
+anushhTup ChaMdaH ❘  
+shreemahaavishhNuH paramaatmaa shreemannaaraayaNo devataa ❘  
+amRRitaaMshoodbhavo bhaanuriti beejaM ❘  
+devakeenaMdanaH srashhTeti shaktiH ❘  
+udbhavaH, kshhobhaNo deva iti paramomaMtraH ❘  
+shaMkhabhRRinnaMdakee chakreeti keelakam ❘  
+shaarngadhanvaa gadaadhara ityastram ❘  
+rathaaMgapaaNi rakshhobhya iti netraM ❘  
+trisaamaasaamagaH saameti kavacham ❘  
+aanaMdaM parabrahmeti yoniH ❘  
+RRitussudarshanaH kaala iti digbaMdhaH ‖
+
+shreevishvaroopa iti dhyaanaM ❘  
+shree mahaavishhNu preetyarthe sahasranaama jape paaraayaNe viniyogaH ❘  
+karanyaasaH  
+vishvaM vishhNurvashhaTkaara ityaMgushhThaabhyaaM namaH  
+amRRitaaM shoodbhavo bhaanuriti tarjaneebhyaaM namaH   
+brahmaNyo brahmakRRit brahmeti madhyamaabhyaaM namaH  
+suvarNabiMdu rakshhobhya iti anaamikaabhyaaM namaH  
+nimishho.animishhaH sragveeti kanishhThikaabhyaaM namaH  
+rathaaMgapaaNi rakshhobhya iti karatala karapRRishhThaabhyaaM namaH  
+aMganyaasaH  
+suvrataH sumukhaH sookshhma iti jjhNaanaaya hRRidayaaya namaH  
+sahasramoortiH vishvaatmaa iti aishvaryaaya shirase svaahaa  
+sahasraarchiH saptajihva iti shaktyai shikhaayai vashhaT  
+trisaamaa saamagassaameti balaaya kavachaaya huM  
+rathaaMgapaaNi rakshhobhya iti netraabhyaaM vaushhaT  
+shaangadhanvaa gadaadhara iti veeryaaya astraayaphaT  
+RRituH sudarshanaH kaala iti digbhaMdhaH  
+dhyaanam  
+kshheerodhanvatpradeshe shuchimaNivilasatsaikatemauktikaanaaM  
+maalaakluptaasanasthaH sphaTikamaNinibhairmauktikairmaMDitaaMgaH ❘  
+shubhrairabhrairadabhrairuparivirachitairmuktapeeyooshha varshhaiH  
+aanaMdee naH puneeyaadarinalinagadaa shaMkhapaaNirmukuMdaH 
+‖ 1 ‖
+
+bhooH paadau yasya naabhirviyadasuranilashchaMdra sooryau cha netre   
+karNaavaashaaH shirodyaurmukhamapi dahano yasya vaasteyamabdhiH ❘  
+aMtaHsthaM yasya vishvaM sura narakhagagobhogigaMdharvadaityaiH   
+chitraM raM ramyate taM tribhuvana vapushaM vishhNumeeshaM namaami 
+‖ 2 ‖
+
+oM namo bhagavate vaasudevaaya !  
+shaantaakaaraM bhujagashayanaM padmanaabhaM sureshaM  
+vishvaadhaaraM gaganasadRRishaM meghavarNaM shubhaaMgam ❘  
+lakshhmeekaaMtaM kamalanayanaM yogihRRirdhyaanagamyam   
+vaMde vishhNuM bhavabhayaharaM sarvalokaikanaatham 
+‖ 3 ‖
+
+meghashyaamaM peetakausheyavaasaM   
+shreevatsaakaM kaustubhodbhaasitaaMgam ❘  
+puNyopetaM puMDareekaayataakshhaM   
+vishhNuM vaMde sarvalokaikanaatham 
+‖ 4 ‖
+
+namaH samasta bhootaanaaM aadi bhootaaya bhoobhRRite ❘  
+anekaroopa roopaaya vishhNave prabhavishhNave 
+‖ 5‖
+
+sashaMkhachakraM sakireeTakuMDalaM   
+sapeetavastraM saraseeruhekshhaNaM ❘  
+sahaara vakshhaHsthala shobhi kaustubhaM   
+namaami vishhNuM shirasaa chaturbhujam ❘  
+6‖
+
+ChaayaayaaM paarijaatasya hemasiMhaasanopari  
+aaseenamaMbudashyaamamaayataakshhamalaMkRRitam 
+‖ 7 ‖
+
+chaMdraananaM chaturbaahuM shreevatsaaMkita vakshhasam  
+rukmiNee satyabhaamaabhyaaM sahitaM kRRishhNamaashraye 
+‖ 8 ‖
+
+paMchapooja  
+laM - pRRithivyaatmane gaMthaM samarpayaami  
+haM - aakaashaatmane pushhpaiH poojayaami  
+yaM - vaayvaatmane dhoopamaaghraapayaami  
+raM - agnyaatmane deepaM darshayaami  
+vaM - amRRitaatmane naivedyaM nivedayaami  
+saM - sarvaatmane sarvopachaara poojaa namaskaaraan samarpayaami  
+stotram  
+hariH om  
+vishvaM vishhNurvashhaTkaaro bhootabhavyabhavatprabhuH ❘  
+bhootakRRidbhootabhRRidbhaavo bhootaatmaa bhootabhaavanaH 
+‖ 1 ‖
+
+pootaatmaa paramaatmaa cha muktaanaaM paramaagatiH ❘  
+avyayaH purushhaH saakshhee kshhetrajjhNo.akshhara eva cha 
+‖ 2 ‖
+
+yogo yogavidaaM netaa pradhaana purushheshvaraH ❘  
+naarasiMhavapuH shreemaan keshavaH purushhottamaH 
+‖ 3 ‖
+
+sarvaH sharvaH shivaH sthaaNurbhootaadirnidhiravyayaH ❘  
+saMbhavo bhaavano bhartaa prabhavaH prabhureeshvaraH 
+‖ 4 ‖
+
+svayaMbhooH shaMbhuraadityaH pushhkaraakshho mahaasvanaH ❘  
+anaadinidhano dhaataa vidhaataa dhaaturuttamaH 
+‖ 5 ‖
+
+aprameyo hRRishheekeshaH padmanaabho.amaraprabhuH ❘  
+vishvakarmaa manustvashhTaa sthavishhThaH sthaviro dhruvaH 
+‖ 6 ‖
+
+agraahyaH shaashvato kRRishhNo lohitaakshhaH pratardanaH ❘  
+prabhootastrikakubdhaama pavitraM maMgaldaM param 
+‖ 7 ‖
+
+eeshaanaH praaNadaH praaNo jyeshhThaH shreshhThaH prajaapatiH ❘  
+hiraNyagarbho bhoogarbho maadhavo madhusoodanaH 
+‖ 8 ‖
+
+eeshvaro vikrameedhanvee medhaavee vikramaH kramaH ❘  
+anuttamo duraadharshhaH kRRitajjhNaH kRRitiraatmavaan
+‖ 9 ‖
+
+sureshaH sharaNaM sharma vishvaretaaH prajaabhavaH ❘  
+ahassaMvatsaro vyaaldaH pratyayaH sarvadarshanaH 
+‖ 10 ‖
+
+ajassarveshvaraH siddhaH siddhiH sarvaadirachyutaH ❘  
+vRRishhaakapirameyaatmaa sarvayogavinissRRitaH 
+‖ 11 ‖
+
+vasurvasumanaaH satyaH samaatmaa sammitassamaH ❘  
+amoghaH puMDareekaakshho vRRishhakarmaa vRRishhaakRRitiH 
+‖ 12 ‖
+
+rudro bahushiraa babhrurvishvayoniH shuchishravaaH ❘  
+amRRitaH shaashvatasthaaNurvaraaroho mahaatapaaH 
+‖ 13 ‖
+
+sarvagaH sarva vidbhaanurvishhvakseno janaardanaH ❘  
+vedo vedavidavyaMgo vedaaMgo vedavitkaviH 
+‖ 14 ‖
+
+lokaadhyakshhaH suraadhyakshho dharmaadhyakshhaH kRRitaakRRitaH ❘  
+chaturaatmaa chaturvyoohashchaturdaMshhTrashchaturbhujaH 
+‖ 15 ‖
+
+bhraajishhNurbhojanaM bhoktaa sahishhnurjagadaadijaH ❘  
+anagho vijayo jetaa vishvayoniH punarvasuH 
+‖ 16 ‖
+
+upeMdro vaamanaH praaMshuramoghaH shuchiroorjitaH ❘  
+ateeMdraH saMgrahaH sargo dhRRitaatmaa niyamo yamaH 
+‖ 17 ‖
+
+vedyo vaidyaH sadaayogee veerahaa maadhavo madhuH ❘  
+ateeMdriyo mahaamaayo mahotsaaho mahaabalaH 
+‖ 18 ‖
+
+mahaabuddhirmahaaveeryo mahaashaktirmahaadyutiH ❘  
+anirdeshyavapuH shreemaanameyaatmaa mahaadridhRRik 
+‖ 19 ‖
+
+maheshvaaso maheebhartaa shreenivaasaH sataaMgatiH ❘  
+aniruddhaH suraanaMdo goviMdo govidaaM patiH 
+‖ 20 ‖
+
+mareechirdamano haMsaH suparNo bhujagottamaH ❘  
+hiraNyanaabhaH sutapaaH padmanaabhaH prajaapatiH 
+‖ 21 ‖
+
+amRRityuH sarvadRRik siMhaH saMdhaataa saMdhimaan sthiraH ❘  
+ajo durmarshhaNaH shaastaa vishrutaatmaa suraarihaa 
+‖ 22 ‖
+
+gururgurutamo dhaama satyaH satyaparaakramaH ❘  
+nimishho.animishhaH sragvee vaachaspatirudaaradheeH 
+‖ 23 ‖
+
+agraNeegraamaNeeH shreemaan nyaayo netaa sameeraNaH  
+sahasramoordhaa vishvaatmaa sahasraakshhaH sahasrapaat 
+‖ 24 ‖
+
+aavartano nivRRittaatmaa saMvRRitaH saMpramardanaH ❘  
+ahaH saMvartako vahniranilo dharaNeedharaH 
+‖ 25 ‖
+
+suprasaadaH prasannaatmaa vishvadhRRigvishvabhugvibhuH ❘  
+satkartaa satkRRitaH saadhurjahnurnaaraayaNo naraH 
+‖ 26 ‖
+
+asaMkhyeyo.aprameyaatmaa vishishhTaH shishhTakRRicChuchiH ❘  
+siddhaarthaH siddhasaMkalpaH siddhidaH siddhi saadhanaH 
+‖ 27 ‖
+
+vRRishhaahee vRRishhabho vishhNurvRRishhaparvaa vRRishhodaraH ❘  
+vardhano vardhamaanashcha viviktaH shrutisaagaraH 
+‖ 28 ‖
+
+subhujo durdharo vaagmee maheMdro vasudo vasuH ❘  
+naikaroopo bRRihadroopaH shipivishhTaH prakaashanaH 
+‖ 29 ‖
+
+ojastejodyutidharaH prakaashaatmaa prataapanaH ❘  
+RRiddaH spashhTaakshharo maMtrashchaMdraaMshurbhaaskaradyutiH 
+‖ 30 ‖
+
+amRRitaaMshoodbhavo bhaanuH shashabiMduH sureshvaraH ❘  
+aushhadhaM jagataH setuH satyadharmaparaakramaH 
+‖ 31 ‖
+
+bhootabhavyabhavannaathaH pavanaH paavano.analaH ❘  
+kaamahaa kaamakRRitkaaMtaH kaamaH kaamapradaH prabhuH 
+‖ 32 ‖
+
+yugaadi kRRidyugaavarto naikamaayo mahaashanaH ❘  
+adRRishyo vyaktaroopashcha sahasrajidanaMtajit 
+‖ 33 ‖
+
+ishhTo.avishishhTaH shishhTeshhTaH shikhaMDee nahushho vRRishhaH ❘  
+krodhahaa krodhakRRitkartaa vishvabaahurmaheedharaH 
+‖ 34 ‖
+
+achyutaH prathitaH praaNaH praaNado vaasavaanujaH ❘  
+apaaMnidhiradhishhThaanamapramattaH pratishhThitaH 
+‖ 35 ‖
+
+skaMdaH skaMdadharo dhuryo varado vaayuvaahanaH ❘  
+vaasudevo bRRihadbhaanuraadidevaH puraMdharaH 
+‖ 36 ‖
+
+ashokastaaraNastaaraH shooraH shaurirjaneshvaraH ❘  
+anukoolaH shataavartaH padmee padmanibhekshhaNaH 
+‖ 37 ‖
+
+padmanaabho.araviMdaakshhaH padmagarbhaH shareerabhRRit ❘  
+mahardhirRRiddho vRRiddhaatmaa mahaakshho garuDadhvajaH 
+‖ 38 ‖
+
+atulaH sharabho bheemaH samayajjhNo havirhariH ❘  
+sarvalakshhaNalakshhaNyo lakshhmeevaan samitiMjayaH 
+‖ 39 ‖
+
+vikshharo rohito maargo heturdaamodaraH sahaH ❘  
+maheedharo mahaabhaago vegavaanamitaashanaH 
+‖ 40 ‖
+
+udbhavaH, kshhobhaNo devaH shreegarbhaH parameshvaraH ❘  
+karaNaM kaaraNaM kartaa vikartaa gahano guhaH 
+‖ 41 ‖
+
+vyavasaayo vyavasthaanaH saMsthaanaH sthaanado dhruvaH ❘  
+parardhiH paramaspashhTaH tushhTaH pushhTaH shubhekshhaNaH 
+‖ 42 ‖
+
+raamo viraamo virajo maargoneyo nayo.anayaH ❘  
+veeraH shaktimataaM shreshhTho dharmodharma viduttamaH 
+‖ 43 ‖
+
+vaikuMThaH purushhaH praaNaH praaNadaH praNavaH pRRithuH ❘  
+hiraNyagarbhaH shatrughno vyaapto vaayuradhokshhajaH 
+‖ 44 ‖
+
+RRituH sudarshanaH kaalaH parameshhThee parigrahaH ❘  
+ugraH saMvatsaro dakshho vishraamo vishvadakshhiNaH 
+‖ 45 ‖
+
+vistaaraH sthaavara sthaaNuH pramaaNaM beejamavyayaM ❘  
+artho.anartho mahaakosho mahaabhogo mahaadhanaH 
+‖ 46 ‖
+
+anirviNNaH sthavishhTho bhooddharmayoopo mahaamakhaH ❘  
+nakshhatranemirnakshhatree kshhamaH, kshhaamaH sameehanaH 
+‖ 47 ‖
+
+yajjhNa ijyo mahejyashcha kratuH satraM sataaMgatiH ❘  
+sarvadarshee vimuktaatmaa sarvajjhNo jjhNaanamuttamaM 
+‖ 48 ‖
+
+suvrataH sumukhaH sookshhmaH sughoshhaH sukhadaH suhRRit ❘  
+manoharo jitakrodho veera baahurvidaaraNaH 
+‖ 49 ‖
+
+svaapanaH svavasho vyaapee naikaatmaa naikakarmakRRit❘  
+❘  
+vatsaro vatsalo vatsee ratnagarbho dhaneshvaraH 
+‖ 50 ‖
+
+dharmagubdharmakRRiddharmee sadasatkshharamakshharam‖
+
+avijjhNaataa sahastraaMshurvidhaataa kRRitalakshhaNaH 
+‖ 51 ‖
+
+gabhastinemiH sattvasthaH siMho bhoota maheshvaraH ❘  
+aadidevo mahaadevo devesho devabhRRidguruH 
+‖ 52 ‖
+
+uttaro gopatirgoptaa jjhNaanagamyaH puraatanaH ❘  
+shareera bhootabhRRid bhoktaa kapeeMdro bhooridakshhiNaH 
+‖ 53 ‖
+
+somapo.amRRitapaH somaH purujit purusattamaH ❘  
+vinayo jayaH satyasaMdho daashaarhaH saatvataaM patiH 
+‖ 54 ‖
+
+jeevo vinayitaa saakshhee mukuMdo.amita vikramaH ❘  
+aMbhonidhiranaMtaatmaa mahodadhi shayoMtakaH 
+‖ 55 ‖
+
+ajo mahaarhaH svaabhaavyo jitaamitraH pramodanaH ❘  
+aanaMdo.anaMdanonaMdaH satyadharmaa trivikramaH 
+‖ 56 ‖
+
+maharshhiH kapilaachaaryaH kRRitajjhNo medineepatiH ❘  
+tripadastridashaadhyakshho mahaashRRiMgaH kRRitaantakRRit 
+‖ 57 ‖
+
+mahaavaraaho goviMdaH sushheNaH kanakaaMgadee ❘  
+guhyo gabheero gahano guptashchakra gadaadharaH 
+‖ 58 ‖
+
+vedhaaH svaaMgo.ajitaH kRRishhNo dRRiDhaH saMkarshhaNo.achyutaH ❘  
+varuNo vaaruNo vRRikshhaH pushhkaraakshho mahaamanaaH 
+‖ 59 ‖
+
+bhagavaan bhagahaa.a.anaMdee vanamaalee halaayudhaH ❘  
+aadityo jyotiraadityaH sahishhNurgatisattamaH 
+‖ 60 ‖
+
+sudhanvaa khaMDaparashurdaaruNo draviNapradaH ❘  
+divaHspRRik sarvadRRigvyaaso vaachaspatirayonijaH 
+‖ 61 ‖
+
+trisaamaa saamagaH saama nirvaaNaM bheshhajaM bhishhak ❘  
+sanyaasakRRicChamaH shaaMto nishhThaa shaaMtiH paraayaNam❘  
+62 ‖
+
+shubhaaMgaH shaaMtidaH srashhTaa kumudaH kuvaleshayaH ❘  
+gohito gopatirgoptaa vRRishhabhaakshho vRRishhapriyaH 
+‖ 63 ‖
+
+anivartee nivRRittaatmaa saMkshheptaa kshhemakRRicChivaH ❘  
+shreevatsavakshhaaH shreevaasaH shreepatiH shreemataaMvaraH 
+‖ 64 ‖
+
+shreedaH shreeshaH shreenivaasaH shreenidhiH shreevibhaavanaH ❘  
+shreedharaH shreekaraH shreyaH shreemaaMllokatrayaashrayaH 
+‖ 65 ‖
+
+svakshhaH svaMgaH shataanaMdo naMdirjyotirgaNeshvaraH ❘  
+vijitaatmaa.avidheyaatmaa satkeerticChinnasaMshayaH 
+‖ 66 ‖
+
+udeerNaH sarvatashchakshhuraneeshaH shaashvatasthiraH ❘  
+bhooshayo bhooshhaNo bhootirvishokaH shokanaashanaH 
+‖ 67 ‖
+
+archishhmaanarchitaH kuMbho vishuddhaatmaa vishodhanaH ❘  
+aniruddho.apratirathaH pradyumno.amitavikramaH 
+‖ 68 ‖
+
+kaalaneminihaa veeraH shauriH shoorajaneshvaraH ❘  
+trilokaatmaa trilokeshaH keshavaH keshihaa hariH 
+‖ 69 ‖
+
+kaamadevaH kaamapaalaH kaamee kaaMtaH kRRitaagamaH ❘  
+anirdeshyavapurvishhNurveero.anaMto dhanaMjayaH 
+‖ 70 ‖
+
+brahmaNyo brahmakRRid brahmaa brahma brahmavivardhanaH ❘  
+brahmavid braahmaNo brahmee brahmajjhNo braahmaNapriyaH 
+‖ 71 ‖
+
+mahaakramo mahaakarmaa mahaatejaa mahoragaH ❘  
+mahaakraturmahaayajvaa mahaayajjhNo mahaahaviH 
+‖ 72 ‖
+
+stavyaH stavapriyaH stotraM stutiH stotaa raNapriyaH ❘  
+poorNaH poorayitaa puNyaH puNyakeertiranaamayaH 
+‖ 73 ‖
+
+manojavasteerthakaro vasuretaa vasupradaH ❘  
+vasuprado vaasudevo vasurvasumanaa haviH 
+‖ 74 ‖
+
+sadgatiH satkRRitiH sattaa sadbhootiH satparaayaNaH ❘  
+shooraseno yadushreshhThaH sannivaasaH suyaamunaH 
+‖ 75 ‖
+
+bhootaavaaso vaasudevaH sarvaasunilayo.analaH ❘  
+darpahaa darpado dRRipto durdharo.athaaparaajitaH 
+‖ 76 ‖
+
+vishvamoortirmahaamoortirdeeptamoortiramoortimaan ❘  
+anekamoortiravyaktaH shatamoortiH shataananaH 
+‖ 77 ‖
+
+eko naikaH savaH kaH kiM yattat padamanuttamaM ❘  
+lokabaMdhurlokanaatho maadhavo bhaktavatsalaH 
+‖ 78 ‖
+
+suvarNavarNo hemaaMgo varaaMgashchaMdanaaMgadee ❘  
+veerahaa vishhamaH shoonyo ghRRitaasheerachalashchalaH 
+‖ 79 ‖
+
+amaanee maanado maanyo lokasvaamee trilokadhRRik ❘  
+sumedhaa medhajo dhanyaH satyamedhaa dharaadharaH 
+‖ 80 ‖
+
+tejo.avRRishho dyutidharaH sarvashastrabhRRitaaMvaraH ❘  
+pragraho nigraho vyagro naikashRRiMgo gadaagrajaH 
+‖ 81 ‖
+
+chaturmoorti shchaturbaahu shchaturvyooha shchaturgatiH ❘  
+chaturaatmaa chaturbhaavashchaturvedavidekapaat 
+‖ 82 ‖
+
+samaavarto.anivRRittaatmaa durjayo duratikramaH ❘  
+durlabho durgamo durgo duraavaaso duraarihaa 
+‖ 83 ‖
+
+shubhaaMgo lokasaaraMgaH sutaMtustaMtuvardhanaH ❘  
+iMdrakarmaa mahaakarmaa kRRitakarmaa kRRitaagamaH 
+‖ 84 ‖
+
+udbhavaH suMdaraH suMdo ratnanaabhaH sulochanaH ❘  
+arko vaajasanaH shRRiMgee jayaMtaH sarvavijjayee 
+‖ 85 ‖
+
+suvarNabiMdurakshhobhyaH sarvavaageeshvareshvaraH ❘  
+mahaahRRido mahaagarto mahaabhooto mahaanidhiH 
+‖ 86 ‖
+
+kumudaH kuMdaraH kuMdaH parjanyaH paavano.anilaH ❘  
+amRRitaasho.amRRitavapuH sarvajjhNaH sarvatomukhaH 
+‖ 87 ‖
+
+sulabhaH suvrataH siddhaH shatrujicChatrutaapanaH ❘  
+nyagrodho.aduMbaro.ashvatthashchaaNooraaMdhra nishhoodanaH 
+‖ 88 ‖
+
+sahasraarchiH saptajihvaH saptaidhaaH saptavaahanaH ❘  
+amoortiranagho.achiMtyo bhayakRRidbhayanaashanaH 
+‖ 89 ‖
+
+aNurbRRihatkRRishaH sthoolo guNabhRRinnirguNo mahaan ❘  
+adhRRitaH svadhRRitaH svaasyaH praagvaMsho vaMshavardhanaH 
+‖ 90 ‖
+
+bhaarabhRRit kathito yogee yogeeshaH sarvakaamadaH ❘  
+aashramaH shramaNaH, kshhaamaH suparNo vaayuvaahanaH 
+‖ 91 ‖
+
+dhanurdharo dhanurvedo daMDo damayitaa damaH ❘  
+aparaajitaH sarvasaho niyaMtaa.aniyamo.ayamaH 
+‖ 92 ‖
+
+sattvavaan saattvikaH satyaH satyadharmaparaayaNaH ❘  
+abhipraayaH priyaarho.arhaH priyakRRit preetivardhanaH 
+‖ 93 ‖
+
+vihaayasagatirjyotiH suruchirhutabhugvibhuH ❘  
+ravirvirochanaH sooryaH savitaa ravilochanaH 
+‖ 94 ‖
+
+anaMto hutabhugbhoktaa sukhado naikajo.agrajaH ❘  
+anirviNNaH sadaamarshhee lokadhishhThaanamadbhutaH 
+‖ 95 ‖
+
+sanaatsanaatanatamaH kapilaH kapiravyayaH ❘  
+svastidaH svastikRRitsvastiH svastibhuk svastidakshhiNaH 
+‖ 96 ‖
+
+araudraH kuMDalee chakree vikramyoorjitashaasanaH ❘  
+shabdaatigaH shabdasahaH shishiraH sharvareekaraH 
+‖ 97 ‖
+
+akrooraH peshalo dakshho dakshhiNaH, kshhamiNaaMvaraH ❘  
+vidvattamo veetabhayaH puNyashravaNakeertanaH 
+‖ 98 ‖
+
+uttaaraNo dushhkRRitihaa puNyo duHsvapnanaashanaH ❘  
+veerahaa rakshhaNaH saMto jeevanaH paryavasthitaH 
+‖ 99 ‖
+
+anaMtaroopo.anaMta shreerjitamanyurbhayaapahaH ❘  
+chaturashro gabheeraatmaa vidisho vyaadisho dishaH 
+‖ 100 ‖
+
+anaadirbhoorbhuvo lakshhmeeH suveero ruchiraaMgadaH ❘  
+janano janajanmaadirbheemo bheemaparaakramaH 
+‖ 101 ‖
+
+aadhaaranilayo.adhaataa pushhpahaasaH prajaagaraH ❘  
+oordhvagaH satpathaachaaraH praaNadaH praNavaH paNaH 
+‖ 102 ‖
+
+pramaaNaM praaNanilayaH praaNabhRRit praaNajeevanaH ❘  
+tattvaM tattvavidekaatmaa janmamRRityujaraatigaH 
+‖ 103 ‖
+
+bhoorbhuvaH svastarustaaraH savitaa prapitaamahaH ❘  
+yajjhNo yajjhNapatiryajvaa yajjhNaaMgo yajjhNavaahanaH 
+‖ 104 ‖
+
+yajjhNabhRRid yajjhNakRRid yajjhNee yajjhNabhuk yajjhNasaadhanaH ❘  
+yajjhNaantakRRid yajjhNaguhyamannamannaada eva cha 
+‖ 105 ‖
+
+aatmayoniH svayaMjaato vaikhaanaH saamagaayanaH ❘  
+devakeenaMdanaH srashhTaa kshhiteeshaH paapanaashanaH 
+‖ 106 ‖
+
+shaMkhabhRRinnaMdakee chakree shaarngadhanvaa gadaadharaH ❘  
+rathaaMgapaaNirakshhobhyaH sarvapraharaNaayudhaH 
+‖ 107 ‖
+
+shree sarvapraharaNaayudha oM nama iti ❘  
+vanamaalee gadee shaarngee shaMkhee chakree cha naMdakee ❘  
+shreemaannaaraayaNo vishhNurvaasudevo.abhirakshhatu 
+‖ 108 ‖
+
+shree vaasudevo.abhirakshhatu oM nama iti ❘  
+uttara peeThikaa  
+phalashrutiH  
+iteedaM keertaneeyasya keshavasya mahaatmanaH ❘  
+naamnaaM sahasraM divyaanaamasheshheNa prakeertitam❘  
+
+‖ 1 ‖
+
+ya idaM shRRiNuyaannityaM yashchaapi parikeertayet‖
+
+naashubhaM praapnuyaat kiMchitso.amutreha cha maanavaH 
+‖ 2 ‖
+
+vedaaMtago braahmaNaH syaat kshhatriyo vijayee bhavet ❘  
+vaishyo dhanasamRRiddhaH syaat shoodraH sukhamavaapnuyaat 
+‖ 3 ‖
+
+dharmaarthee praapnuyaaddharmamarthaarthee chaarthamaapnuyaat ❘  
+kaamaanavaapnuyaat kaamee prajaarthee praapnuyaatprajaam❘  
+
+‖ 4 ‖
+
+bhaktimaan yaH sadotthaaya shuchistadgatamaanasaH ❘  
+sahasraM vaasudevasya naamnaametat prakeertayet 
+‖ 5 ‖
+
+yashaH praapnoti vipulaM yaatipraadhaanyameva cha ❘  
+achalaaM shriyamaapnoti shreyaH praapnotyanuttamam❘  
+
+‖ 6 ‖
+
+na bhayaM kvachidaapnoti veeryaM tejashcha viMdati ❘  
+bhavatyarogo dyutimaan balaroopa guNaanvitaH 
+‖ 7 ‖
+
+rogaarto muchyate rogaadbaddho muchyeta baMdhanaat ❘  
+bhayaanmuchyeta bheetastu muchyetaapanna aapadaH 
+‖ 8 ‖
+
+durgaaNyatitaratyaashu purushhaH purushhottamam ❘  
+stuvannaamasahasreNa nityaM bhaktisamanvitaH 
+‖ 9 ‖
+
+vaasudevaashrayo martyo vaasudevaparaayaNaH ❘  
+sarvapaapavishuddhaatmaa yaati brahma sanaatanam❘  
+
+‖ 10 ‖
+
+na vaasudeva bhaktaanaamashubhaM vidyate kvachit ❘  
+janmamRRityujaraavyaadhibhayaM naivopajaayate 
+‖ 11 ‖
+
+imaM stavamadheeyaanaH shraddhaabhaktisamanvitaH ❘  
+yujyetaatma sukhakshhaaMti shreedhRRiti smRRiti keertibhiH 
+‖ 12 ‖
+
+na krodho na cha maatsaryaM na lobho naashubhaamatiH ❘  
+bhavaMti kRRitapuNyaanaaM bhaktaanaaM purushhottame 
+‖ 13 ‖
+
+dyauH sachaMdraarkanakshhatraa khaM disho bhoormahodadhiH ❘  
+vaasudevasya veeryeNa vidhRRitaani mahaatmanaH 
+‖ 14 ‖
+
+sasuraasuragaMdharvaM sayakshhoragaraakshhasaM ❘  
+jagadvashe vartatedaM kRRishhNasya sa charaacharam❘  
+
+‖ 15 ‖
+
+iMdriyaaNi manobuddhiH sattvaM tejo balaM dhRRitiH ❘  
+vaasudevaatmakaanyaahuH, kshhetraM kshhetrajjhNa eva cha 
+‖ 16 ‖
+
+sarvaagamaanaamaachaaraH prathamaM parikalpate ❘  
+aachaaraprabhavo dharmo dharmasya prabhurachyutaH 
+‖ 17 ‖
+
+RRishhayaH pitaro devaa mahaabhootaani dhaatavaH ❘  
+jaMgamaajaMgamaM chedaM jagannaaraayaNodbhavaM 
+‖ 18 ‖
+
+yogojjhNaanaM tathaa saaMkhyaM vidyaaH shilpaadikarma cha ❘  
+vedaaH shaastraaNi vijjhNaanametatsarvaM janaardanaat 
+‖ 19 ‖
+
+eko vishhNurmahadbhootaM pRRithagbhootaanyanekashaH ❘  
+treeMlokaanvyaapya bhootaatmaa bhuMkte vishvabhugavyayaH 
+‖ 20 ‖
+
+imaM stavaM bhagavato vishhNorvyaasena keertitaM ❘  
+paThedya icchetpurushhaH shreyaH praaptuM sukhaani cha 
+‖ 21 ‖
+
+vishveshvaramajaM devaM jagataH prabhumavyayam❘  
+bhajaMti ye pushhkaraakshhaM na te yaaMti paraabhavaM 
+‖ 22 ‖
+
+na te yaaMti paraabhavaM oM nama iti ❘  
+arjuna uvaacha  
+padmapatra vishaalaakshha padmanaabha surottama ❘  
+bhaktaanaa manuraktaanaaM traataa bhava janaardana 
+‖ 23 ‖
+
+shreebhagavaanuvaacha  
+yo maaM naamasahasreNa stotumicChati paaMDava ❘  
+so.ahamekena shlokena stuta eva na saMshayaH 
+‖ 24 ‖
+
+stuta eva na saMshaya oM nama iti ❘  
+vyaasa uvaacha  
+vaasanaadvaasudevasya vaasitaM bhuvanatrayam ❘  
+sarvabhootanivaaso.asi vaasudeva namo.astu te 
+‖ 25 ‖
+
+shreevaasudeva namostuta oM nama iti ❘  
+paarvatyuvaacha  
+kenopaayena laghunaa vishhNornaamasahasrakaM ❘  
+paThyate paMDitairnityaM shrotumicChaamyahaM prabho 
+‖ 26 ‖
+
+eeshvara uvaacha  
+shreeraama raama raameti rame raame manorame ❘  
+sahasranaama tattulyaM raamanaama varaanane 
+‖ 27 ‖
+
+shreeraama naama varaanana oM nama iti ❘  
+brahmovaacha  
+namo.astvanaMtaaya sahasramoortaye sahasrapaadaakshhishirorubaahave ❘  
+sahasranaamne purushhaaya shaashvate sahasrakoTee yugadhaariNe namaH 
+‖ 28 ‖
+
+shree sahasrakoTee yugadhaariNe nama oM nama iti ❘  
+saMjaya uvaacha  
+yatra yogeshvaraH kRRishhNo yatra paartho dhanurdharaH ❘  
+tatra shreervijayo bhootirdhruvaa neetirmatirmama 
+‖ 29 ‖
+
+shree bhagavaan uvaacha  
+ananyaashchiMtayaMto maaM ye janaaH paryupaasate ❘  
+teshhaaM nityaabhiyuktaanaaM yogakshhemaM vahaamyaham❘  
+
+‖ 30 ‖
+
+paritraaNaaya saadhoonaaM vinaashaaya cha dushhkRRitaam❘  
+❘  
+dharmasaMsthaapanaarthaaya saMbhavaami yuge yuge 
+‖ 31 ‖
+
+aartaaH vishhaNNaaH shithilaashcha bheetaaH ghoreshhu cha vyaadhishhu vartamaanaaH ❘  
+saMkeertya naaraayaNashabdamaatraM vimuktaduHkhaaH sukhino bhavaMti 
+‖ 32 ‖
+
+kaayena vaachaa manaseMdriyairvaa buddhyaatmanaa vaa prakRRiteH svabhaavaat ❘  
+karomi yadyatsakalaM parasmai naaraayaNaayeti samarpayaami 
+‖ 33 ‖
+
+yadakshhara padabhrashhTaM maatraaheenaM tu yadbhavet  
+tathsarvaM kshhamyataaM deva naaraayaNa namo.astu te ❘  
+visarga biMdu maatraaNi padapaadaakshharaaNi cha  
+nyoonaani chaatiriktaani kshhamasva purushhottamaH ‖
+
+iti shree mahaabhaarate shatasaahasrikaayaaM saMhitaayaaM vaiyaasikyaamanushaasana parvaaMtargata aanushaasanika parvaNi, mokshhadharme bheeshhma yudhishhThira saMvaade shree vishhNordivya sahasranaama stotraM naamaikona paMcha shataadhika shatatamodhyaayaH ‖
+
+shree vishhNu sahasranaama stotraM samaaptam ‖
+
+oM tatsat sarvaM shree kRRishhNaarpaNamastu ‖
+

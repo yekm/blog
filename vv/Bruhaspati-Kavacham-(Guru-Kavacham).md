@@ -471,3 +471,85 @@ sarvaan kaamaanavaapnoti sarvatra vijayee bhavet ‖
 ‖ ఇతి శ్రీ బృహస్పతి కవచమ్ ‖  
 
 
+### English
+
+#### bṛhaspati kavacham (guru kavacham)
+
+asya śrībṛhaspati kavacamahā mantrasya, īśvara ṛśhiḥ,  
+anuśhṭup Chandaḥ, bṛhaspatirdevatā,   
+gaṃ bījaṃ, śrīṃ śaktiḥ, klīṃ kīlakam,  
+bṛhaspati prasāda siddhyarthe jape viniyogaḥ ‖
+
+dhyānam  
+abhīśhṭaphaladaṃ vande sarvaGYaṃ surapūjitam ❘  
+akśhamālādharaṃ śāntaṃ praṇamāmi bṛhaspatim ‖
+
+atha bṛhaspati kavacam  
+bṛhaspatiḥ śiraḥ pātu lalāṭaṃ pātu me guruḥ ❘  
+karṇau suraguruḥ pātu netre mebhīśhṭadāyakaḥ 
+‖ 1 ‖
+
+jihvāṃ pātu surācāryaḥ nāsaṃ me vedapāragaḥ ❘  
+mukhaṃ me pātu sarvaGYaḥ kaṇṭhaṃ me devatāguruḥ 
+‖ 2 ‖
+
+bhujā vaṅgīrasaḥ pātu karau pātu śubhapradaḥ ❘  
+stanau me pātu vāgīśaḥ kukśhiṃ me śubhalakśhaṇaḥ 
+‖ 3 ‖
+
+nābhiṃ devaguruḥ pātu madhyaṃ pātu sukhapradaḥ ❘  
+kaṭiṃ pātu jagadvandyaḥ ūrū me pātu vākpatiḥ 
+‖ 4 ‖
+
+jānujaṅghe surācāryaḥ pādau viśvātmakaḥ sadā ❘  
+anyāni yāni cāṅgāni rakśhenme sarvato guruḥ 
+‖ 5 ‖
+
+phalaśṛtiḥ  
+ityetatkavacaṃ divyaṃ trisandhyaṃ yaḥ paṭhennaraḥ ❘  
+sarvān kāmānavāpnoti sarvatra vijayī bhavet ‖
+
+
+‖ iti śrī bṛhaspati kavacam ‖
+
+### PlainEnglish
+
+#### bRRihaspati kavacham (guru kavacham)
+
+asya shreebRRihaspati kavacamahaa maMtrasya, eeshvara RRishhiH,  
+anushhTup ChaMdaH, bRRihaspatirdevataa,   
+gaM beejaM, shreeM shaktiH, kleeM keelakam,  
+bRRihaspati prasaada siddhyarthe jape viniyogaH ‖
+
+dhyaanam  
+abheeshhTaphaladaM vaMde sarvagnyaM surapoojitam ❘  
+akshhamaalaadharaM shaaMtaM praNamaami bRRihaspatim ‖
+
+atha bRRihaspati kavacam  
+bRRihaspatiH shiraH paatu lalaaTaM paatu me guruH ❘  
+karNau suraguruH paatu netre mebheeshhTadaayakaH 
+‖ 1 ‖
+
+jihvaaM paatu suraacaaryaH naasaM me vedapaaragaH ❘  
+mukhaM me paatu sarvagnyaH kaMThaM me devataaguruH 
+‖ 2 ‖
+
+bhujaa vaMgeerasaH paatu karau paatu shubhapradaH ❘  
+stanau me paatu vaageeshaH kukshhiM me shubhalakshhaNaH 
+‖ 3 ‖
+
+naabhiM devaguruH paatu madhyaM paatu sukhapradaH ❘  
+kaTiM paatu jagadvaMdyaH ooroo me paatu vaakpatiH 
+‖ 4 ‖
+
+jaanujaMghe suraacaaryaH paadau vishvaatmakaH sadaa ❘  
+anyaani yaani caaMgaani rakshhenme sarvato guruH 
+‖ 5 ‖
+
+phalashRRitiH  
+ityetatkavacaM divyaM trisaMdhyaM yaH paThennaraH ❘  
+sarvaan kaamaanavaapnoti sarvatra vijayee bhavet ‖
+
+
+‖ iti shree bRRihaspati kavacam ‖
+

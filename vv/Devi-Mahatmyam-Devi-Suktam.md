@@ -432,3 +432,91 @@ oM shaaM _ti_ H shaaM _ti_ H shaaMti'H ‖
 ‖ ఇతి ఋగ్వేదోక్తం దేవీసూక్తం సమాప్తమ్ ‖  
 ‖తత్ సత్ ‖  
 
+### English
+
+#### devī mahātmyam devī sūktam
+
+oṃ ahaṃ rudrebhirvasu'bhiścarāmyahamā''dityairuta viśvade''vaiḥ ❘  
+ahaṃ mitrāvaru'ṇobhā bi'bharmyahami''ndrāgnī ahamaśvinobhā 
+‖1‖
+
+ahaṃ soma'māhanasa''ṃ bibharmyahaṃ tvaśhṭā''ramuta pūśhaṇaṃ bhagam'' ❘  
+ahaṃ da'dhāmi dravi'ṇaṃ haviśhma'te suprāvye ye' ^3 yaja'mānāya sunvate 
+‖2‖
+
+ahaṃ rāśhṭrī'' saṅgama'nī vasū''nāṃ cikituśhī'' prathamā yaGYiyā''nām ❘  
+tāṃ mā'' devā vya'dadhuḥ purutrā bhūri'sthātrāṃ bhū~ryā''veśayantī''m 
+‖3‖
+
+mayā so anna'matti yo vipaśya'ti yaḥ prāṇi'ti ya ī''ṃ śṛṇotyuktam ❘  
+amantavomānta upa'kśhiyanti śrudhi śru'taṃ śraddhivaṃ te'' vadāmi 
+‖4‖
+
+ahameva svayamidaṃ vadā'mi juśhṭa''ṃ devebhi'ruta mānu'śhebhiḥ ❘  
+yaṃ kāmaye taṃ ta'mugraṃ kṛ'ṇomi taṃ brahmāṇaṃ tamṛśhiṃ taṃ su'medhām 
+‖5‖
+
+ahaṃ rudrāya dhanurāta'nomi brahmadviśhe śara've hanta vā u' ❘  
+ahaṃ janā''ya samada''ṃ kṛṇomyahaṃ dyāvā''pṛthivī āvi'veśa 
+‖6‖
+
+ahaṃ su've pitara'masya mūrdhan mama yoni'rapsvantaḥ sa'mudre ❘  
+tato viti'śhṭhe bhuvanānu viśvotāmūṃ dyāṃ varśhmaṇopa' spṛśāmi 
+‖7‖
+
+ahameva vāta' iva pravā''myā-rabha'māṇā bhuva'nāni viśvā'' ❘  
+paro divāpara enā pṛ'thivyai-tāva'tī mahinā samba'bhūva 
+‖8‖
+
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+
+‖ iti ṛgvedoktaṃ devīsūktaṃ samāptam ‖
+
+
+‖tat sat ‖
+
+### PlainEnglish
+
+#### devee mahaatmyam devee sooktam
+
+oM ahaM rudrebhirvasu'bhishcaraamyahamaa''dityairuta vishvade''vaiH ❘  
+ahaM mitraavaru'Nobhaa bi'bharmyahami''ndraagnee ahamashvinobhaa 
+‖1‖
+
+ahaM soma'maahanasa''M bibharmyahaM tvashhTaa''ramuta pooshhaNaM bhagam'' ❘  
+ahaM da'dhaami dravi'NaM havishhma'te supraavye ye' ^3 yaja'maanaaya sunvate 
+‖2‖
+
+ahaM raashhTree'' saMgama'nee vasoo''naaM cikitushhee'' prathamaa yagnyiyaa''naam ❘  
+taaM maa'' devaa vya'dadhuH purutraa bhoori'sthaatraaM bhoo~ryaa''veshayantee''m 
+‖3‖
+
+mayaa so anna'matti yo vipashya'ti yaH praaNi'ti ya ee''M shRRiNotyuktam ❘  
+amantavomaaMta upa'kshhiyanti shrudhi shru'taM shraddhivaM te'' vadaami 
+‖4‖
+
+ahameva svayamidaM vadaa'mi jushhTa''M devebhi'ruta maanu'shhebhiH ❘  
+yaM kaamaye taM ta'mugraM kRRi'Nomi taM brahmaaNaM tamRRishhiM taM su'medhaam 
+‖5‖
+
+ahaM rudraaya dhanuraata'nomi brahmadvishhe shara've haMta vaa u' ❘  
+ahaM janaa''ya samada''M kRRiNomyahaM dyaavaa''pRRithivee aavi'vesha 
+‖6‖
+
+ahaM su've pitara'masya moordhan mama yoni'rapsvantaH sa'mudre ❘  
+tato viti'shhThe bhuvanaanu vishvotaamooM dyaaM varshhmaNopa' spRRishaami 
+‖7‖
+
+ahameva vaata' iva pravaa''myaa-rabha'maaNaa bhuva'naani vishvaa'' ❘  
+paro divaapara enaa pRRi'thivyai-taava'tee mahinaa saMba'bhoova 
+‖8‖
+
+oM shaaMtiH shaaMtiH shaaMti'H ‖
+
+
+‖ iti RRigvedoktaM deveesooktaM samaaptam ‖
+
+
+‖tat sat ‖
+

@@ -7855,3 +7855,1573 @@ saumyaaM ratnaghaTastha rakta charaNaaM dhyaayetparaamaMbikaam ‖
 సౌమ్యాం రత్నఘటస్థ రక్త చరణాం ధ్యాయేత్పరామంబికామ్ ‖  
 
 
+### English
+
+#### śrī lalitā sahasra nāma stotram
+
+oṃ ‖
+
+asya śrī lalitā divya sahasranāma stotra mahāmantrasya, vaśinyādi vāgdevatā ṛśhayaḥ, anuśhṭup Chandaḥ, śrī lalitā parābhaṭṭārikā mahā tripura sundarī devatā, aiṃ bījaṃ, klīṃ śaktiḥ, sauḥ kīlakaṃ, mama dharmārtha kāma mokśha chaturvidha phalapuruśhārtha siddhyarthe lalitā tripurasundarī parābhaṭṭārikā sahasra nāma jape viniyogaḥ  
+karanyāsaḥ  
+aiṃ aṅguśhṭābhyāṃ namaḥ, klīṃ tarjanībhyāṃ namaḥ, sauḥ madhyamābhyāṃ namaḥ, sauḥ anāmikābhyāṃ namaḥ, klīṃ kaniśhṭhikābhyāṃ namaḥ, aiṃ karatala karapṛśhṭhābhyāṃ namaḥ  
+aṅganyāsaḥ  
+aiṃ hṛdayāya namaḥ, klīṃ śirase svāhā, sauḥ śikhāyai vaśhaṭ, sauḥ kavachāya huṃ, klīṃ netratrayāya vauśhaṭ, aiṃ astrāyaphaṭ, bhūrbhuvassuvaromiti digbandhaḥ  
+dhyānaṃ  
+aruṇāṃ karuṇā taraṅgitākśhīṃ dhṛtapāśāṅkuśa puśhpabāṇachāpām ❘  
+aṇimādibhi rāvṛtāṃ mayūkhaiḥ ahamityeva vibhāvaye bhavānīm 
+‖ 1 ‖
+
+dhyāyet padmāsanasthāṃ vikasitavadanāṃ padma patrāyatākśhīṃ  
+hemābhāṃ pītavastrāṃ karakalita lasamaddhemapadmāṃ varāṅgīm ❘  
+sarvālaṅkārayuktāṃ sakalamabhayadāṃ bhaktanamrāṃ bhavānīṃ  
+śrī vidyāṃ śāntamūrtiṃ sakala surasutāṃ sarvasampat-pradātrīm 
+‖ 2 ‖
+
+sakuṅkuma vilepanā maḻikachumbi kastūrikāṃ  
+samanda hasitekśhaṇāṃ saśarachāpa pāśāṅkuśām ❘  
+aśeśha janamohinī maruṇamālya bhūśhojjvalāṃ  
+japākusuma bhāsurāṃ japavidhau smare dambikām 
+‖ 3 ‖
+
+sindhūrāruṇa vigrahāṃ triṇayanāṃ māṇikya mauḻisphura-  
+ttārānāyaka śekharāṃ smitamukhī māpīna vakśhoruhām ❘  
+pāṇibhyā malipūrṇa ratna chaśhakaṃ raktotpalaṃ bibhratīṃ  
+saumyāṃ ratnaghaṭastha rakta charaṇāṃ dhyāyetparāmambikām 
+‖ 4 ‖
+
+lamityādi pañchapūjāṃ vibhāvayet  
+laṃ pṛthivī tattvātmikāyai śrī lalitādevyai gandhaṃ parikalpayāmi  
+haṃ ākāśa tattvātmikāyai śrī lalitādevyai puśhpaṃ parikalpayāmi  
+yaṃ vāyu tattvātmikāyai śrī lalitādevyai dhūpaṃ parikalpayāmi  
+raṃ vahni tattvātmikāyai śrī lalitādevyai dīpaṃ parikalpayāmi  
+vaṃ amṛta tattvātmikāyai śrī lalitādevyai amṛta naivedyaṃ parikalpayāmi  
+saṃ sarva tattvātmikāyai śrī lalitādevyai tāmbūlādi sarvopachārān parikalpayāmi  
+gururbrahma gururviśhṇuḥ gururdevo maheśvaraḥ ❘  
+gurussākśhāt parabrahma tasmai śrī gurave namaḥ ‖
+
+hariḥ oṃ  
+śrī mātā, śrī mahārāGYī, śrīmat-siṃhāsaneśvarī ❘  
+chidagni kuṇḍasambhūtā, devakāryasamudyatā 
+‖ 1 ‖
+
+udyadbhānu sahasrābhā, chaturbāhu samanvitā ❘  
+rāgasvarūpa pāśāḍhyā, krodhākārāṅkuśojjvalā 
+‖ 2 ‖
+
+manorūpekśhukodaṇḍā, pañchatanmātra sāyakā ❘  
+nijāruṇa prabhāpūra majjad-brahmāṇḍamaṇḍalā 
+‖ 3 ‖
+
+champakāśoka punnāga saugandhika lasatkachā  
+kuruvinda maṇiśreṇī kanatkoṭīra maṇḍitā 
+‖ 4 ‖
+
+aśhṭamī chandra vibhrāja daḻikasthala śobhitā ❘  
+mukhachandra kaḻaṅkābha mṛganābhi viśeśhakā 
+‖ 5 ‖
+
+vadanasmara māṅgalya gṛhatoraṇa chillikā ❘  
+vaktralakśhmī parīvāha chalanmīnābha lochanā 
+‖ 6 ‖
+
+navachampaka puśhpābha nāsādaṇḍa virājitā ❘  
+tārākānti tiraskāri nāsābharaṇa bhāsurā 
+‖ 7 ‖
+
+kadamba mañjarīklupta karṇapūra manoharā ❘  
+tāṭaṅka yugaḻībhūta tapanoḍupa maṇḍalā 
+‖ 8 ‖
+
+padmarāga śilādarśa paribhāvi kapolabhūḥ ❘  
+navavidruma bimbaśrīḥ nyakkāri radanachChadā 
+‖ 9 ‖
+
+śuddha vidyāṅkurākāra dvijapaṅkti dvayojjvalā ❘  
+karpūravīṭi kāmoda samākarśhaddigantarā 
+‖ 10 ‖
+
+nijasallāpa mādhurya vinirbhatsita kachChapī ❘  
+mandasmita prabhāpūra majjat-kāmeśa mānasā 
+‖ 11 ‖
+
+anākalita sādṛśya chubuka śrī virājitā ❘  
+kāmeśabaddha māṅgalya sūtraśobhita kantharā 
+‖ 12 ‖
+
+kanakāṅgada keyūra kamanīya bhujānvitā ❘  
+ratnagraiveya chintāka lolamuktā phalānvitā 
+‖ 13 ‖
+
+kāmeśvara premaratna maṇi pratipaṇastanī❘  
+nābhyālavāla romāḻi latāphala kuchadvayī 
+‖ 14 ‖
+
+lakśhyaromalatā dhāratā samunneya madhyamā ❘  
+stanabhāra daḻan-madhya paṭṭabandha vaḻitrayā 
+‖ 15 ‖
+
+aruṇāruṇa kausumbha vastra bhāsvat-kaṭītaṭī ❘  
+ratnakiṅkiṇi kāramya raśanādāma bhūśhitā 
+‖ 16 ‖
+
+kāmeśa GYāta saubhāgya mārdavoru dvayānvitā ❘  
+māṇikya makuṭākāra jānudvaya virājitā 
+‖ 17 ‖
+
+indragopa parikśhipta smara tūṇābha jaṅghikā ❘  
+gūḍhagulbhā kūrmapṛśhṭha jayiśhṇu prapadānvitā 
+‖ 18 ‖
+
+nakhadīdhiti sañChanna namajjana tamoguṇā ❘  
+padadvaya prabhājāla parākṛta saroruhā 
+‖ 19 ‖
+
+śiñjāna maṇimañjīra maṇḍita śrī padāmbujā ❘  
+marāḻī mandagamanā, mahālāvaṇya śevadhiḥ 
+‖ 20 ‖
+
+sarvāruṇā'navadyāṅgī sarvābharaṇa bhūśhitā ❘  
+śivakāmeśvarāṅkasthā, śivā, svādhīna vallabhā 
+‖ 21 ‖
+
+sumeru madhyaśṛṅgasthā, śrīmannagara nāyikā ❘  
+chintāmaṇi gṛhāntasthā, pañchabrahmāsanasthitā 
+‖ 22 ‖
+
+mahāpadmāṭavī saṃsthā, kadamba vanavāsinī ❘  
+sudhāsāgara madhyasthā, kāmākśhī kāmadāyinī 
+‖ 23 ‖
+
+devarśhi gaṇasaṅghāta stūyamānātma vaibhavā ❘  
+bhaṇḍāsura vadhodyukta śaktisenā samanvitā 
+‖ 24 ‖
+
+sampatkarī samārūḍha sindhura vrajasevitā ❘  
+aśvārūḍhādhiśhṭhitāśva koṭikoṭi bhirāvṛtā 
+‖ 25 ‖
+
+chakrarāja rathārūḍha sarvāyudha pariśhkṛtā ❘  
+geyachakra rathārūḍha mantriṇī parisevitā 
+‖ 26 ‖
+
+kirichakra rathārūḍha daṇḍanāthā puraskṛtā ❘  
+jvālāmālini kākśhipta vahniprākāra madhyagā 
+‖ 27 ‖
+
+bhaṇḍasainya vadhodyukta śakti vikramaharśhitā ❘  
+nityā parākramāṭopa nirīkśhaṇa samutsukā 
+‖ 28 ‖
+
+bhaṇḍaputra vadhodyukta bālāvikrama nanditā ❘  
+mantriṇyambā virachita viśhaṅga vadhatośhitā 
+‖ 29 ‖
+
+viśukra prāṇaharaṇa vārāhī vīryananditā ❘  
+kāmeśvara mukhāloka kalpita śrī gaṇeśvarā 
+‖ 30 ‖
+
+mahāgaṇeśa nirbhinna vighnayantra praharśhitā ❘  
+bhaṇḍāsurendra nirmukta śastra pratyastra varśhiṇī 
+‖ 31 ‖
+
+karāṅguḻi nakhotpanna nārāyaṇa daśākṛtiḥ ❘  
+mahāpāśupatāstrāgni nirdagdhāsura sainikā 
+‖ 32 ‖
+
+kāmeśvarāstra nirdagdha sabhaṇḍāsura śūnyakā ❘  
+brahmopendra mahendrādi devasaṃstuta vaibhavā 
+‖ 33 ‖
+
+haranetrāgni sandagdha kāma sañjīvanauśhadhiḥ ❘  
+śrīmadvāgbhava kūṭaika svarūpa mukhapaṅkajā 
+‖ 34 ‖
+
+kaṇṭhādhaḥ kaṭiparyanta madhyakūṭa svarūpiṇī ❘  
+śaktikūṭaika tāpanna kaṭyathobhāga dhāriṇī 
+‖ 35 ‖
+
+mūlamantrātmikā, mūlakūṭa traya kaḻebarā ❘  
+kuḻāmṛtaika rasikā, kuḻasaṅketa pālinī 
+‖ 36 ‖
+
+kuḻāṅganā, kuḻāntaḥsthā, kauḻinī, kuḻayoginī ❘  
+akuḻā, samayāntaḥsthā, samayāchāra tatparā 
+‖ 37 ‖
+
+mūlādhāraika nilayā, brahmagranthi vibhedinī ❘  
+maṇipūrānta ruditā, viśhṇugranthi vibhedinī 
+‖ 38 ‖
+
+āGYā chakrāntarāḻasthā, rudragranthi vibhedinī ❘  
+sahasrārāmbujā rūḍhā, sudhāsārābhi varśhiṇī 
+‖ 39 ‖
+
+taṭillatā samaruchiḥ, śhaṭ-chakropari saṃsthitā ❘  
+mahāśaktiḥ, kuṇḍalinī, bisatantu tanīyasī 
+‖ 40 ‖
+
+bhavānī, bhāvanāgamyā, bhavāraṇya kuṭhārikā ❘  
+bhadrapriyā, bhadramūrti, rbhaktasaubhāgya dāyinī 
+‖ 41 ‖
+
+bhaktipriyā, bhaktigamyā, bhaktivaśyā, bhayāpahā ❘  
+śāmbhavī, śāradārādhyā, śarvāṇī, śarmadāyinī 
+‖ 42 ‖
+
+śāṅkarī, śrīkarī, sādhvī, śarachchandranibhānanā ❘  
+śātodarī, śāntimatī, nirādhārā, nirañjanā 
+‖ 43 ‖
+
+nirlepā, nirmalā, nityā, nirākārā, nirākulā ❘  
+nirguṇā, niśhkaḻā, śāntā, niśhkāmā, nirupaplavā 
+‖ 44 ‖
+
+nityamuktā, nirvikārā, niśhprapañchā, nirāśrayā ❘  
+nityaśuddhā, nityabuddhā, niravadyā, nirantarā 
+‖ 45 ‖
+
+niśhkāraṇā, niśhkaḻaṅkā, nirupādhi, rnirīśvarā ❘  
+nīrāgā, rāgamathanī, nirmadā, madanāśinī 
+‖ 46 ‖
+
+niśchintā, nirahaṅkārā, nirmohā, mohanāśinī ❘  
+nirmamā, mamatāhantrī, niśhpāpā, pāpanāśinī 
+‖ 47 ‖
+
+niśhkrodhā, krodhaśamanī, nirlobhā, lobhanāśinī ❘  
+niḥsaṃśayā, saṃśayaghnī, nirbhavā, bhavanāśinī 
+‖ 48 ‖
+
+nirvikalpā, nirābādhā, nirbhedā, bhedanāśinī ❘  
+nirnāśā, mṛtyumathanī, niśhkriyā, niśhparigrahā 
+‖ 49 ‖
+
+nistulā, nīlachikurā, nirapāyā, niratyayā ❘  
+durlabhā, durgamā, durgā, duḥkhahantrī, sukhapradā 
+‖ 50 ‖
+
+duśhṭadūrā, durāchāra śamanī, dośhavarjitā ❘  
+sarvaGYā, sāndrakaruṇā, samānādhikavarjitā 
+‖ 51 ‖
+
+sarvaśaktimayī, sarvamaṅgaḻā, sadgatipradā ❘  
+sarveśvarī, sarvamayī, sarvamantra svarūpiṇī 
+‖ 52 ‖
+
+sarvayantrātmikā, sarvatantrarūpā, manonmanī ❘  
+māheśvarī, mahādevī, mahālakśhmī, rmṛḍapriyā 
+‖ 53 ‖
+
+mahārūpā, mahāpūjyā, mahāpātaka nāśinī ❘  
+mahāmāyā, mahāsattvā, mahāśakti rmahāratiḥ 
+‖ 54 ‖
+
+mahābhogā, mahaiśvaryā, mahāvīryā, mahābalā ❘  
+mahābuddhi, rmahāsiddhi, rmahāyogeśvareśvarī 
+‖ 55 ‖
+
+mahātantrā, mahāmantrā, mahāyantrā, mahāsanā ❘  
+mahāyāga kramārādhyā, mahābhairava pūjitā 
+‖ 56 ‖
+
+maheśvara mahākalpa mahātāṇḍava sākśhiṇī ❘  
+mahākāmeśa mahiśhī, mahātripura sundarī 
+‖ 57 ‖
+
+chatuḥśhaśhṭyupachārāḍhyā, chatuśhśhaśhṭi kaḻāmayī ❘  
+mahā chatuśhśhaśhṭi koṭi yoginī gaṇasevitā 
+‖ 58 ‖
+
+manuvidyā, chandravidyā, chandramaṇḍalamadhyagā ❘  
+chārurūpā, chāruhāsā, chāruchandra kaḻādharā 
+‖ 59 ‖
+
+charāchara jagannāthā, chakrarāja niketanā ❘  
+pārvatī, padmanayanā, padmarāga samaprabhā 
+‖ 60 ‖
+
+pañchapretāsanāsīnā, pañchabrahma svarūpiṇī ❘  
+chinmayī, paramānandā, viGYāna ghanarūpiṇī 
+‖ 61 ‖
+
+dhyānadhyātṛ dhyeyarūpā, dharmādharma vivarjitā ❘  
+viśvarūpā, jāgariṇī, svapantī, taijasātmikā 
+‖ 62 ‖
+
+suptā, prāGYātmikā, turyā, sarvāvasthā vivarjitā ❘  
+sṛśhṭikartrī, brahmarūpā, goptrī, govindarūpiṇī 
+‖ 63 ‖
+
+saṃhāriṇī, rudrarūpā, tirodhānakarīśvarī ❘  
+sadāśivānugrahadā, pañchakṛtya parāyaṇā 
+‖ 64 ‖
+
+bhānumaṇḍala madhyasthā, bhairavī, bhagamālinī ❘  
+padmāsanā, bhagavatī, padmanābha sahodarī 
+‖ 65 ‖
+
+unmeśha nimiśhotpanna vipanna bhuvanāvaḻiḥ ❘  
+sahasraśīrśhavadanā, sahasrākśhī, sahasrapāt 
+‖ 66 ‖
+
+ābrahma kīṭajananī, varṇāśrama vidhāyinī ❘  
+nijāGYārūpanigamā, puṇyāpuṇya phalapradā 
+‖ 67 ‖
+
+śruti sīmanta sindhūrīkṛta pādābjadhūḻikā ❘  
+sakalāgama sandoha śuktisampuṭa mauktikā 
+‖ 68 ‖
+
+puruśhārthapradā, pūrṇā, bhoginī, bhuvaneśvarī ❘  
+ambikā,'nādi nidhanā, haribrahmendra sevitā 
+‖ 69 ‖
+
+nārāyaṇī, nādarūpā, nāmarūpa vivarjitā ❘  
+hrīṅkārī, hrīmatī, hṛdyā, heyopādeya varjitā 
+‖ 70 ‖
+
+rājarājārchitā, rāGYī, ramyā, rājīvalochanā ❘  
+rañjanī, ramaṇī, rasyā, raṇatkiṅkiṇi mekhalā 
+‖ 71 ‖
+
+ramā, rākenduvadanā, ratirūpā, ratipriyā ❘  
+rakśhākarī, rākśhasaghnī, rāmā, ramaṇalampaṭā 
+‖ 72 ‖
+
+kāmyā, kāmakaḻārūpā, kadamba kusumapriyā ❘  
+kalyāṇī, jagatīkandā, karuṇārasa sāgarā 
+‖ 73 ‖
+
+kaḻāvatī, kaḻālāpā, kāntā, kādambarīpriyā ❘  
+varadā, vāmanayanā, vāruṇīmadavihvalā 
+‖ 74 ‖
+
+viśvādhikā, vedavedyā, vindhyāchala nivāsinī ❘  
+vidhātrī, vedajananī, viśhṇumāyā, vilāsinī 
+‖ 75 ‖
+
+kśhetrasvarūpā, kśhetreśī, kśhetra kśhetraGYa pālinī ❘  
+kśhayavṛddhi vinirmuktā, kśhetrapāla samarchitā 
+‖ 76 ‖
+
+vijayā, vimalā, vandyā, vandāru janavatsalā ❘  
+vāgvādinī, vāmakeśī, vahnimaṇḍala vāsinī 
+‖ 77 ‖
+
+bhaktimat-kalpalatikā, paśupāśa vimochanī ❘  
+saṃhṛtāśeśha pāśhaṇḍā, sadāchāra pravartikā 
+‖ 78 ‖
+
+tāpatrayāgni santapta samāhlādana chandrikā ❘  
+taruṇī, tāpasārādhyā, tanumadhyā, tamoapahā 
+‖ 79 ‖
+
+chiti, statpadalakśhyārthā, chideka rasarūpiṇī ❘  
+svātmānandalavībhūta brahmādyānanda santatiḥ 
+‖ 80 ‖
+
+parā, pratyakchitī rūpā, paśyantī, paradevatā ❘  
+madhyamā, vaikharīrūpā, bhaktamānasa haṃsikā 
+‖ 81 ‖
+
+kāmeśvara prāṇanāḍī, kṛtaGYā, kāmapūjitā ❘  
+śṛṅgāra rasasampūrṇā, jayā, jālandharasthitā 
+‖ 82 ‖
+
+oḍyāṇa pīṭhanilayā, bindumaṇḍala vāsinī ❘  
+rahoyāga kramārādhyā, rahastarpaṇa tarpitā 
+‖ 83 ‖
+
+sadyaḥ prasādinī, viśvasākśhiṇī, sākśhivarjitā ❘  
+śhaḍaṅgadevatā yuktā, śhāḍguṇya paripūritā 
+‖ 84 ‖
+
+nityaklinnā, nirupamā, nirvāṇa sukhadāyinī ❘  
+nityā, śhoḍaśikārūpā, śrīkaṇṭhārdha śarīriṇī 
+‖ 85 ‖
+
+prabhāvatī, prabhārūpā, prasiddhā, parameśvarī ❘  
+mūlaprakṛti ravyaktā, vyaktā'vyakta svarūpiṇī 
+‖ 86 ‖
+
+vyāpinī, vividhākārā, vidyā'vidyā svarūpiṇī ❘  
+mahākāmeśa nayanā, kumudāhlāda kaumudī 
+‖ 87 ‖
+
+bhaktahārda tamobheda bhānumad-bhānusantatiḥ ❘  
+śivadūtī, śivārādhyā, śivamūrti, śśivaṅkarī 
+‖ 88 ‖
+
+śivapriyā, śivaparā, śiśhṭeśhṭā, śiśhṭapūjitā ❘  
+aprameyā, svaprakāśā, manovāchāma gocharā 
+‖ 89 ‖
+
+chichChakti, śchetanārūpā, jaḍaśakti, rjaḍātmikā ❘  
+gāyatrī, vyāhṛti, ssandhyā, dvijabṛnda niśhevitā 
+‖ 90 ‖
+
+tattvāsanā, tattvamayī, pañchakośāntarasthitā ❘  
+nissīmamahimā, nityayauvanā, madaśālinī 
+‖ 91 ‖
+
+madaghūrṇita raktākśhī, madapāṭala gaṇḍabhūḥ ❘  
+chandana dravadigdhāṅgī, chāmpeya kusuma priyā 
+‖ 92 ‖
+
+kuśalā, komalākārā, kurukullā, kuleśvarī ❘  
+kuḻakuṇḍālayā, kauḻa mārgatatpara sevitā 
+‖ 93 ‖
+
+kumāra gaṇanāthāmbā, tuśhṭiḥ, puśhṭi, rmati, rdhṛtiḥ ❘  
+śāntiḥ, svastimatī, kānti, rnandinī, vighnanāśinī 
+‖ 94 ‖
+
+tejovatī, trinayanā, lolākśhī kāmarūpiṇī ❘  
+mālinī, haṃsinī, mātā, malayāchala vāsinī 
+‖ 95 ‖
+
+sumukhī, naḻinī, subhrūḥ, śobhanā, suranāyikā ❘  
+kālakaṇṭhī, kāntimatī, kśhobhiṇī, sūkśhmarūpiṇī 
+‖ 96 ‖
+
+vajreśvarī, vāmadevī, vayoavasthā vivarjitā ❘  
+siddheśvarī, siddhavidyā, siddhamātā, yaśasvinī 
+‖ 97 ‖
+
+viśuddhi chakranilayā,''raktavarṇā, trilochanā ❘  
+khaṭvāṅgādi praharaṇā, vadanaika samanvitā 
+‖ 98 ‖
+
+pāyasānnapriyā, tvak^sthā, paśuloka bhayaṅkarī ❘  
+amṛtādi mahāśakti saṃvṛtā, ḍākinīśvarī 
+‖ 99 ‖
+
+anāhatābja nilayā, śyāmābhā, vadanadvayā ❘  
+daṃśhṭrojjvalā,'kśhamālādhidharā, rudhira saṃsthitā 
+‖ 100 ‖
+
+kāḻarātryādi śaktyoghavṛtā, snigdhaudanapriyā ❘  
+mahāvīrendra varadā, rākiṇyambā svarūpiṇī 
+‖ 101 ‖
+
+maṇipūrābja nilayā, vadanatraya saṃyutā ❘  
+vajrādhikāyudhopetā, ḍāmaryādibhi rāvṛtā 
+‖ 102 ‖
+
+raktavarṇā, māṃsaniśhṭhā, guḍānna prītamānasā ❘  
+samasta bhaktasukhadā, lākinyambā svarūpiṇī 
+‖ 103 ‖
+
+svādhiśhṭhānāmbu jagatā, chaturvaktra manoharā ❘  
+śūlādyāyudha sampannā, pītavarṇā,'tigarvitā 
+‖ 104 ‖
+
+medoniśhṭhā, madhuprītā, bandinyādi samanvitā ❘  
+dadhyannāsakta hṛdayā, ḍākinī rūpadhāriṇī 
+‖ 105 ‖
+
+mūlā dhārāmbujārūḍhā, pañchavaktrā,'sthisaṃsthitā ❘  
+aṅkuśādi praharaṇā, varadādi niśhevitā 
+‖ 106 ‖
+
+mudgaudanāsakta chittā, sākinyambāsvarūpiṇī ❘  
+āGYā chakrābjanilayā, śuklavarṇā, śhaḍānanā 
+‖ 107 ‖
+
+majjāsaṃsthā, haṃsavatī mukhyaśakti samanvitā ❘  
+haridrānnaika rasikā, hākinī rūpadhāriṇī 
+‖ 108 ‖
+
+sahasradaḻa padmasthā, sarvavarṇopa śobhitā ❘  
+sarvāyudhadharā, śukla saṃsthitā, sarvatomukhī 
+‖ 109 ‖
+
+sarvaudana prītachittā, yākinyambā svarūpiṇī ❘  
+svāhā, svadhā,'mati, rmedhā, śrutiḥ, smṛti, ranuttamā 
+‖ 110 ‖
+
+puṇyakīrtiḥ, puṇyalabhyā, puṇyaśravaṇa kīrtanā ❘  
+pulomajārchitā, bandhamochanī, bandhurālakā 
+‖ 111 ‖
+
+vimarśarūpiṇī, vidyā, viyadādi jagatprasūḥ ❘  
+sarvavyādhi praśamanī, sarvamṛtyu nivāriṇī 
+‖ 112 ‖
+
+agragaṇyā,'chintyarūpā, kalikalmaśha nāśinī ❘  
+kātyāyinī, kālahantrī, kamalākśha niśhevitā 
+‖ 113 ‖
+
+tāmbūla pūrita mukhī, dāḍimī kusumaprabhā ❘  
+mṛgākśhī, mohinī, mukhyā, mṛḍānī, mitrarūpiṇī 
+‖ 114 ‖
+
+nityatṛptā, bhaktanidhi, rniyantrī, nikhileśvarī ❘  
+maitryādi vāsanālabhyā, mahāpraḻaya sākśhiṇī 
+‖ 115 ‖
+
+parāśaktiḥ, parāniśhṭhā, praGYāna ghanarūpiṇī ❘  
+mādhvīpānālasā, mattā, mātṛkā varṇa rūpiṇī 
+‖ 116 ‖
+
+mahākailāsa nilayā, mṛṇāla mṛdudorlatā ❘  
+mahanīyā, dayāmūrtī, rmahāsāmrājyaśālinī 
+‖ 117 ‖
+
+ātmavidyā, mahāvidyā, śrīvidyā, kāmasevitā ❘  
+śrīśhoḍaśākśharī vidyā, trikūṭā, kāmakoṭikā 
+‖ 118 ‖
+
+kaṭākśhakiṅkarī bhūta kamalā koṭisevitā ❘  
+śiraḥsthitā, chandranibhā, phālasthendra dhanuḥprabhā 
+‖ 119 ‖
+
+hṛdayasthā, raviprakhyā, trikoṇāntara dīpikā ❘  
+dākśhāyaṇī, daityahantrī, dakśhayaGYa vināśinī 
+‖ 120 ‖
+
+darāndoḻita dīrghākśhī, darahāsojjvalanmukhī ❘  
+gurumūrti, rguṇanidhi, rgomātā, guhajanmabhūḥ 
+‖ 121 ‖
+
+deveśī, daṇḍanītisthā, daharākāśa rūpiṇī ❘  
+pratipanmukhya rākānta tithimaṇḍala pūjitā 
+‖ 122 ‖
+
+kaḻātmikā, kaḻānāthā, kāvyālāpa vinodinī ❘  
+sachāmara ramāvāṇī savyadakśhiṇa sevitā 
+‖ 123 ‖
+
+ādiśakti, rameyā,''tmā, paramā, pāvanākṛtiḥ ❘  
+anekakoṭi brahmāṇḍa jananī, divyavigrahā 
+‖ 124 ‖
+
+klīṅkārī, kevalā, guhyā, kaivalya padadāyinī ❘  
+tripurā, trijagadvandyā, trimūrti, stridaśeśvarī 
+‖ 125 ‖
+
+tryakśharī, divyagandhāḍhyā, sindhūra tilakāñchitā ❘  
+umā, śailendratanayā, gaurī, gandharva sevitā 
+‖ 126 ‖
+
+viśvagarbhā, svarṇagarbhā,'varadā vāgadhīśvarī ❘  
+dhyānagamyā,'parichChedyā, GYānadā, GYānavigrahā 
+‖ 127 ‖
+
+sarvavedānta saṃvedyā, satyānanda svarūpiṇī ❘  
+lopāmudrārchitā, līlāklupta brahmāṇḍamaṇḍalā 
+‖ 128 ‖
+
+adṛśyā, dṛśyarahitā, viGYātrī, vedyavarjitā ❘  
+yoginī, yogadā, yogyā, yogānandā, yugandharā 
+‖ 129 ‖
+
+ichChāśakti GYānaśakti kriyāśakti svarūpiṇī ❘  
+sarvādhārā, supratiśhṭhā, sadasad-rūpadhāriṇī 
+‖ 130 ‖
+
+aśhṭamūrti, rajājaitrī, lokayātrā vidhāyinī ❘  
+ekākinī, bhūmarūpā, nirdvaitā, dvaitavarjitā 
+‖ 131 ‖
+
+annadā, vasudā, vṛddhā, brahmātmaikya svarūpiṇī ❘  
+bṛhatī, brāhmaṇī, brāhmī, brahmānandā, balipriyā 
+‖ 132 ‖
+
+bhāśhārūpā, bṛhatsenā, bhāvābhāva vivarjitā ❘  
+sukhārādhyā, śubhakarī, śobhanā sulabhāgatiḥ 
+‖ 133 ‖
+
+rājarājeśvarī, rājyadāyinī, rājyavallabhā ❘  
+rājat-kṛpā, rājapīṭha niveśita nijāśritāḥ 
+‖ 134 ‖
+
+rājyalakśhmīḥ, kośanāthā, chaturaṅga baleśvarī ❘  
+sāmrājyadāyinī, satyasandhā, sāgaramekhalā 
+‖ 135 ‖
+
+dīkśhitā, daityaśamanī, sarvaloka vaśaṅkarī ❘  
+sarvārthadātrī, sāvitrī, sachchidānanda rūpiṇī 
+‖ 136 ‖
+
+deśakālā'parichChinnā, sarvagā, sarvamohinī ❘  
+sarasvatī, śāstramayī, guhāmbā, guhyarūpiṇī 
+‖ 137 ‖
+
+sarvopādhi vinirmuktā, sadāśiva pativratā ❘  
+sampradāyeśvarī, sādhvī, gurumaṇḍala rūpiṇī 
+‖ 138 ‖
+
+kulottīrṇā, bhagārādhyā, māyā, madhumatī, mahī ❘  
+gaṇāmbā, guhyakārādhyā, komalāṅgī, gurupriyā 
+‖ 139 ‖
+
+svatantrā, sarvatantreśī, dakśhiṇāmūrti rūpiṇī ❘  
+sanakādi samārādhyā, śivaGYāna pradāyinī 
+‖ 140 ‖
+
+chitkaḻā,'nandakalikā, premarūpā, priyaṅkarī ❘  
+nāmapārāyaṇa prītā, nandividyā, naṭeśvarī 
+‖ 141 ‖
+
+mithyā jagadadhiśhṭhānā muktidā, muktirūpiṇī ❘  
+lāsyapriyā, layakarī, lajjā, rambhādi vanditā 
+‖ 142 ‖
+
+bhavadāva sudhāvṛśhṭiḥ, pāpāraṇya davānalā ❘  
+daurbhāgyatūla vātūlā, jarādhvānta raviprabhā 
+‖ 143 ‖
+
+bhāgyābdhichandrikā, bhaktachittakeki ghanāghanā ❘  
+rogaparvata dambhoḻi, rmṛtyudāru kuṭhārikā 
+‖ 144 ‖
+
+maheśvarī, mahākāḻī, mahāgrāsā, mahā'śanā ❘  
+aparṇā, chaṇḍikā, chaṇḍamuṇḍā'sura niśhūdinī 
+‖ 145 ‖
+
+kśharākśharātmikā, sarvalokeśī, viśvadhāriṇī ❘  
+trivargadātrī, subhagā, tryambakā, triguṇātmikā 
+‖ 146 ‖
+
+svargāpavargadā, śuddhā, japāpuśhpa nibhākṛtiḥ ❘  
+ojovatī, dyutidharā, yaGYarūpā, priyavratā 
+‖ 147 ‖
+
+durārādhyā, durādarśhā, pāṭalī kusumapriyā ❘  
+mahatī, merunilayā, mandāra kusumapriyā 
+‖ 148 ‖
+
+vīrārādhyā, virāḍrūpā, virajā, viśvatomukhī ❘  
+pratyagrūpā, parākāśā, prāṇadā, prāṇarūpiṇī 
+‖ 149 ‖
+
+mārtāṇḍa bhairavārādhyā, mantriṇī nyastarājyadhūḥ ❘  
+tripureśī, jayatsenā, nistraiguṇyā, parāparā 
+‖ 150 ‖
+
+satyaGYānā'nandarūpā, sāmarasya parāyaṇā ❘  
+kapardinī, kalāmālā, kāmadhuk,kāmarūpiṇī 
+‖ 151 ‖
+
+kaḻānidhiḥ, kāvyakaḻā, rasaGYā, rasaśevadhiḥ ❘  
+puśhṭā, purātanā, pūjyā, puśhkarā, puśhkarekśhaṇā 
+‖ 152 ‖
+
+parañjyotiḥ, parandhāma, paramāṇuḥ, parātparā ❘  
+pāśahastā, pāśahantrī, paramantra vibhedinī 
+‖ 153 ‖
+
+mūrtā,'mūrtā,'nityatṛptā, muni mānasa haṃsikā ❘  
+satyavratā, satyarūpā, sarvāntaryāminī, satī 
+‖ 154 ‖
+
+brahmāṇī, brahmajananī, bahurūpā, budhārchitā ❘  
+prasavitrī, prachaṇḍā'GYā, pratiśhṭhā, prakaṭākṛtiḥ 
+‖ 155 ‖
+
+prāṇeśvarī, prāṇadātrī, pañchāśat-pīṭharūpiṇī ❘  
+viśṛṅkhalā, viviktasthā, vīramātā, viyatprasūḥ 
+‖ 156 ‖
+
+mukundā, mukti nilayā, mūlavigraha rūpiṇī ❘  
+bhāvaGYā, bhavarogaghnī bhavachakra pravartinī 
+‖ 157 ‖
+
+Chandassārā, śāstrasārā, mantrasārā, talodarī ❘  
+udārakīrti, ruddāmavaibhavā, varṇarūpiṇī 
+‖ 158 ‖
+
+janmamṛtyu jarātapta jana viśrānti dāyinī ❘  
+sarvopaniśha dudghuśhṭā, śāntyatīta kaḻātmikā 
+‖ 159 ‖
+
+gambhīrā, gaganāntaḥsthā, garvitā, gānalolupā ❘  
+kalpanārahitā, kāśhṭhā, kāntā, kāntārdha vigrahā 
+‖ 160 ‖
+
+kāryakāraṇa nirmuktā, kāmakeḻi taraṅgitā ❘  
+kanat-kanakatāṭaṅkā, līlāvigraha dhāriṇī 
+‖ 161 ‖
+
+ajākśhaya vinirmuktā, mugdhā kśhipraprasādinī ❘  
+antarmukha samārādhyā, bahirmukha sudurlabhā 
+‖ 162 ‖
+
+trayī, trivarga nilayā, tristhā, tripuramālinī ❘  
+nirāmayā, nirālambā, svātmārāmā, sudhāsṛtiḥ 
+‖ 163 ‖
+
+saṃsārapaṅka nirmagna samuddharaṇa paṇḍitā ❘  
+yaGYapriyā, yaGYakartrī, yajamāna svarūpiṇī 
+‖ 164 ‖
+
+dharmādhārā, dhanādhyakśhā, dhanadhānya vivardhinī ❘  
+viprapriyā, viprarūpā, viśvabhramaṇa kāriṇī 
+‖ 165 ‖
+
+viśvagrāsā, vidrumābhā, vaiśhṇavī, viśhṇurūpiṇī ❘  
+ayoni, ryoninilayā, kūṭasthā, kularūpiṇī 
+‖ 166 ‖
+
+vīragośhṭhīpriyā, vīrā, naiśhkarmyā, nādarūpiṇī ❘  
+viGYāna kalanā, kalyā vidagdhā, baindavāsanā 
+‖ 167 ‖
+
+tattvādhikā, tattvamayī, tattvamartha svarūpiṇī ❘  
+sāmagānapriyā, saumyā, sadāśiva kuṭumbinī 
+‖ 168 ‖
+
+savyāpasavya mārgasthā, sarvāpadvi nivāriṇī ❘  
+svasthā, svabhāvamadhurā, dhīrā, dhīra samarchitā 
+‖ 169 ‖
+
+chaitanyārghya samārādhyā, chaitanya kusumapriyā ❘  
+sadoditā, sadātuśhṭā, taruṇāditya pāṭalā 
+‖ 170 ‖
+
+dakśhiṇā, dakśhiṇārādhyā, darasmera mukhāmbujā ❘  
+kauḻinī kevalā,'narghyā kaivalya padadāyinī 
+‖ 171 ‖
+
+stotrapriyā, stutimatī, śrutisaṃstuta vaibhavā ❘  
+manasvinī, mānavatī, maheśī, maṅgaḻākṛtiḥ 
+‖ 172 ‖
+
+viśvamātā, jagaddhātrī, viśālākśhī, virāgiṇī❘  
+pragalbhā, paramodārā, parāmodā, manomayī 
+‖ 173 ‖
+
+vyomakeśī, vimānasthā, vajriṇī, vāmakeśvarī ❘  
+pañchayaGYapriyā, pañchapreta mañchādhiśāyinī 
+‖ 174 ‖
+
+pañchamī, pañchabhūteśī, pañcha saṅkhyopachāriṇī ❘  
+śāśvatī, śāśvataiśvaryā, śarmadā, śambhumohinī 
+‖ 175 ‖
+
+dharā, dharasutā, dhanyā, dharmiṇī, dharmavardhinī ❘  
+lokātītā, guṇātītā, sarvātītā, śamātmikā 
+‖ 176 ‖
+
+bandhūka kusuma prakhyā, bālā, līlāvinodinī ❘  
+sumaṅgaḻī, sukhakarī, suveśhāḍyā, suvāsinī 
+‖ 177 ‖
+
+suvāsinyarchanaprītā, śobhanā, śuddha mānasā ❘  
+bindu tarpaṇa santuśhṭā, pūrvajā, tripurāmbikā 
+‖ 178 ‖
+
+daśamudrā samārādhyā, tripurā śrīvaśaṅkarī ❘  
+GYānamudrā, GYānagamyā, GYānaGYeya svarūpiṇī 
+‖ 179 ‖
+
+yonimudrā, trikhaṇḍeśī, triguṇāmbā, trikoṇagā ❘  
+anaghādbhuta chāritrā, vāñChitārtha pradāyinī 
+‖ 180 ‖
+
+abhyāsāti śayaGYātā, śhaḍadhvātīta rūpiṇī ❘  
+avyāja karuṇāmūrti, raGYānadhvānta dīpikā 
+‖ 181 ‖
+
+ābālagopa viditā, sarvānullaṅghya śāsanā ❘  
+śrī chakrarājanilayā, śrīmattripura sundarī 
+‖ 182 ‖
+
+śrī śivā, śivaśaktyaikya rūpiṇī, lalitāmbikā ❘  
+evaṃ śrīlalitādevyā nāmnāṃ sāhasrakaṃ jaguḥ 
+‖ 183 ‖
+
+
+‖ iti śrī brahmāṇḍapurāṇe, uttarakhaṇḍe, śrī hayagrīvāgastya saṃvāde,  śrīlalitārahasyanāma śrī lalitā rahasyanāma sāhasrastotra kathanaṃ nāma dvitīyoadhyāyaḥ ‖
+
+sindhūrāruṇa vigrahāṃ triṇayanāṃ māṇikya mauḻisphura-  
+ttārānāyaka śekharāṃ smitamukhī māpīna vakśhoruhām ❘  
+pāṇibhyā malipūrṇa ratna chaśhakaṃ raktotpalaṃ bibhratīṃ  
+saumyāṃ ratnaghaṭastha rakta charaṇāṃ dhyāyetparāmambikām ‖
+
+### PlainEnglish
+
+#### shree lalitaa sahasra naama stotram
+
+oM ‖
+
+asya shree lalitaa divya sahasranaama stotra mahaamaMtrasya, vashinyaadi vaagdevataa RRishhayaH, anushhTup ChaMdaH, shree lalitaa paraabhaTTaarikaa mahaa tripura suMdaree devataa, aiM beejaM, kleeM shaktiH, sauH keelakaM, mama dharmaartha kaama mokshha chaturvidha phalapurushhaartha siddhyarthe lalitaa tripurasuMdaree paraabhaTTaarikaa sahasra naama jape viniyogaH  
+karanyaasaH  
+aiM aMgushhTaabhyaaM namaH, kleeM tarjaneebhyaaM namaH, sauH madhyamaabhyaaM namaH, sauH anaamikaabhyaaM namaH, kleeM kanishhThikaabhyaaM namaH, aiM karatala karapRRishhThaabhyaaM namaH  
+aMganyaasaH  
+aiM hRRidayaaya namaH, kleeM shirase svaahaa, sauH shikhaayai vashhaT, sauH kavachaaya huM, kleeM netratrayaaya vaushhaT, aiM astraayaphaT, bhoorbhuvassuvaromiti digbaMdhaH  
+dhyaanaM  
+aruNaaM karuNaa taraMgitaakshheeM dhRRitapaashaaMkusha pushhpabaaNachaapaam ❘  
+aNimaadibhi raavRRitaaM mayookhaiH ahamityeva vibhaavaye bhavaaneem 
+‖ 1 ‖
+
+dhyaayet padmaasanasthaaM vikasitavadanaaM padma patraayataakshheeM  
+hemaabhaaM peetavastraaM karakalita lasamaddhemapadmaaM varaaMgeem ❘  
+sarvaalaMkaarayuktaaM sakalamabhayadaaM bhaktanamraaM bhavaaneeM  
+shree vidyaaM shaaMtamoortiM sakala surasutaaM sarvasaMpat-pradaatreem 
+‖ 2 ‖
+
+sakuMkuma vilepanaa maLikachumbi kastoorikaaM  
+samaMda hasitekshhaNaaM sasharachaapa paashaaMkushaam ❘  
+asheshha janamohinee maruNamaalya bhooshhojjvalaaM  
+japaakusuma bhaasuraaM japavidhau smare daMbikaam 
+‖ 3 ‖
+
+siMdhooraaruNa vigrahaaM triNayanaaM maaNikya mauLisphura-  
+ttaaraanaayaka shekharaaM smitamukhee maapeena vakshhoruhaam ❘  
+paaNibhyaa malipoorNa ratna chashhakaM raktotpalaM bibhrateeM  
+saumyaaM ratnaghaTastha rakta charaNaaM dhyaayetparaamaMbikaam 
+‖ 4 ‖
+
+lamityaadi paMchapoojaaM vibhaavayet  
+laM pRRithivee tattvaatmikaayai shree lalitaadevyai gaMdhaM parikalpayaami  
+haM aakaasha tattvaatmikaayai shree lalitaadevyai pushhpaM parikalpayaami  
+yaM vaayu tattvaatmikaayai shree lalitaadevyai dhoopaM parikalpayaami  
+raM vahni tattvaatmikaayai shree lalitaadevyai deepaM parikalpayaami  
+vaM amRRita tattvaatmikaayai shree lalitaadevyai amRRita naivedyaM parikalpayaami  
+saM sarva tattvaatmikaayai shree lalitaadevyai taaMboolaadi sarvopachaaraan parikalpayaami  
+gururbrahma gururvishhNuH gururdevo maheshvaraH ❘  
+gurussaakshhaat parabrahma tasmai shree gurave namaH ‖
+
+hariH oM  
+shree maataa, shree mahaaraagnyee, shreemat-siMhaasaneshvaree ❘  
+chidagni kuMDasaMbhootaa, devakaaryasamudyataa 
+‖ 1 ‖
+
+udyadbhaanu sahasraabhaa, chaturbaahu samanvitaa ❘  
+raagasvaroopa paashaaDhyaa, krodhaakaaraaMkushojjvalaa 
+‖ 2 ‖
+
+manoroopekshhukodaMDaa, paMchatanmaatra saayakaa ❘  
+nijaaruNa prabhaapoora majjad-brahmaaMDamaMDalaa 
+‖ 3 ‖
+
+chaMpakaashoka punnaaga saugaMdhika lasatkachaa  
+kuruviMda maNishreNee kanatkoTeera maMDitaa 
+‖ 4 ‖
+
+ashhTamee chaMdra vibhraaja daLikasthala shobhitaa ❘  
+mukhachaMdra kaLaMkaabha mRRiganaabhi visheshhakaa 
+‖ 5 ‖
+
+vadanasmara maaMgalya gRRihatoraNa chillikaa ❘  
+vaktralakshhmee pareevaaha chalanmeenaabha lochanaa 
+‖ 6 ‖
+
+navachaMpaka pushhpaabha naasaadaMDa viraajitaa ❘  
+taaraakaaMti tiraskaari naasaabharaNa bhaasuraa 
+‖ 7 ‖
+
+kadaMba maMjareeklupta karNapoora manoharaa ❘  
+taaTaMka yugaLeebhoota tapanoDupa maMDalaa 
+‖ 8 ‖
+
+padmaraaga shilaadarsha paribhaavi kapolabhooH ❘  
+navavidruma biMbashreeH nyakkaari radanachChadaa 
+‖ 9 ‖
+
+shuddha vidyaaMkuraakaara dvijapaMkti dvayojjvalaa ❘  
+karpooraveeTi kaamoda samaakarshhaddigaMtaraa 
+‖ 10 ‖
+
+nijasallaapa maadhurya vinirbhatsita kachChapee ❘  
+maMdasmita prabhaapoora majjat-kaamesha maanasaa 
+‖ 11 ‖
+
+anaakalita saadRRishya chubuka shree viraajitaa ❘  
+kaameshabaddha maaMgalya sootrashobhita kaMtharaa 
+‖ 12 ‖
+
+kanakaaMgada keyoora kamaneeya bhujaanvitaa ❘  
+ratnagraiveya chiMtaaka lolamuktaa phalaanvitaa 
+‖ 13 ‖
+
+kaameshvara premaratna maNi pratipaNastanee❘  
+naabhyaalavaala romaaLi lataaphala kuchadvayee 
+‖ 14 ‖
+
+lakshhyaromalataa dhaarataa samunneya madhyamaa ❘  
+stanabhaara daLan-madhya paTTabaMdha vaLitrayaa 
+‖ 15 ‖
+
+aruNaaruNa kausuMbha vastra bhaasvat-kaTeetaTee ❘  
+ratnakiMkiNi kaaramya rashanaadaama bhooshhitaa 
+‖ 16 ‖
+
+kaamesha gnyaata saubhaagya maardavoru dvayaanvitaa ❘  
+maaNikya makuTaakaara jaanudvaya viraajitaa 
+‖ 17 ‖
+
+iMdragopa parikshhipta smara tooNaabha jaMghikaa ❘  
+gooDhagulbhaa koormapRRishhTha jayishhNu prapadaanvitaa 
+‖ 18 ‖
+
+nakhadeedhiti saMChanna namajjana tamoguNaa ❘  
+padadvaya prabhaajaala paraakRRita saroruhaa 
+‖ 19 ‖
+
+shiMjaana maNimaMjeera maMDita shree padaaMbujaa ❘  
+maraaLee maMdagamanaa, mahaalaavaNya shevadhiH 
+‖ 20 ‖
+
+sarvaaruNaa.anavadyaaMgee sarvaabharaNa bhooshhitaa ❘  
+shivakaameshvaraaMkasthaa, shivaa, svaadheena vallabhaa 
+‖ 21 ‖
+
+sumeru madhyashRRiMgasthaa, shreemannagara naayikaa ❘  
+chiMtaamaNi gRRihaaMtasthaa, paMchabrahmaasanasthitaa 
+‖ 22 ‖
+
+mahaapadmaaTavee saMsthaa, kadaMba vanavaasinee ❘  
+sudhaasaagara madhyasthaa, kaamaakshhee kaamadaayinee 
+‖ 23 ‖
+
+devarshhi gaNasaMghaata stooyamaanaatma vaibhavaa ❘  
+bhaMDaasura vadhodyukta shaktisenaa samanvitaa 
+‖ 24 ‖
+
+saMpatkaree samaarooDha siMdhura vrajasevitaa ❘  
+ashvaarooDhaadhishhThitaashva koTikoTi bhiraavRRitaa 
+‖ 25 ‖
+
+chakraraaja rathaarooDha sarvaayudha parishhkRRitaa ❘  
+geyachakra rathaarooDha maMtriNee parisevitaa 
+‖ 26 ‖
+
+kirichakra rathaarooDha daMDanaathaa puraskRRitaa ❘  
+jvaalaamaalini kaakshhipta vahnipraakaara madhyagaa 
+‖ 27 ‖
+
+bhaMDasainya vadhodyukta shakti vikramaharshhitaa ❘  
+nityaa paraakramaaTopa nireekshhaNa samutsukaa 
+‖ 28 ‖
+
+bhaMDaputra vadhodyukta baalaavikrama naMditaa ❘  
+maMtriNyaMbaa virachita vishhaMga vadhatoshhitaa 
+‖ 29 ‖
+
+vishukra praaNaharaNa vaaraahee veeryanaMditaa ❘  
+kaameshvara mukhaaloka kalpita shree gaNeshvaraa 
+‖ 30 ‖
+
+mahaagaNesha nirbhinna vighnayaMtra praharshhitaa ❘  
+bhaMDaasureMdra nirmukta shastra pratyastra varshhiNee 
+‖ 31 ‖
+
+karaaMguLi nakhotpanna naaraayaNa dashaakRRitiH ❘  
+mahaapaashupataastraagni nirdagdhaasura sainikaa 
+‖ 32 ‖
+
+kaameshvaraastra nirdagdha sabhaMDaasura shoonyakaa ❘  
+brahmopeMdra maheMdraadi devasaMstuta vaibhavaa 
+‖ 33 ‖
+
+haranetraagni saMdagdha kaama saMjeevanaushhadhiH ❘  
+shreemadvaagbhava kooTaika svaroopa mukhapaMkajaa 
+‖ 34 ‖
+
+kaMThaadhaH kaTiparyaMta madhyakooTa svaroopiNee ❘  
+shaktikooTaika taapanna kaTyathobhaaga dhaariNee 
+‖ 35 ‖
+
+moolamaMtraatmikaa, moolakooTa traya kaLebaraa ❘  
+kuLaamRRitaika rasikaa, kuLasaMketa paalinee 
+‖ 36 ‖
+
+kuLaaMganaa, kuLaaMtaHsthaa, kauLinee, kuLayoginee ❘  
+akuLaa, samayaaMtaHsthaa, samayaachaara tatparaa 
+‖ 37 ‖
+
+moolaadhaaraika nilayaa, brahmagraMthi vibhedinee ❘  
+maNipooraaMta ruditaa, vishhNugraMthi vibhedinee 
+‖ 38 ‖
+
+aagnyaa chakraaMtaraaLasthaa, rudragraMthi vibhedinee ❘  
+sahasraaraaMbujaa rooDhaa, sudhaasaaraabhi varshhiNee 
+‖ 39 ‖
+
+taTillataa samaruchiH, shhaT-chakropari saMsthitaa ❘  
+mahaashaktiH, kuMDalinee, bisataMtu taneeyasee 
+‖ 40 ‖
+
+bhavaanee, bhaavanaagamyaa, bhavaaraNya kuThaarikaa ❘  
+bhadrapriyaa, bhadramoorti, rbhaktasaubhaagya daayinee 
+‖ 41 ‖
+
+bhaktipriyaa, bhaktigamyaa, bhaktivashyaa, bhayaapahaa ❘  
+shaaMbhavee, shaaradaaraadhyaa, sharvaaNee, sharmadaayinee 
+‖ 42 ‖
+
+shaaMkaree, shreekaree, saadhvee, sharachchaMdranibhaananaa ❘  
+shaatodaree, shaaMtimatee, niraadhaaraa, niraMjanaa 
+‖ 43 ‖
+
+nirlepaa, nirmalaa, nityaa, niraakaaraa, niraakulaa ❘  
+nirguNaa, nishhkaLaa, shaaMtaa, nishhkaamaa, nirupaplavaa 
+‖ 44 ‖
+
+nityamuktaa, nirvikaaraa, nishhprapaMchaa, niraashrayaa ❘  
+nityashuddhaa, nityabuddhaa, niravadyaa, niraMtaraa 
+‖ 45 ‖
+
+nishhkaaraNaa, nishhkaLaMkaa, nirupaadhi, rnireeshvaraa ❘  
+neeraagaa, raagamathanee, nirmadaa, madanaashinee 
+‖ 46 ‖
+
+nishchiMtaa, nirahaMkaaraa, nirmohaa, mohanaashinee ❘  
+nirmamaa, mamataahaMtree, nishhpaapaa, paapanaashinee 
+‖ 47 ‖
+
+nishhkrodhaa, krodhashamanee, nirlobhaa, lobhanaashinee ❘  
+niHsaMshayaa, saMshayaghnee, nirbhavaa, bhavanaashinee 
+‖ 48 ‖
+
+nirvikalpaa, niraabaadhaa, nirbhedaa, bhedanaashinee ❘  
+nirnaashaa, mRRityumathanee, nishhkriyaa, nishhparigrahaa 
+‖ 49 ‖
+
+nistulaa, neelachikuraa, nirapaayaa, niratyayaa ❘  
+durlabhaa, durgamaa, durgaa, duHkhahaMtree, sukhapradaa 
+‖ 50 ‖
+
+dushhTadooraa, duraachaara shamanee, doshhavarjitaa ❘  
+sarvagnyaa, saaMdrakaruNaa, samaanaadhikavarjitaa 
+‖ 51 ‖
+
+sarvashaktimayee, sarvamaMgaLaa, sadgatipradaa ❘  
+sarveshvaree, sarvamayee, sarvamaMtra svaroopiNee 
+‖ 52 ‖
+
+sarvayaMtraatmikaa, sarvataMtraroopaa, manonmanee ❘  
+maaheshvaree, mahaadevee, mahaalakshhmee, rmRRiDapriyaa 
+‖ 53 ‖
+
+mahaaroopaa, mahaapoojyaa, mahaapaataka naashinee ❘  
+mahaamaayaa, mahaasattvaa, mahaashakti rmahaaratiH 
+‖ 54 ‖
+
+mahaabhogaa, mahaishvaryaa, mahaaveeryaa, mahaabalaa ❘  
+mahaabuddhi, rmahaasiddhi, rmahaayogeshvareshvaree 
+‖ 55 ‖
+
+mahaataMtraa, mahaamaMtraa, mahaayaMtraa, mahaasanaa ❘  
+mahaayaaga kramaaraadhyaa, mahaabhairava poojitaa 
+‖ 56 ‖
+
+maheshvara mahaakalpa mahaataaMDava saakshhiNee ❘  
+mahaakaamesha mahishhee, mahaatripura suMdaree 
+‖ 57 ‖
+
+chatuHshhashhTyupachaaraaDhyaa, chatushhshhashhTi kaLaamayee ❘  
+mahaa chatushhshhashhTi koTi yoginee gaNasevitaa 
+‖ 58 ‖
+
+manuvidyaa, chaMdravidyaa, chaMdramaMDalamadhyagaa ❘  
+chaaruroopaa, chaaruhaasaa, chaaruchaMdra kaLaadharaa 
+‖ 59 ‖
+
+charaachara jagannaathaa, chakraraaja niketanaa ❘  
+paarvatee, padmanayanaa, padmaraaga samaprabhaa 
+‖ 60 ‖
+
+paMchapretaasanaaseenaa, paMchabrahma svaroopiNee ❘  
+chinmayee, paramaanaMdaa, vignyaana ghanaroopiNee 
+‖ 61 ‖
+
+dhyaanadhyaatRRi dhyeyaroopaa, dharmaadharma vivarjitaa ❘  
+vishvaroopaa, jaagariNee, svapaMtee, taijasaatmikaa 
+‖ 62 ‖
+
+suptaa, praagnyaatmikaa, turyaa, sarvaavasthaa vivarjitaa ❘  
+sRRishhTikartree, brahmaroopaa, goptree, goviMdaroopiNee 
+‖ 63 ‖
+
+saMhaariNee, rudraroopaa, tirodhaanakareeshvaree ❘  
+sadaashivaanugrahadaa, paMchakRRitya paraayaNaa 
+‖ 64 ‖
+
+bhaanumaMDala madhyasthaa, bhairavee, bhagamaalinee ❘  
+padmaasanaa, bhagavatee, padmanaabha sahodaree 
+‖ 65 ‖
+
+unmeshha nimishhotpanna vipanna bhuvanaavaLiH ❘  
+sahasrasheershhavadanaa, sahasraakshhee, sahasrapaat 
+‖ 66 ‖
+
+aabrahma keeTajananee, varNaashrama vidhaayinee ❘  
+nijaagnyaaroopanigamaa, puNyaapuNya phalapradaa 
+‖ 67 ‖
+
+shruti seemaMta siMdhooreekRRita paadaabjadhooLikaa ❘  
+sakalaagama saMdoha shuktisaMpuTa mauktikaa 
+‖ 68 ‖
+
+purushhaarthapradaa, poorNaa, bhoginee, bhuvaneshvaree ❘  
+aMbikaa,.anaadi nidhanaa, haribrahmeMdra sevitaa 
+‖ 69 ‖
+
+naaraayaNee, naadaroopaa, naamaroopa vivarjitaa ❘  
+hreeMkaaree, hreematee, hRRidyaa, heyopaadeya varjitaa 
+‖ 70 ‖
+
+raajaraajaarchitaa, raagnyee, ramyaa, raajeevalochanaa ❘  
+raMjanee, ramaNee, rasyaa, raNatkiMkiNi mekhalaa 
+‖ 71 ‖
+
+ramaa, raakeMduvadanaa, ratiroopaa, ratipriyaa ❘  
+rakshhaakaree, raakshhasaghnee, raamaa, ramaNalaMpaTaa 
+‖ 72 ‖
+
+kaamyaa, kaamakaLaaroopaa, kadaMba kusumapriyaa ❘  
+kalyaaNee, jagateekaMdaa, karuNaarasa saagaraa 
+‖ 73 ‖
+
+kaLaavatee, kaLaalaapaa, kaaMtaa, kaadaMbareepriyaa ❘  
+varadaa, vaamanayanaa, vaaruNeemadavihvalaa 
+‖ 74 ‖
+
+vishvaadhikaa, vedavedyaa, viMdhyaachala nivaasinee ❘  
+vidhaatree, vedajananee, vishhNumaayaa, vilaasinee 
+‖ 75 ‖
+
+kshhetrasvaroopaa, kshhetreshee, kshhetra kshhetragnya paalinee ❘  
+kshhayavRRiddhi vinirmuktaa, kshhetrapaala samarchitaa 
+‖ 76 ‖
+
+vijayaa, vimalaa, vaMdyaa, vaMdaaru janavatsalaa ❘  
+vaagvaadinee, vaamakeshee, vahnimaMDala vaasinee 
+‖ 77 ‖
+
+bhaktimat-kalpalatikaa, pashupaasha vimochanee ❘  
+saMhRRitaasheshha paashhaMDaa, sadaachaara pravartikaa 
+‖ 78 ‖
+
+taapatrayaagni saMtapta samaahlaadana chaMdrikaa ❘  
+taruNee, taapasaaraadhyaa, tanumadhyaa, tamo.apahaa 
+‖ 79 ‖
+
+chiti, statpadalakshhyaarthaa, chideka rasaroopiNee ❘  
+svaatmaanaMdalaveebhoota brahmaadyaanaMda saMtatiH 
+‖ 80 ‖
+
+paraa, pratyakchitee roopaa, pashyaMtee, paradevataa ❘  
+madhyamaa, vaikhareeroopaa, bhaktamaanasa haMsikaa 
+‖ 81 ‖
+
+kaameshvara praaNanaaDee, kRRitagnyaa, kaamapoojitaa ❘  
+shRRiMgaara rasasaMpoorNaa, jayaa, jaalaMdharasthitaa 
+‖ 82 ‖
+
+oDyaaNa peeThanilayaa, biMdumaMDala vaasinee ❘  
+rahoyaaga kramaaraadhyaa, rahastarpaNa tarpitaa 
+‖ 83 ‖
+
+sadyaH prasaadinee, vishvasaakshhiNee, saakshhivarjitaa ❘  
+shhaDaMgadevataa yuktaa, shhaaDguNya paripooritaa 
+‖ 84 ‖
+
+nityaklinnaa, nirupamaa, nirvaaNa sukhadaayinee ❘  
+nityaa, shhoDashikaaroopaa, shreekaMThaardha shareeriNee 
+‖ 85 ‖
+
+prabhaavatee, prabhaaroopaa, prasiddhaa, parameshvaree ❘  
+moolaprakRRiti ravyaktaa, vyaktaa.avyakta svaroopiNee 
+‖ 86 ‖
+
+vyaapinee, vividhaakaaraa, vidyaa.avidyaa svaroopiNee ❘  
+mahaakaamesha nayanaa, kumudaahlaada kaumudee 
+‖ 87 ‖
+
+bhaktahaarda tamobheda bhaanumad-bhaanusaMtatiH ❘  
+shivadootee, shivaaraadhyaa, shivamoorti, shshivaMkaree 
+‖ 88 ‖
+
+shivapriyaa, shivaparaa, shishhTeshhTaa, shishhTapoojitaa ❘  
+aprameyaa, svaprakaashaa, manovaachaama gocharaa 
+‖ 89 ‖
+
+chichChakti, shchetanaaroopaa, jaDashakti, rjaDaatmikaa ❘  
+gaayatree, vyaahRRiti, ssaMdhyaa, dvijabRRiMda nishhevitaa 
+‖ 90 ‖
+
+tattvaasanaa, tattvamayee, paMchakoshaaMtarasthitaa ❘  
+nisseemamahimaa, nityayauvanaa, madashaalinee 
+‖ 91 ‖
+
+madaghoorNita raktaakshhee, madapaaTala gaMDabhooH ❘  
+chaMdana dravadigdhaaMgee, chaaMpeya kusuma priyaa 
+‖ 92 ‖
+
+kushalaa, komalaakaaraa, kurukullaa, kuleshvaree ❘  
+kuLakuMDaalayaa, kauLa maargatatpara sevitaa 
+‖ 93 ‖
+
+kumaara gaNanaathaaMbaa, tushhTiH, pushhTi, rmati, rdhRRitiH ❘  
+shaaMtiH, svastimatee, kaaMti, rnaMdinee, vighnanaashinee 
+‖ 94 ‖
+
+tejovatee, trinayanaa, lolaakshhee kaamaroopiNee ❘  
+maalinee, haMsinee, maataa, malayaachala vaasinee 
+‖ 95 ‖
+
+sumukhee, naLinee, subhrooH, shobhanaa, suranaayikaa ❘  
+kaalakaMThee, kaaMtimatee, kshhobhiNee, sookshhmaroopiNee 
+‖ 96 ‖
+
+vajreshvaree, vaamadevee, vayo.avasthaa vivarjitaa ❘  
+siddheshvaree, siddhavidyaa, siddhamaataa, yashasvinee 
+‖ 97 ‖
+
+vishuddhi chakranilayaa,.a.araktavarNaa, trilochanaa ❘  
+khaTvaaMgaadi praharaNaa, vadanaika samanvitaa 
+‖ 98 ‖
+
+paayasaannapriyaa, tvak^sthaa, pashuloka bhayaMkaree ❘  
+amRRitaadi mahaashakti saMvRRitaa, Daakineeshvaree 
+‖ 99 ‖
+
+anaahataabja nilayaa, shyaamaabhaa, vadanadvayaa ❘  
+daMshhTrojjvalaa,.akshhamaalaadhidharaa, rudhira saMsthitaa 
+‖ 100 ‖
+
+kaaLaraatryaadi shaktyoghavRRitaa, snigdhaudanapriyaa ❘  
+mahaaveereMdra varadaa, raakiNyaMbaa svaroopiNee 
+‖ 101 ‖
+
+maNipooraabja nilayaa, vadanatraya saMyutaa ❘  
+vajraadhikaayudhopetaa, Daamaryaadibhi raavRRitaa 
+‖ 102 ‖
+
+raktavarNaa, maaMsanishhThaa, guDaanna preetamaanasaa ❘  
+samasta bhaktasukhadaa, laakinyaMbaa svaroopiNee 
+‖ 103 ‖
+
+svaadhishhThaanaaMbu jagataa, chaturvaktra manoharaa ❘  
+shoolaadyaayudha saMpannaa, peetavarNaa,.atigarvitaa 
+‖ 104 ‖
+
+medonishhThaa, madhupreetaa, baMdinyaadi samanvitaa ❘  
+dadhyannaasakta hRRidayaa, Daakinee roopadhaariNee 
+‖ 105 ‖
+
+moolaa dhaaraaMbujaarooDhaa, paMchavaktraa,.asthisaMsthitaa ❘  
+aMkushaadi praharaNaa, varadaadi nishhevitaa 
+‖ 106 ‖
+
+mudgaudanaasakta chittaa, saakinyaMbaasvaroopiNee ❘  
+aagnyaa chakraabjanilayaa, shuklavarNaa, shhaDaananaa 
+‖ 107 ‖
+
+majjaasaMsthaa, haMsavatee mukhyashakti samanvitaa ❘  
+haridraannaika rasikaa, haakinee roopadhaariNee 
+‖ 108 ‖
+
+sahasradaLa padmasthaa, sarvavarNopa shobhitaa ❘  
+sarvaayudhadharaa, shukla saMsthitaa, sarvatomukhee 
+‖ 109 ‖
+
+sarvaudana preetachittaa, yaakinyaMbaa svaroopiNee ❘  
+svaahaa, svadhaa,.amati, rmedhaa, shrutiH, smRRiti, ranuttamaa 
+‖ 110 ‖
+
+puNyakeertiH, puNyalabhyaa, puNyashravaNa keertanaa ❘  
+pulomajaarchitaa, baMdhamochanee, baMdhuraalakaa 
+‖ 111 ‖
+
+vimarsharoopiNee, vidyaa, viyadaadi jagatprasooH ❘  
+sarvavyaadhi prashamanee, sarvamRRityu nivaariNee 
+‖ 112 ‖
+
+agragaNyaa,.achiMtyaroopaa, kalikalmashha naashinee ❘  
+kaatyaayinee, kaalahaMtree, kamalaakshha nishhevitaa 
+‖ 113 ‖
+
+taaMboola poorita mukhee, daaDimee kusumaprabhaa ❘  
+mRRigaakshhee, mohinee, mukhyaa, mRRiDaanee, mitraroopiNee 
+‖ 114 ‖
+
+nityatRRiptaa, bhaktanidhi, rniyaMtree, nikhileshvaree ❘  
+maitryaadi vaasanaalabhyaa, mahaapraLaya saakshhiNee 
+‖ 115 ‖
+
+paraashaktiH, paraanishhThaa, pragnyaana ghanaroopiNee ❘  
+maadhveepaanaalasaa, mattaa, maatRRikaa varNa roopiNee 
+‖ 116 ‖
+
+mahaakailaasa nilayaa, mRRiNaala mRRidudorlataa ❘  
+mahaneeyaa, dayaamoortee, rmahaasaamraajyashaalinee 
+‖ 117 ‖
+
+aatmavidyaa, mahaavidyaa, shreevidyaa, kaamasevitaa ❘  
+shreeshhoDashaakshharee vidyaa, trikooTaa, kaamakoTikaa 
+‖ 118 ‖
+
+kaTaakshhakiMkaree bhoota kamalaa koTisevitaa ❘  
+shiraHsthitaa, chaMdranibhaa, phaalastheMdra dhanuHprabhaa 
+‖ 119 ‖
+
+hRRidayasthaa, raviprakhyaa, trikoNaaMtara deepikaa ❘  
+daakshhaayaNee, daityahaMtree, dakshhayagnya vinaashinee 
+‖ 120 ‖
+
+daraaMdoLita deerghaakshhee, darahaasojjvalanmukhee ❘  
+gurumoorti, rguNanidhi, rgomaataa, guhajanmabhooH 
+‖ 121 ‖
+
+deveshee, daMDaneetisthaa, daharaakaasha roopiNee ❘  
+pratipanmukhya raakaaMta tithimaMDala poojitaa 
+‖ 122 ‖
+
+kaLaatmikaa, kaLaanaathaa, kaavyaalaapa vinodinee ❘  
+sachaamara ramaavaaNee savyadakshhiNa sevitaa 
+‖ 123 ‖
+
+aadishakti, rameyaa,.a.atmaa, paramaa, paavanaakRRitiH ❘  
+anekakoTi brahmaaMDa jananee, divyavigrahaa 
+‖ 124 ‖
+
+kleeMkaaree, kevalaa, guhyaa, kaivalya padadaayinee ❘  
+tripuraa, trijagadvaMdyaa, trimoorti, stridasheshvaree 
+‖ 125 ‖
+
+tryakshharee, divyagaMdhaaDhyaa, siMdhoora tilakaaMchitaa ❘  
+umaa, shaileMdratanayaa, gauree, gaMdharva sevitaa 
+‖ 126 ‖
+
+vishvagarbhaa, svarNagarbhaa,.avaradaa vaagadheeshvaree ❘  
+dhyaanagamyaa,.aparichChedyaa, gnyaanadaa, gnyaanavigrahaa 
+‖ 127 ‖
+
+sarvavedaaMta saMvedyaa, satyaanaMda svaroopiNee ❘  
+lopaamudraarchitaa, leelaaklupta brahmaaMDamaMDalaa 
+‖ 128 ‖
+
+adRRishyaa, dRRishyarahitaa, vignyaatree, vedyavarjitaa ❘  
+yoginee, yogadaa, yogyaa, yogaanaMdaa, yugaMdharaa 
+‖ 129 ‖
+
+ichChaashakti gnyaanashakti kriyaashakti svaroopiNee ❘  
+sarvaadhaaraa, supratishhThaa, sadasad-roopadhaariNee 
+‖ 130 ‖
+
+ashhTamoorti, rajaajaitree, lokayaatraa vidhaayinee ❘  
+ekaakinee, bhoomaroopaa, nirdvaitaa, dvaitavarjitaa 
+‖ 131 ‖
+
+annadaa, vasudaa, vRRiddhaa, brahmaatmaikya svaroopiNee ❘  
+bRRihatee, braahmaNee, braahmee, brahmaanaMdaa, balipriyaa 
+‖ 132 ‖
+
+bhaashhaaroopaa, bRRihatsenaa, bhaavaabhaava vivarjitaa ❘  
+sukhaaraadhyaa, shubhakaree, shobhanaa sulabhaagatiH 
+‖ 133 ‖
+
+raajaraajeshvaree, raajyadaayinee, raajyavallabhaa ❘  
+raajat-kRRipaa, raajapeeTha niveshita nijaashritaaH 
+‖ 134 ‖
+
+raajyalakshhmeeH, koshanaathaa, chaturaMga baleshvaree ❘  
+saamraajyadaayinee, satyasaMdhaa, saagaramekhalaa 
+‖ 135 ‖
+
+deekshhitaa, daityashamanee, sarvaloka vashaMkaree ❘  
+sarvaarthadaatree, saavitree, sachchidaanaMda roopiNee 
+‖ 136 ‖
+
+deshakaalaa.aparichChinnaa, sarvagaa, sarvamohinee ❘  
+sarasvatee, shaastramayee, guhaaMbaa, guhyaroopiNee 
+‖ 137 ‖
+
+sarvopaadhi vinirmuktaa, sadaashiva pativrataa ❘  
+saMpradaayeshvaree, saadhvee, gurumaMDala roopiNee 
+‖ 138 ‖
+
+kulotteerNaa, bhagaaraadhyaa, maayaa, madhumatee, mahee ❘  
+gaNaaMbaa, guhyakaaraadhyaa, komalaaMgee, gurupriyaa 
+‖ 139 ‖
+
+svataMtraa, sarvataMtreshee, dakshhiNaamoorti roopiNee ❘  
+sanakaadi samaaraadhyaa, shivagnyaana pradaayinee 
+‖ 140 ‖
+
+chitkaLaa,.anaMdakalikaa, premaroopaa, priyaMkaree ❘  
+naamapaaraayaNa preetaa, naMdividyaa, naTeshvaree 
+‖ 141 ‖
+
+mithyaa jagadadhishhThaanaa muktidaa, muktiroopiNee ❘  
+laasyapriyaa, layakaree, lajjaa, raMbhaadi vaMditaa 
+‖ 142 ‖
+
+bhavadaava sudhaavRRishhTiH, paapaaraNya davaanalaa ❘  
+daurbhaagyatoola vaatoolaa, jaraadhvaaMta raviprabhaa 
+‖ 143 ‖
+
+bhaagyaabdhichaMdrikaa, bhaktachittakeki ghanaaghanaa ❘  
+rogaparvata daMbhoLi, rmRRityudaaru kuThaarikaa 
+‖ 144 ‖
+
+maheshvaree, mahaakaaLee, mahaagraasaa, mahaa.ashanaa ❘  
+aparNaa, chaMDikaa, chaMDamuMDaa.asura nishhoodinee 
+‖ 145 ‖
+
+kshharaakshharaatmikaa, sarvalokeshee, vishvadhaariNee ❘  
+trivargadaatree, subhagaa, tryaMbakaa, triguNaatmikaa 
+‖ 146 ‖
+
+svargaapavargadaa, shuddhaa, japaapushhpa nibhaakRRitiH ❘  
+ojovatee, dyutidharaa, yagnyaroopaa, priyavrataa 
+‖ 147 ‖
+
+duraaraadhyaa, duraadarshhaa, paaTalee kusumapriyaa ❘  
+mahatee, merunilayaa, maMdaara kusumapriyaa 
+‖ 148 ‖
+
+veeraaraadhyaa, viraaDroopaa, virajaa, vishvatomukhee ❘  
+pratyagroopaa, paraakaashaa, praaNadaa, praaNaroopiNee 
+‖ 149 ‖
+
+maartaaMDa bhairavaaraadhyaa, maMtriNee nyastaraajyadhooH ❘  
+tripureshee, jayatsenaa, nistraiguNyaa, paraaparaa 
+‖ 150 ‖
+
+satyagnyaanaa.anaMdaroopaa, saamarasya paraayaNaa ❘  
+kapardinee, kalaamaalaa, kaamadhuk,kaamaroopiNee 
+‖ 151 ‖
+
+kaLaanidhiH, kaavyakaLaa, rasagnyaa, rasashevadhiH ❘  
+pushhTaa, puraatanaa, poojyaa, pushhkaraa, pushhkarekshhaNaa 
+‖ 152 ‖
+
+paraMjyotiH, paraMdhaama, paramaaNuH, paraatparaa ❘  
+paashahastaa, paashahaMtree, paramaMtra vibhedinee 
+‖ 153 ‖
+
+moortaa,.amoortaa,.anityatRRiptaa, muni maanasa haMsikaa ❘  
+satyavrataa, satyaroopaa, sarvaaMtaryaaminee, satee 
+‖ 154 ‖
+
+brahmaaNee, brahmajananee, bahuroopaa, budhaarchitaa ❘  
+prasavitree, prachaMDaa.agnyaa, pratishhThaa, prakaTaakRRitiH 
+‖ 155 ‖
+
+praaNeshvaree, praaNadaatree, paMchaashat-peeTharoopiNee ❘  
+vishRRiMkhalaa, viviktasthaa, veeramaataa, viyatprasooH 
+‖ 156 ‖
+
+mukuMdaa, mukti nilayaa, moolavigraha roopiNee ❘  
+bhaavagnyaa, bhavarogaghnee bhavachakra pravartinee 
+‖ 157 ‖
+
+ChaMdassaaraa, shaastrasaaraa, maMtrasaaraa, talodaree ❘  
+udaarakeerti, ruddaamavaibhavaa, varNaroopiNee 
+‖ 158 ‖
+
+janmamRRityu jaraatapta jana vishraaMti daayinee ❘  
+sarvopanishha dudghushhTaa, shaaMtyateeta kaLaatmikaa 
+‖ 159 ‖
+
+gaMbheeraa, gaganaaMtaHsthaa, garvitaa, gaanalolupaa ❘  
+kalpanaarahitaa, kaashhThaa, kaaMtaa, kaaMtaardha vigrahaa 
+‖ 160 ‖
+
+kaaryakaaraNa nirmuktaa, kaamakeLi taraMgitaa ❘  
+kanat-kanakataaTaMkaa, leelaavigraha dhaariNee 
+‖ 161 ‖
+
+ajaakshhaya vinirmuktaa, mugdhaa kshhipraprasaadinee ❘  
+aMtarmukha samaaraadhyaa, bahirmukha sudurlabhaa 
+‖ 162 ‖
+
+trayee, trivarga nilayaa, tristhaa, tripuramaalinee ❘  
+niraamayaa, niraalaMbaa, svaatmaaraamaa, sudhaasRRitiH 
+‖ 163 ‖
+
+saMsaarapaMka nirmagna samuddharaNa paMDitaa ❘  
+yagnyapriyaa, yagnyakartree, yajamaana svaroopiNee 
+‖ 164 ‖
+
+dharmaadhaaraa, dhanaadhyakshhaa, dhanadhaanya vivardhinee ❘  
+viprapriyaa, vipraroopaa, vishvabhramaNa kaariNee 
+‖ 165 ‖
+
+vishvagraasaa, vidrumaabhaa, vaishhNavee, vishhNuroopiNee ❘  
+ayoni, ryoninilayaa, kooTasthaa, kularoopiNee 
+‖ 166 ‖
+
+veeragoshhTheepriyaa, veeraa, naishhkarmyaa, naadaroopiNee ❘  
+vignyaana kalanaa, kalyaa vidagdhaa, baiMdavaasanaa 
+‖ 167 ‖
+
+tattvaadhikaa, tattvamayee, tattvamartha svaroopiNee ❘  
+saamagaanapriyaa, saumyaa, sadaashiva kuTuMbinee 
+‖ 168 ‖
+
+savyaapasavya maargasthaa, sarvaapadvi nivaariNee ❘  
+svasthaa, svabhaavamadhuraa, dheeraa, dheera samarchitaa 
+‖ 169 ‖
+
+chaitanyaarghya samaaraadhyaa, chaitanya kusumapriyaa ❘  
+sadoditaa, sadaatushhTaa, taruNaaditya paaTalaa 
+‖ 170 ‖
+
+dakshhiNaa, dakshhiNaaraadhyaa, darasmera mukhaaMbujaa ❘  
+kauLinee kevalaa,.anarghyaa kaivalya padadaayinee 
+‖ 171 ‖
+
+stotrapriyaa, stutimatee, shrutisaMstuta vaibhavaa ❘  
+manasvinee, maanavatee, maheshee, maMgaLaakRRitiH 
+‖ 172 ‖
+
+vishvamaataa, jagaddhaatree, vishaalaakshhee, viraagiNee❘  
+pragalbhaa, paramodaaraa, paraamodaa, manomayee 
+‖ 173 ‖
+
+vyomakeshee, vimaanasthaa, vajriNee, vaamakeshvaree ❘  
+paMchayagnyapriyaa, paMchapreta maMchaadhishaayinee 
+‖ 174 ‖
+
+paMchamee, paMchabhooteshee, paMcha saMkhyopachaariNee ❘  
+shaashvatee, shaashvataishvaryaa, sharmadaa, shaMbhumohinee 
+‖ 175 ‖
+
+dharaa, dharasutaa, dhanyaa, dharmiNee, dharmavardhinee ❘  
+lokaateetaa, guNaateetaa, sarvaateetaa, shamaatmikaa 
+‖ 176 ‖
+
+baMdhooka kusuma prakhyaa, baalaa, leelaavinodinee ❘  
+sumaMgaLee, sukhakaree, suveshhaaDyaa, suvaasinee 
+‖ 177 ‖
+
+suvaasinyarchanapreetaa, shobhanaa, shuddha maanasaa ❘  
+biMdu tarpaNa saMtushhTaa, poorvajaa, tripuraaMbikaa 
+‖ 178 ‖
+
+dashamudraa samaaraadhyaa, tripuraa shreevashaMkaree ❘  
+gnyaanamudraa, gnyaanagamyaa, gnyaanagnyeya svaroopiNee 
+‖ 179 ‖
+
+yonimudraa, trikhaMDeshee, triguNaaMbaa, trikoNagaa ❘  
+anaghaadbhuta chaaritraa, vaaMChitaartha pradaayinee 
+‖ 180 ‖
+
+abhyaasaati shayagnyaataa, shhaDadhvaateeta roopiNee ❘  
+avyaaja karuNaamoorti, ragnyaanadhvaaMta deepikaa 
+‖ 181 ‖
+
+aabaalagopa viditaa, sarvaanullaMghya shaasanaa ❘  
+shree chakraraajanilayaa, shreemattripura suMdaree 
+‖ 182 ‖
+
+shree shivaa, shivashaktyaikya roopiNee, lalitaaMbikaa ❘  
+evaM shreelalitaadevyaa naamnaaM saahasrakaM jaguH 
+‖ 183 ‖
+
+
+‖ iti shree brahmaaMDapuraaNe, uttarakhaMDe, shree hayagreevaagastya saMvaade,  shreelalitaarahasyanaama shree lalitaa rahasyanaama saahasrastotra kathanaM naama dviteeyo.adhyaayaH ‖
+
+siMdhooraaruNa vigrahaaM triNayanaaM maaNikya mauLisphura-  
+ttaaraanaayaka shekharaaM smitamukhee maapeena vakshhoruhaam ❘  
+paaNibhyaa malipoorNa ratna chashhakaM raktotpalaM bibhrateeM  
+saumyaaM ratnaghaTastha rakta charaNaaM dhyaayetparaamaMbikaam ‖
+

@@ -250,3 +250,35 @@ mohana kara, tyaagaraaja vaMdaneeya
 మురళీవాదన వినోద  
 మోహన కర, త్యాగరాజ వందనీయ  
 
+### English
+
+#### tyāgarāja kīrtana sāmaja vara gamanā
+
+sāmaja vara gamana  
+sādhu hṛt-sārasābju pāla  
+kālātīta vikhyāta  
+sāmani gamaja - sudhā  
+maya gāna vicakśhaṇa  
+guṇaśīla dayālavāla  
+mām pālaya  
+vedaśiro mātṛja - sapta  
+svara nādā cala dīpa  
+svīkṛta yādavakula  
+muraḻīvādana vinoda  
+mohana kara, tyāgarāja vandanīya   
+### PlainEnglish
+
+#### tyaagaraaja keertana saamaja vara gamanaa
+
+saamaja vara gamana  
+saadhu hRRit-saarasaabju paala  
+kaalaateeta vikhyaata  
+saamani gamaja - sudhaa  
+maya gaana vicakshhaNa  
+guNasheela dayaalavaala  
+maam paalaya  
+vedashiro maatRRija - sapta  
+svara naadaa cala deepa  
+sveekRRita yaadavakula  
+muraLeevaadana vinoda  
+mohana kara, tyaagaraaja vaMdaneeya   

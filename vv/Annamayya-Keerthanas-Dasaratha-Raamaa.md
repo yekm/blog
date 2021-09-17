@@ -289,3 +289,47 @@ kalita prataapa shreeveMkaTagiri raama ‖
 విలసిత రఘురామ వేదగోచర రామ  
 కలిత ప్రతాప శ్రీవేంకటగిరి రామ ‖  
 
+### English
+
+#### annamayya kīrtana rāmā daśaratha rāmā
+
+rāma daśaratharāma nija satya-  
+kāma namo namo kākutthsarāma ‖
+
+karuṇānidhi rāma kausalyānandana rāma  
+parama puruśha sītāpatirāma ❘  
+śaradhi bandhana rāma savana rakśhaka rāma  
+gurutara ravivaṃśa kodaṇḍa rāma ‖
+
+danujaharaṇa rāma daśarathasuta rāma  
+vinutāmara stotra vijayarāma ❘  
+manujāvatārā rāma mahanīya guṇarāma  
+anilajapriya rāma ayodhyarāma ‖
+
+sulalitayaśa rāma sugrīva varada rāma  
+kaluśha rāvaṇa bhayaṅkara rāma ❘  
+vilasita raghurāma vedagocara rāma  
+kalita pratāpa śrīveṅkaṭagiri rāma ‖
+
+### PlainEnglish
+
+#### annamayya keertana raamaa dasharatha raamaa
+
+raama dasharatharaama nija satya-  
+kaama namo namo kaakutthsaraama ‖
+
+karuNaanidhi raama kausalyaanaMdana raama  
+parama purushha seetaapatiraama ❘  
+sharadhi baMdhana raama savana rakshhaka raama  
+gurutara ravivaMsha kodaMDa raama ‖
+
+danujaharaNa raama dasharathasuta raama  
+vinutaamara stotra vijayaraama ❘  
+manujaavataaraa raama mahaneeya guNaraama  
+anilajapriya raama ayodhyaraama ‖
+
+sulalitayasha raama sugreeva varada raama  
+kalushha raavaNa bhayaMkara raama ❘  
+vilasita raghuraama vedagocara raama  
+kalita prataapa shreeveMkaTagiri raama ‖
+

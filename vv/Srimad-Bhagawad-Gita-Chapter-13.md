@@ -1498,3 +1498,295 @@ kshhetrakshhetragnyavibhaagayogo naama trayodasho.adhyaayaH ‖13 ‖
 
 క్షేత్రక్షేత్రజ్ఞవిభాగయోగో నామ త్రయోదశోఽధ్యాయః ‖13 ‖  
 
+### English
+
+#### śrīmad bhagavad gīta trayodaśoadhyāyaḥ
+
+atha trayodaśoadhyāyaḥ ❘  
+śrībhagavānuvācha ❘  
+idaṃ śarīraṃ kaunteya kśhetramityabhidhīyate ❘  
+etadyo vetti taṃ prāhuḥ kśhetraGYa iti tadvidaḥ 
+‖ 1 ‖
+
+kśhetraGYaṃ chāpi māṃ viddhi sarvakśhetreśhu bhārata ❘  
+kśhetrakśhetraGYayorGYānaṃ yattajGYānaṃ mataṃ mama 
+‖ 2 ‖
+
+tatkśhetraṃ yachcha yādṛkcha yadvikāri yataścha yat ❘  
+sa cha yo yatprabhāvaścha tatsamāsena me śṛṇu 
+‖ 3 ‖
+
+ṛśhibhirbahudhā gītaṃ Chandobhirvividhaiḥ pṛthak ❘  
+brahmasūtrapadaiśchaiva hetumadbhirviniśchitaiḥ 
+‖ 4 ‖
+
+mahābhūtānyahaṅkāro buddhiravyaktameva cha ❘  
+indriyāṇi daśaikaṃ cha pañcha chendriyagocharāḥ 
+‖ 5 ‖
+
+ichChā dveśhaḥ sukhaṃ duḥkhaṃ saṅghātaśchetanā dhṛtiḥ ❘  
+etatkśhetraṃ samāsena savikāramudāhṛtam 
+‖ 6 ‖
+
+amānitvamadambhitvamahiṃsā kśhāntirārjavam ❘  
+āchāryopāsanaṃ śauchaṃ sthairyamātmavinigrahaḥ 
+‖ 7 ‖
+
+indriyārtheśhu vairāgyamanahaṅkāra eva cha ❘  
+janmamṛtyujarāvyādhiduḥkhadośhānudarśanam 
+‖ 8 ‖
+
+asaktiranabhiśhvaṅgaḥ putradāragṛhādiśhu ❘  
+nityaṃ cha samachittatvamiśhṭāniśhṭopapattiśhu 
+‖ 9 ‖
+
+mayi chānanyayogena bhaktiravyabhichāriṇī ❘  
+viviktadeśasevitvamaratirjanasaṃsadi 
+‖ 10 ‖
+
+adhyātmaGYānanityatvaṃ tattvaGYānārthadarśanam ❘  
+etajGYānamiti proktamaGYānaṃ yadatoanyathā 
+‖ 11 ‖
+
+GYeyaṃ yattatpravakśhyāmi yajGYātvāmṛtamaśnute ❘  
+anādimatparaṃ brahma na sattannāsaduchyate 
+‖ 12 ‖
+
+sarvataḥpāṇipādaṃ tatsarvatoakśhiśiromukham ❘  
+sarvataḥśrutimalloke sarvamāvṛtya tiśhṭhati 
+‖ 13 ‖
+
+sarvendriyaguṇābhāsaṃ sarvendriyavivarjitam ❘  
+asaktaṃ sarvabhṛchchaiva nirguṇaṃ guṇabhoktṛ cha 
+‖ 14 ‖
+
+bahirantaścha bhūtānāmacharaṃ charameva cha ❘  
+sūkśhmatvāttadaviGYeyaṃ dūrasthaṃ chāntike cha tat 
+‖ 15 ‖
+
+avibhaktaṃ cha bhūteśhu vibhaktamiva cha sthitam ❘  
+bhūtabhartṛ cha tajGYeyaṃ grasiśhṇu prabhaviśhṇu cha 
+‖ 16 ‖
+
+jyotiśhāmapi tajjyotistamasaḥ paramuchyate ❘  
+GYānaṃ GYeyaṃ GYānagamyaṃ hṛdi sarvasya viśhṭhitam 
+‖ 17 ‖
+
+iti kśhetraṃ tathā GYānaṃ GYeyaṃ choktaṃ samāsataḥ ❘  
+madbhakta etadviGYāya madbhāvāyopapadyate 
+‖ 18 ‖
+
+prakṛtiṃ puruśhaṃ chaiva viddhyanādi ubhāvapi ❘  
+vikārāṃścha guṇāṃśchaiva viddhi prakṛtisambhavān 
+‖ 19 ‖
+
+kāryakāraṇakartṛtve hetuḥ prakṛtiruchyate ❘  
+puruśhaḥ sukhaduḥkhānāṃ bhoktṛtve heturuchyate 
+‖ 20 ‖
+
+puruśhaḥ prakṛtistho hi bhuṅkte prakṛtijānguṇān ❘  
+kāraṇaṃ guṇasaṅgoasya sadasadyonijanmasu 
+‖ 21 ‖
+
+upadraśhṭānumantā cha bhartā bhoktā maheśvaraḥ ❘  
+paramātmeti chāpyukto deheasminpuruśhaḥ paraḥ 
+‖ 22 ‖
+
+ya evaṃ vetti puruśhaṃ prakṛtiṃ cha guṇaiḥ saha ❘  
+sarvathā vartamānoapi na sa bhūyoabhijāyate 
+‖ 23 ‖
+
+dhyānenātmani paśyanti kechidātmānamātmanā ❘  
+anye sāṅkhyena yogena karmayogena chāpare 
+‖ 24 ‖
+
+anye tvevamajānantaḥ śrutvānyebhya upāsate ❘  
+teapi chātitarantyeva mṛtyuṃ śrutiparāyaṇāḥ 
+‖ 25 ‖
+
+yāvatsañjāyate kiñchitsattvaṃ sthāvarajaṅgamam ❘  
+kśhetrakśhetraGYasaṃyogāttadviddhi bharatarśhabha 
+‖ 26 ‖
+
+samaṃ sarveśhu bhūteśhu tiśhṭhantaṃ parameśvaram ❘  
+vinaśyatsvavinaśyantaṃ yaḥ paśyati sa paśyati 
+‖ 27 ‖
+
+samaṃ paśyanhi sarvatra samavasthitamīśvaram ❘  
+na hinastyātmanātmānaṃ tato yāti parāṃ gatim 
+‖ 28 ‖
+
+prakṛtyaiva cha karmāṇi kriyamāṇāni sarvaśaḥ ❘  
+yaḥ paśyati tathātmānamakartāraṃ sa paśyati 
+‖ 29 ‖
+
+yadā bhūtapṛthagbhāvamekasthamanupaśyati ❘  
+tata eva cha vistāraṃ brahma sampadyate tadā 
+‖ 30 ‖
+
+anāditvānnirguṇatvātparamātmāyamavyayaḥ ❘  
+śarīrasthoapi kaunteya na karoti na lipyate 
+‖ 31 ‖
+
+yathā sarvagataṃ saukśhmyādākāśaṃ nopalipyate ❘  
+sarvatrāvasthito dehe tathātmā nopalipyate 
+‖ 32 ‖
+
+yathā prakāśayatyekaḥ kṛtsnaṃ lokamimaṃ raviḥ ❘  
+kśhetraṃ kśhetrī tathā kṛtsnaṃ prakāśayati bhārata 
+‖ 33 ‖
+
+kśhetrakśhetraGYayorevamantaraṃ GYānachakśhuśhā ❘  
+bhūtaprakṛtimokśhaṃ cha ye viduryānti te param 
+‖ 34 ‖
+
+oṃ tatsaditi śrīmadbhagavadgītāsūpaniśhatsu brahmavidyāyāṃ yogaśāstre śrīkṛśhṇārjunasaṃvāde   
+kśhetrakśhetraGYavibhāgayogo nāma trayodaśoadhyāyaḥ 
+‖13 ‖
+
+### PlainEnglish
+
+#### shreemad bhagavad geeta trayodasho.adhyaayaH
+
+atha trayodasho.adhyaayaH ❘  
+shreebhagavaanuvaacha ❘  
+idaM shareeraM kaunteya kshhetramityabhidheeyate ❘  
+etadyo vetti taM praahuH kshhetragnya iti tadvidaH 
+‖ 1 ‖
+
+kshhetragnyaM chaapi maaM viddhi sarvakshhetreshhu bhaarata ❘  
+kshhetrakshhetragnyayorgnyaanaM yattajgnyaanaM mataM mama 
+‖ 2 ‖
+
+tatkshhetraM yachcha yaadRRikcha yadvikaari yatashcha yat ❘  
+sa cha yo yatprabhaavashcha tatsamaasena me shRRiNu 
+‖ 3 ‖
+
+RRishhibhirbahudhaa geetaM ChandobhirvividhaiH pRRithak ❘  
+brahmasootrapadaishchaiva hetumadbhirvinishchitaiH 
+‖ 4 ‖
+
+mahaabhootaanyahaMkaaro buddhiravyaktameva cha ❘  
+indriyaaNi dashaikaM cha pancha chendriyagocharaaH 
+‖ 5 ‖
+
+ichChaa dveshhaH sukhaM duHkhaM saMghaatashchetanaa dhRRitiH ❘  
+etatkshhetraM samaasena savikaaramudaahRRitam 
+‖ 6 ‖
+
+amaanitvamadambhitvamahiMsaa kshhaantiraarjavam ❘  
+aachaaryopaasanaM shauchaM sthairyamaatmavinigrahaH 
+‖ 7 ‖
+
+indriyaartheshhu vairaagyamanahaMkaara eva cha ❘  
+janmamRRityujaraavyaadhiduHkhadoshhaanudarshanam 
+‖ 8 ‖
+
+asaktiranabhishhvangaH putradaaragRRihaadishhu ❘  
+nityaM cha samachittatvamishhTaanishhTopapattishhu 
+‖ 9 ‖
+
+mayi chaananyayogena bhaktiravyabhichaariNee ❘  
+viviktadeshasevitvamaratirjanasaMsadi 
+‖ 10 ‖
+
+adhyaatmagnyaananityatvaM tattvagnyaanaarthadarshanam ❘  
+etajgnyaanamiti proktamagnyaanaM yadato.anyathaa 
+‖ 11 ‖
+
+gnyeyaM yattatpravakshhyaami yajgnyaatvaamRRitamashnute ❘  
+anaadimatparaM brahma na sattannaasaduchyate 
+‖ 12 ‖
+
+sarvataHpaaNipaadaM tatsarvato.akshhishiromukham ❘  
+sarvataHshrutimalloke sarvamaavRRitya tishhThati 
+‖ 13 ‖
+
+sarvendriyaguNaabhaasaM sarvendriyavivarjitam ❘  
+asaktaM sarvabhRRichchaiva nirguNaM guNabhoktRRi cha 
+‖ 14 ‖
+
+bahirantashcha bhootaanaamacharaM charameva cha ❘  
+sookshhmatvaattadavignyeyaM doorasthaM chaantike cha tat 
+‖ 15 ‖
+
+avibhaktaM cha bhooteshhu vibhaktamiva cha sthitam ❘  
+bhootabhartRRi cha tajgnyeyaM grasishhNu prabhavishhNu cha 
+‖ 16 ‖
+
+jyotishhaamapi tajjyotistamasaH paramuchyate ❘  
+gnyaanaM gnyeyaM gnyaanagamyaM hRRidi sarvasya vishhThitam 
+‖ 17 ‖
+
+iti kshhetraM tathaa gnyaanaM gnyeyaM choktaM samaasataH ❘  
+madbhakta etadvignyaaya madbhaavaayopapadyate 
+‖ 18 ‖
+
+prakRRitiM purushhaM chaiva viddhyanaadi ubhaavapi ❘  
+vikaaraaMshcha guNaaMshchaiva viddhi prakRRitisaMbhavaan 
+‖ 19 ‖
+
+kaaryakaaraNakartRRitve hetuH prakRRitiruchyate ❘  
+purushhaH sukhaduHkhaanaaM bhoktRRitve heturuchyate 
+‖ 20 ‖
+
+purushhaH prakRRitistho hi bhunkte prakRRitijaanguNaan ❘  
+kaaraNaM guNasango.asya sadasadyonijanmasu 
+‖ 21 ‖
+
+upadrashhTaanumantaa cha bhartaa bhoktaa maheshvaraH ❘  
+paramaatmeti chaapyukto dehe.asminpurushhaH paraH 
+‖ 22 ‖
+
+ya evaM vetti purushhaM prakRRitiM cha guNaiH saha ❘  
+sarvathaa vartamaano.api na sa bhooyo.abhijaayate 
+‖ 23 ‖
+
+dhyaanenaatmani pashyanti kechidaatmaanamaatmanaa ❘  
+anye saaMkhyena yogena karmayogena chaapare 
+‖ 24 ‖
+
+anye tvevamajaanantaH shrutvaanyebhya upaasate ❘  
+te.api chaatitarantyeva mRRityuM shrutiparaayaNaaH 
+‖ 25 ‖
+
+yaavatsaMjaayate kiMchitsattvaM sthaavarajangamam ❘  
+kshhetrakshhetragnyasaMyogaattadviddhi bharatarshhabha 
+‖ 26 ‖
+
+samaM sarveshhu bhooteshhu tishhThantaM parameshvaram ❘  
+vinashyatsvavinashyantaM yaH pashyati sa pashyati 
+‖ 27 ‖
+
+samaM pashyanhi sarvatra samavasthitameeshvaram ❘  
+na hinastyaatmanaatmaanaM tato yaati paraaM gatim 
+‖ 28 ‖
+
+prakRRityaiva cha karmaaNi kriyamaaNaani sarvashaH ❘  
+yaH pashyati tathaatmaanamakartaaraM sa pashyati 
+‖ 29 ‖
+
+yadaa bhootapRRithagbhaavamekasthamanupashyati ❘  
+tata eva cha vistaaraM brahma saMpadyate tadaa 
+‖ 30 ‖
+
+anaaditvaannirguNatvaatparamaatmaayamavyayaH ❘  
+shareerastho.api kaunteya na karoti na lipyate 
+‖ 31 ‖
+
+yathaa sarvagataM saukshhmyaadaakaashaM nopalipyate ❘  
+sarvatraavasthito dehe tathaatmaa nopalipyate 
+‖ 32 ‖
+
+yathaa prakaashayatyekaH kRRitsnaM lokamimaM raviH ❘  
+kshhetraM kshhetree tathaa kRRitsnaM prakaashayati bhaarata 
+‖ 33 ‖
+
+kshhetrakshhetragnyayorevamantaraM gnyaanachakshhushhaa ❘  
+bhootaprakRRitimokshhaM cha ye viduryaanti te param 
+‖ 34 ‖
+
+oM tatsaditi shreemadbhagavadgeetaasoopanishhatsu brahmavidyaayaaM yogashaastre shreekRRishhNaarjunasaMvaade   
+kshhetrakshhetragnyavibhaagayogo naama trayodasho.adhyaayaH 
+‖13 ‖
+

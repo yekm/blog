@@ -289,3 +289,47 @@ saMkuma daMbula jaajara ‖
 వేంకటపతిపై వెలదులు నించేరు  
 సంకుమ దంబుల జాజర ‖  
 
+### English
+
+#### annamayya kīrtana jagaḍapu chanuvula
+
+jagaḍapu chanuvula jājara  
+saginala mañchapu jājara ‖
+
+mollalu turumula muḍichina baruvuna  
+mollapu sarasapu muripemuna ❘  
+jallana puppoḍi jāraga patipai challe patipai  
+challe rativalu jājara ‖
+
+bhārapu kuchamula paipai kaḍu siṃ-  
+gāramu nerapeṭi gandhavoḍi ❘  
+cheruva patipai chindaga paḍatulu  
+sāreku challeru jājara ‖
+
+biṅkapu kūṭami penageṭi chemaṭala  
+paṅkapu pūtala parimaḻamu ❘  
+veṅkaṭapatipai veladulu niñcheru  
+saṅkuma dambula jājara ‖
+
+### PlainEnglish
+
+#### annamayya keertana jagaDapu chanuvula
+
+jagaDapu chanuvula jaajara  
+saginala maMchapu jaajara ‖
+
+m.ollalu turumula muDichina baruvuna  
+m.ollapu sarasapu murip.emuna ❘  
+jallana pupp.oDi jaaraga patipai challe patipai  
+challe rativalu jaajara ‖
+
+bhaarapu kuchamula paipai kaDu siM-  
+gaaramu n.erapeTi gaMdhav.oDi ❘  
+cheruva patipai chiMdaga paDatulu  
+saar.eku challeru jaajara ‖
+
+biMkapu kooTami p.enageTi ch.emaTala  
+paMkapu pootala parimaLamu ❘  
+veMkaTapatipai v.eladulu niMcheru  
+saMkuma daMbula jaajara ‖
+

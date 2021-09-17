@@ -289,3 +289,47 @@ maMchivaaDai karuNa baaliMchina vaaDu ‖
 యెంచి ఎక్కుడైన వేంకటేశుడు మనలకు  
 మంచివాడై కరుణ బాలించిన వాడు ‖  
 
+### English
+
+#### annamayya kīrtana koṇḍalalo nelakonna
+
+koṇḍalalo nelakonna koneṭi rāyaḍu vāḍu  
+koṇḍalanta varamulu guppeḍu vāḍu ‖
+
+kummara dāsuḍaina kuruvarati nambi  
+immanna varamulella ichchinavāḍu ❘  
+dommulu sesina yaṭṭi toṇḍamān chakkuravarti  
+rammanna choṭiki vachchi nammina vāḍu ‖
+
+achchapu veḍukatoḍa nanantāḻvāruki  
+muchchili veṭṭiki manni mosinavāḍu ❘  
+machchika dolaka tirunambi toḍuta  
+nichcha nichcha māṭalāḍi nochchinavāḍu ‖
+
+kañchilona nuṇḍu dirukachchinambi mīda garu-  
+ṇiñchi tana yeḍaku rappiñchina vāḍu ❘  
+yeñchi ekkuḍaina veṅkaṭeśuḍu manalaku  
+mañchivāḍai karuṇa bāliñchina vāḍu ‖
+
+### PlainEnglish
+
+#### annamayya keertana k.oMDalalo n.elak.onna
+
+k.oMDalalo n.elak.onna koneTi raayaDu vaaDu  
+k.oMDalaMta varamulu gupp.eDu vaaDu ‖
+
+kummara daasuDaina kuruvarati naMbi  
+immanna varamul.ella ichchinavaaDu ❘  
+d.ommulu sesina yaTTi t.oMDamaan chakkuravarti  
+rammanna choTiki vachchi nammina vaaDu ‖
+
+achchapu veDukatoDa nanaMtaaLvaaruki  
+muchchili v.eTTiki manni mosinavaaDu ❘  
+machchika d.olaka tirunaMbi toDuta  
+nichcha nichcha maaTalaaDi n.ochchinavaaDu ‖
+
+kaMchilona nuMDu dirukachchinaMbi meeda garu-  
+NiMchi tana y.eDaku rappiMchina vaaDu ❘  
+y.eMchi .ekkuDaina veMkaTeshuDu manalaku  
+maMchivaaDai karuNa baaliMchina vaaDu ‖
+

@@ -1216,3 +1216,145 @@ Please protect me always
 జగన్మాత్రే చ మోహిన్యై మంగళం శుభ మంగళం ‖  
 
 
+### English
+
+#### aśhṭa lakśhmī stotram
+
+ādilakśhmi  
+sumanasa vandita sundari mādhavi, candra sahodari hemamaye   
+munigaṇa vandita mokśhapradāyani, mañjula bhāśhiṇi vedanute ❘  
+paṅkajavāsini deva supūjita, sadguṇa varśhiṇi śāntiyute   
+jaya jayahe madhusūdana kāmini, ādilakśhmi paripālaya mām 
+‖ 1 ‖
+
+dhānyalakśhmi  
+ayikali kalmaśha nāśini kāmini, vaidika rūpiṇi vedamaye   
+kśhīra samudbhava maṅgaḻa rūpiṇi, mantranivāsini mantranute ❘  
+maṅgaḻadāyini ambujavāsini, devagaṇāśrita pādayute   
+jaya jayahe madhusūdana kāmini, dhānyalakśhmi paripālaya mām 
+‖ 2 ‖
+
+dhairyalakśhmi  
+jayavaravarśhiṇi vaiśhṇavi bhārgavi, mantra svarūpiṇi mantramaye   
+suragaṇa pūjita śīghra phalaprada, GYāna vikāsini śāstranute ❘  
+bhavabhayahāriṇi pāpavimocani, sādhu janāśrita pādayute   
+jaya jayahe madhu sūdhana kāmini, dhairyalakśhmī paripālaya mām 
+‖ 3 ‖
+
+gajalakśhmi  
+jaya jaya durgati nāśini kāmini, sarvaphalaprada śāstramaye   
+radhagaja turagapadāti samāvṛta, parijana maṇḍita lokanute ❘  
+harihara brahma supūjita sevita, tāpa nivāriṇi pādayute   
+jaya jayahe madhusūdana kāmini, gajalakśhmī rūpeṇa pālaya mām 
+‖ 4 ‖
+
+santānalakśhmi  
+ayikhaga vāhini mohini cakriṇi, rāgavivardhini GYānamaye   
+guṇagaṇavāradhi lokahitaiśhiṇi, saptasvara bhūśhita gānanute ❘  
+sakala surāsura deva munīśvara, mānava vandita pādayute   
+jaya jayahe madhusūdana kāmini, santānalakśhmī paripālaya mām 
+‖ 5 ‖
+
+vijayalakśhmi  
+jaya kamalāsini sadgati dāyini, GYānavikāsini gānamaye   
+anudina marcita kuṅkuma dhūsara, bhūśhita vāsita vādyanute ❘  
+kanakadharāstuti vaibhava vandita, śaṅkaradeśika mānyapade   
+jaya jayahe madhusūdana kāmini, vijayalakśhmī paripālaya mām 
+‖ 6 ‖
+
+vidyālakśhmi  
+praṇata sureśvari bhārati bhārgavi, śokavināśini ratnamaye   
+maṇimaya bhūśhita karṇavibhūśhaṇa, śānti samāvṛta hāsyamukhe ❘  
+navanidhi dāyini kalimalahāriṇi, kāmita phalaprada hastayute   
+jaya jayahe madhusūdana kāmini, vidyālakśhmī sadā pālaya mām 
+‖ 7 ‖
+
+dhanalakśhmi  
+dhimidhimi dhindhimi dhindhimi-dindhimi, dundhubhi nāda supūrṇamaye   
+ghumaghuma ghuṅghuma ghuṅghuma ghuṅghuma, śaṅkha nināda suvādyanute ❘  
+veda pūrāṇetihāsa supūjita, vaidika mārga pradarśayute   
+jaya jayahe madhusūdana kāmini, dhanalakśhmi rūpeṇā pālaya mām 
+‖ 8 ‖
+
+phalaśṛti  
+ślo‖
+
+ aśhṭalakśhmī namastubhyaṃ varade kāmarūpiṇi ❘  
+viśhṇuvakśhaḥ sthalā rūḍhe bhakta mokśha pradāyini ‖
+
+ślo‖
+
+ śaṅkha cakragadāhaste viśvarūpiṇite jayaḥ ❘  
+jaganmātre ca mohinyai maṅgaḻaṃ śubha maṅgaḻaṃ ‖
+
+### PlainEnglish
+
+#### ashhTa lakshhmee stotram
+
+aadilakshhmi  
+sumanasa vaMdita suMdari maadhavi, caMdra sah.odari hemamaye   
+munigaNa vaMdita mokshhapradaayani, maMjula bhaashhiNi vedanute ❘  
+paMkajavaasini deva supoojita, sadguNa varshhiNi shaaMtiyute   
+jaya jayahe madhusoodana kaamini, aadilakshhmi paripaalaya maam 
+‖ 1 ‖
+
+dhaanyalakshhmi  
+ayikali kalmashha naashini kaamini, vaidika roopiNi vedamaye   
+kshheera samudbhava maMgaLa roopiNi, maMtranivaasini maMtranute ❘  
+maMgaLadaayini aMbujavaasini, devagaNaashrita paadayute   
+jaya jayahe madhusoodana kaamini, dhaanyalakshhmi paripaalaya maam 
+‖ 2 ‖
+
+dhairyalakshhmi  
+jayavaravarshhiNi vaishhNavi bhaargavi, maMtra svaroopiNi maMtramaye   
+suragaNa poojita sheeghra phalaprada, gnyaana vikaasini shaastranute ❘  
+bhavabhayahaariNi paapavimocani, saadhu janaashrita paadayute   
+jaya jayahe madhu soodhana kaamini, dhairyalakshhmee paripaalaya maam 
+‖ 3 ‖
+
+gajalakshhmi  
+jaya jaya durgati naashini kaamini, sarvaphalaprada shaastramaye   
+radhagaja turagapadaati samaavRRita, parijana maMDita lokanute ❘  
+harihara brahma supoojita sevita, taapa nivaariNi paadayute   
+jaya jayahe madhusoodana kaamini, gajalakshhmee roopeNa paalaya maam 
+‖ 4 ‖
+
+saMtaanalakshhmi  
+ayikhaga vaahini mohini cakriNi, raagavivardhini gnyaanamaye   
+guNagaNavaaradhi lokahitaishhiNi, saptasvara bhooshhita gaananute ❘  
+sakala suraasura deva muneeshvara, maanava vaMdita paadayute   
+jaya jayahe madhusoodana kaamini, saMtaanalakshhmee paripaalaya maam 
+‖ 5 ‖
+
+vijayalakshhmi  
+jaya kamalaasini sadgati daayini, gnyaanavikaasini gaanamaye   
+anudina marcita kuMkuma dhoosara, bhooshhita vaasita vaadyanute ❘  
+kanakadharaastuti vaibhava vaMdita, shaMkaradeshika maanyapade   
+jaya jayahe madhusoodana kaamini, vijayalakshhmee paripaalaya maam 
+‖ 6 ‖
+
+vidyaalakshhmi  
+praNata sureshvari bhaarati bhaargavi, shokavinaashini ratnamaye   
+maNimaya bhooshhita karNavibhooshhaNa, shaaMti samaavRRita haasyamukhe ❘  
+navanidhi daayini kalimalahaariNi, kaamita phalaprada hastayute   
+jaya jayahe madhusoodana kaamini, vidyaalakshhmee sadaa paalaya maam 
+‖ 7 ‖
+
+dhanalakshhmi  
+dhimidhimi dhiMdhimi dhiMdhimi-diMdhimi, duMdhubhi naada supoorNamaye   
+ghumaghuma ghuMghuma ghuMghuma ghuMghuma, shaMkha ninaada suvaadyanute ❘  
+veda pooraaNetihaasa supoojita, vaidika maarga pradarshayute   
+jaya jayahe madhusoodana kaamini, dhanalakshhmi roopeNaa paalaya maam 
+‖ 8 ‖
+
+phalashRRiti  
+shlo‖
+
+ ashhTalakshhmee namastubhyaM varade kaamaroopiNi ❘  
+vishhNuvakshhaH sthalaa rooDhe bhakta mokshha pradaayini ‖
+
+shlo‖
+
+ shaMkha cakragadaahaste vishvaroopiNite jayaH ❘  
+jaganmaatre ca mohinyai maMgaLaM shubha maMgaLaM ‖
+

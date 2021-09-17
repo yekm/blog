@@ -19555,3 +19555,3275 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
 దుష్టసంహార ❘ నరసింహ - దురితదూర |  
 
+### English
+
+#### nārasiṃha śatakam
+
+001  
+sī. śrīmanohara ❘  
+surā - rchita sindhugambhīra ❘  
+bhaktavatsala ❘  
+koṭi - bhānuteja ❘  
+kañjanetra ❘  
+hiraṇya - kaśyapāntaka ❘  
+śūra ❘  
+sādhurakśhaṇa ❘  
+śaṅkha - chakrahasta ❘  
+prahlāda varada ❘  
+pā - padhvaṃsa ❘  
+sarveśa ❘  
+kśhīrasāgaraśāyi ❘  
+- kṛśhṇavarṇa ❘  
+pakśhivāhana ❘  
+nīla - bhramarakuntalajāla ❘  
+pallavāruṇapāda - padmayugaḻa ❘  
+te chāruśrīchandanāgaru - charchitāṅga ❘  
+kundakuṭmaladanta ❘  
+vai - kuṇṭhadhāma ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+002  
+sī. padmalochana ❘  
+sīsa - padyamul nī mīda  
+jeppabūnitinayya ❘  
+- chittagimpu  
+gaṇa yati prāsa la - kśhaṇamu jūḍagaledu  
+pañchakāvya śloka - paṭhana ledu  
+amarakāṇḍatrayaṃ - barasi chūḍagaledu  
+śāstrīya grandhamul - chaduvaledu  
+nī kaṭākśhambuna - ne rachiñcheda gāni  
+praGYa nāyadi gādu - prastutimpa  
+te dappugaligina sadbhakti - takkuvaune  
+cheRakunaku vaṅkapoyina - cheḍune tīpu?  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+003  
+sī. narasiṃha ❘  
+nī divya - nāmamantramucheta  
+duritajālamu lanni - dolavachchu  
+narasiṃha ❘  
+nī divya - nāmamantramucheta  
+baluvaina rogamul - pāpavachchu  
+narasiṃha ❘  
+nī divya - nāmamantramucheta  
+ripusaṅghamula saṃha - rimpavachchu  
+narasiṃha ❘  
+nī divya - nāmamantramucheta  
+daṇḍahastuni baṇṭla - daramavachchu  
+te bhaḻira ❘  
+ne nī mahāmantra - balamucheta  
+divya vaikuṇṭha padavi sā - dhimpavachchu  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+004  
+sī. ādinārāyaṇā ❘  
+- yanuchu nālukatoḍa  
+baluka nerchinavāri - pādamulaku  
+sāśhṭāṅgamuga nama - skāra marpaṇa jesi  
+prastutiñchedanayya - bahuvidhamula  
+dharaṇilo narulenta - daṇḍivārainanu  
+ninnu gānanivāri - ne smarimpa  
+memu śreśhṭhula mañchu - midukuchuñcheḍivāri  
+chenta jeraganonu - śeśhaśayana  
+te parama sātvikulaina nī - bhaktavarula  
+dāsulaku dāsuḍanu jumī - dhātrilona  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+005  
+sī. aiśvaryamulaku ni - nnanusarimpagaledu  
+dravya mimmani veṇṭa - dagulaledu  
+kanaka mimmani chāla - gaśhṭapeṭṭagaledu  
+palla kimmani noṭa - balakaledu  
+sommu limmani ninnu - nammi kolvagaledu  
+bhūmu limmani peru - pogaḍaledu  
+balamu limmani ninnu - bratimālagāledu  
+pasula nimmani paṭṭu - paṭṭaledu  
+te nenu gorina dokkaṭe - nīlavarṇa  
+chayyananu mokśhamichchina - jālu nāku  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+006  
+sī. manduṇḍanani nannu - ninda chesinanemi?  
+nā dīnatanu jūchi - navva nemi?  
+dūrabhāvamuleka - tūlanāḍina nemi?  
+prītiseyaka vaṅka - beṭṭa nemi?  
+kakkasambulu palki - vekkiriñchina nemi?  
+tīvrakopamucheta - diṭṭa nemi?  
+hechchumāṭalacheta - nemme lāḍina nemi?  
+ceri dāpaṭa geli - cheyanemi?  
+te kalpavṛkśhambuvale nīvu - galga niṅka  
+brajala lakśhyambu nākela? - padmanābha ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+007  
+sī. chittaśuddhiga nīku - sevajesedagāni  
+puḍamilo janula me - ppulaku gādu  
+janmapāvanatakai - smaraṇajeseda gāni  
+sarivārilo brati - śhthalaku gādu  
+muktikosamu nenu - mrokki veḍedagāni  
+daṇḍibhāgyamu nimi - ttambu gādu  
+ninnu bogaḍaga vidya - nerchitinekāni  
+kukśhiniṇḍeḍu kūṭi - koRaku gādu  
+te pāramārthikamunaku ne bāṭupaḍiti  
+gīrtiki napekśhapaḍaledu - kṛśhṇavarṇa ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+008  
+sī. śravaṇa randhramula nī - satkathal pogaḍaṅga  
+leśa mānandambu - lenivāḍu  
+puṇyavantulu ninnu - būjaseyaga jūchi  
+bhāvamandutsāha - paḍanivāḍu  
+bhaktavaryulu nī pra - bhāvamul pogaḍaṅga  
+datparatvamuleka - talaguvāḍu  
+tanachittamandu nī - dhyāna mennaḍu leka  
+kālamantayu vṛdhā - gaḍapuvāḍu  
+te vasudhalonella vyardhuṇḍu - vāḍe yagunu  
+maRiyu jeḍugāka yeppuḍu - mamatanondi.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+009  
+sī. gautamīsnānāna - gaḍateRuda maṭanna  
+monasi channīḻlalo - munugalenu  
+tīrthayātralache gṛ - tārthu ḍaudamaṭanna  
+baḍali nemambu le - naḍapalenu  
+dānadharmamula sa - dgatini jendudamanna  
+ghanamugā nāyodda - dhanamuledu  
+tapamāchariñchi sā - rdhakamu nondudamanna  
+nimiśhamaina manassu - nilupalenu  
+te kaśhṭamulakorva nācheta - gādu ninnu  
+smaraṇacheseda nā yadhā - śakti koladi.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+010  
+sī. arthivāṇḍraku nīka - hāni jeyuṭa kaṇṭe  
+demputo vasanābhi - dinuṭa melu  
+āḍubiḍḍalasommu - lapahariñchuṭa kaṇṭe  
+baṇḍa gaṭṭuka nūta - baḍuṭa melu  
+parulakāntala baṭṭi - balmi gūḍuṭa kaṇṭe  
+baḍabāgni kīlala - baḍuṭa melu  
+bratukajālaka doṅga - panulu cheyuṭa kaṇṭe  
+goṅguto muśhṭettu - konuṭa melu  
+te jalajadaḻanetra nī bhakta - janulatoḍi  
+jagaḍamāḍeḍu panikaṇṭe - jāvu melu  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+011  
+sī. gārdabhambuna kela - kastūri tilakambu?  
+markaṭambuna kela - malayajambu?  
+śārdhūlamunaka kela - śarkarāpūpambu?  
+sūkarambuna kela - chūtaphalamu?  
+mārjālamuna kela - mallepuvvulabanti?  
+guḍlagūbala kela - kuṇḍalamulu?  
+mahiśhāni kela ni - rmalamaina vastramul?  
+bakasantatiki nela - pañjarambu?  
+te drohachintana jeseḍi - durjanulaku  
+madhuramainaṭṭi nīnāma - mantramela?  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+012  
+sī. pasarambu vañjaina - basulakāpari tappu  
+prajalu durjanulaina - prabhuni tappu  
+bhārya gayyāḻaina - brāṇanādhuni tappu  
+tanayuḍu duśhṭayina - taṇḍri tappu  
+sainyambu chedirina - sainyanādhuni tappu  
+kūturu cheḍugaina - māta tappu  
+aśvambu cheḍugaina - nārohakuni tappu  
+danti duśhṭayina mā - vantu tappu  
+te iṭṭi tappuleRuṅgaka - yichchavachchi  
+naṭula melagudu rippu ḍī - yavani janulu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+013  
+sī. kotiki jalatāru - kuḻlāyi yeṭiki?  
+virajāji pūdaṇḍa - vidhava kela?  
+mukkiḍitottuku - muttempu nattela?  
+nadda memiṭiki jā - tyandhunakunu?  
+māchakammaku nela - mauktikahāramul?  
+krūrachittunaku sa - dgośhṭhu lela?  
+Raṅkubotuku nela - biṅkampu niśhṭhalu?  
+vāvi yeṭiki duśhṭa - vartanunaku?  
+te māṭa nilukaḍa kuṅkari - moṭu kela?  
+cheviṭivāniki satkatha - śravaṇa mela?  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+014  
+sī. mānyambulīya sa - mardhuḍokkaḍu leḍu  
+mānyamul cheRupa sa - mardhu lanta  
+yeṇḍina yūḻlago - ḍeRigimpa ḍevvaḍu  
+baṇḍina yūḻlamu - brabhuvu lanta  
+yitaḍu peda yaṭañchu - neRigimpa ḍevvaṇḍu  
+kalavāri siru lenna - galaru chāla  
+danayāli cheśhṭala - tappenna ḍevvaḍu  
+beRakānta Raṅkenna - bedda lanta  
+te yiṭṭi duśhṭula kadhikāra - michchinaṭṭi  
+prabhuvu tappu laṭañchunu - balukavalenu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+015  
+sī. talligarbhamunuṇḍi - dhanamu te ḍevvaḍu  
+veḻlipoyeḍināḍu - veṇṭarādu  
+lakśhādhikāraina - lavaṇa manname kāni  
+meRugu baṅgārambu - mriṅgaboḍu  
+vitta mārjanajesi - virravīguṭe kāni  
+kūḍabeṭṭina sommu - toḍarādu  
+pondugā maRugaina - bhūmilopala beṭṭi  
+dānadharmamu leka - dāchi dāchi  
+te tudaku doṅgala kitturo - dorala kavuno  
+tene juṇṭīga liyyavā - teruvarulaku?  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+016  
+sī. lokamaṃ devaḍaina - lobhimānavu ḍunna  
+bhikśha marthimi jeta - beṭṭaleḍu  
+tānu beṭṭakayunna - tagavu puṭṭadugāni  
+yorulu peṭṭaga jūchi - yorvaleḍu  
+dātadaggaRa jeri - tana mulle cheḍinaṭlu  
+jihvato jāḍīlu - cheppuchuṇḍu  
+phalamu vighnambaina - balu santasamunandu  
+melu kalgina jāla - miṇukuchuṇḍu  
+te śrīramānātha ❘  
+yiṭuvaṇṭi - krūrunakunu  
+bhikśhukula śatruvani - peru peṭṭavachchu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+017  
+sī. tanuvulo brāṇamul = taraḻipoyyeḍiveḻa  
+nī svarūpamunu dhyā - niñchunataḍu  
+nimiśhamātramulona - ninnu jerunu gāni  
+yamuni chetiki jikki - śramalabaḍaḍu  
+paramasantośhāna - bhajana jeseḍivāri  
+puṇya memanavachchu - bhogiśayana  
+mokśhamu nī dāsa - mukhyula kagu gāni  
+naraka mekkaḍidayya - naḻinanetra  
+te kamalanābha nī mahimalu - gānaleni  
+tuchChulaku muktidorakuṭa - durlabhambu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+018  
+sī. nīlameghaśyāma ❘  
+- nīve taṇḍrivi māku  
+kamalavāsini mammu - gannatalli  
+nī bhaktavarulanta - nijamaina bāndhavul  
+nī kaṭākśhamu mā ka - nekadhanamu  
+nī kīrtanalu māku - loka prapañchambu  
+nī sahāyamu māku - nityasukhamu  
+nī mantrame māku - niśhkaḻaṅkapu vidya  
+nī pada dhyānambu - nityajapamu  
+te toyajātākśha nī pāda - tulasidaḻamu  
+rogamula kauśhadhamu brahma - rudravinuta.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+019  
+sī. bratikinannāḻlu nī - bhajana tappanu gāni  
+maraṇakālamunandu - maRatunemo  
+yāveḻa yamadūta - lāgrahambuna vachchi  
+prāṇamul pekaliñchi - paṭṭunapuḍu  
+kapha vāta paityamul - gappagā bhramacheta  
+gampa mudbhavamandi - kaśhṭapaḍuchu  
+nā jihvato ninnu - nārāyaṇā yañchu  
+bilutuno śramacheta - biluvano  
+te nāṭi kippuḍe chetu nī - nāmabhajana  
+talachedanu, jevi niḍavayya ❘  
+- dhairyamuganu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+020  
+sī. pāñchabhautikamu du - rbalamaina kāyaṃ bi  
+deppuḍo viḍuchuṭa - yeRukaledu  
+śatavarśhamuladāka - mitamu jeppiri gāni  
+nammarā dāmāṭa - nemmanamuna  
+bālyamando mañchi - prāyamando leka  
+mudimiyando leka - musaliyando  
+yūrano yaḍavino - yudakamadhyamunano  
+yeppuḍo viḍuchuṭa - yekśhaṇambo  
+te maraṇame niśchayamu buddhi - mantuḍaina  
+dehamunnantalo mimmu - deliyavalayu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+021  
+sī. tallidaṇḍrulu bhārya - tanayu lāptulu bāva  
+maRadu lannalu mena - māmagāru  
+ghanamugā bandhuvul - galginappaṭikaina  
+dānu darlaga veṇṭa - dagili rāru  
+yamuni dūtalu prāṇa - mapagariñchuka poga  
+mamatato borāḍi - mānpaleru  
+balaga mandaRu duḥkha - paḍuṭa mātrame kāni  
+yiñchuka yāyuśhya - miyyaleru  
+te chuṭṭamulamīdi bhramadīsi - chūra jekki  
+santatamu mimmu nammuṭa - sārthakambu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+022  
+sī. ibharājavarada ❘  
+ni - nnenta bilchinagāni  
+māRu palka vademi - maunitanamo?  
+munijanārchita ❘  
+ninnu - mrokki veḍinagāni  
+kanula jūḍa vademi - gaḍusudanamo?  
+chāla dainyamunondi - chāṭu chochchinagāni  
+bhāgya miyya vademi - prauḍhatanamo?  
+sthiramugā nīpāda - seva jeseda nanna  
+dorakajāla vademi - dhūrtatanamo?  
+te mokśhadāyaka ❘  
+yiṭuvaṇṭi - mūrkhajanuni  
+kaśhṭapeṭṭina nīkemi - kaḍupuniṇḍu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+023  
+sī. nīmīda kīrtanal - nityagānamu jesi  
+ramyamondimpa nā - raduḍagānu  
+sāvadhānamuga nī - charaṇa paṅkaja seva  
+salipi meppampaṅga - śabarigānu  
+bālyamappaṭinuṇḍi - bhakti nīyanduna  
+galuganu brahlāda - ghanuḍagānu  
+ghanamugā nīmīdi - granthamul galpiñchi  
+vinutiseyanu vyāsa - muninigānu  
+te sādhuḍanu mūrkhamati manu - śhyādhamuḍanu  
+hīnuḍanu jummi nīvu - na nnelukonumu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+024  
+sī. atiśayambuga galla - lāḍanerchitigāni  
+pāṭigā satyamul - palukanera  
+satkārya vighnamul - salupa nerchitigāni  
+yiśhṭa mondaga nirva - himpanera  
+nokari sommuku dosi - logga nerchitigāni  
+cheluvugā dharmambu - seyanera  
+dhanamu liyyaṅga va - ddanaga nerchitigāni  
+śīghra michcheḍunaṭlu - cheppanera  
+te baṅkajātākśha ❘  
+ne nati - pātakuḍanu  
+dappulanniyu kśhamiyimpa - daṇḍri vīve ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+025  
+sī. urvilo nāyuśhya - munna paryantambu  
+māya saṃsārambu - maragi naruḍu  
+sakala pāpamulaina - saṅgrahiñchunu gāni  
+ninnu jereḍi yukti - nervaleḍu  
+tudaku gāluniyoddi - dūta liddaRu vachchi  
+guñjuka chani vāru - grudduchuṇḍa  
+hiṃsa korvaga leka - yeḍchi gantuluvesi  
+dikku ledani nālgu - diśalu chūḍa  
+te dannu viḍipimpa vachcheḍi - dhanyu ḍeḍi  
+mundu nīdāsuḍai yunna - mukti galugu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+026  
+sī. adhika vidyāvantu - laprayojakulairi  
+pūrṇaśuṇṭhalu sabhā - pūjyulairi  
+satyavantulamāṭa - jana virodhambāye  
+vadarubotulamāṭa - vāsikekke  
+dharmavādanaparul - dāridryamondiri  
+paramalobhulu dhana - prāptulairi  
+puṇyavantulu roga - bhūta pīḍitulairi  
+duśhṭamānavulu va - rdhiśhṇulairi  
+te pakśhivāhana ❘  
+māvaṇṭi - bhikśhukulaku  
+śaktiledāye nika nīve - chāṭu māku.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+027  
+sī. bhujabalambuna bedda - pulula jampagavachchu  
+pāmukaṇṭhamu jeta - baṭṭavachchu  
+brahma rākśhasakoṭla - bāRadrolagavachchu  
+manujula rogamul - mānpavachchu  
+jihva kiśhṭamugāni - chedu mriṅgagavachchu  
+badanu khaḍgamu cheta - nadamavachchu  
+gaśhṭamonduchu muṇḍla - kampalo joravachchu  
+diṭṭubotula noḻlu - kaṭṭavachchu  
+te buḍamilo duśhṭulaku GYāna - bodha telipi  
+sajjanula jeyale ḍenta - chaturudaina.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+028  
+sī. avanilogala yātra - lanni cheyagavachchu  
+mukhyuḍai nadulandu - munugavachchu  
+mukkupaṭṭuka sandhya - monasi vārvagavachchu  
+dinnagā japamāla - drippavachchu  
+vedāla karthambu - viRichi cheppagavachchu  
+śreśhṭh kratuvu lella - jeyavachchu  
+dhanamu lakśhalu koṭlu - dānamiyyagavachchu  
+naiśhṭhikāchāramul - naḍupavachchu  
+te jitta manyasthalambuna - jerakuṇḍa  
+nī padāmbhojamulayandu - nilaparādu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+029  
+sī. karṇayugmamuna nī - kathalu sokinajālu  
+pedda pogula joḻlu - peṭṭinaṭlu  
+chetu lettuchu būja - seyagalginajālu  
+torampu kaḍiyālu - doḍiginaṭlu  
+monasi mastakamuto - mrokka galginajālu  
+cheluvamaina turāyi - chekkinaṭlu  
+gaḻamu novvaga ninnu - baluka galginajālu  
+vintagā gaṇṭhīlu - vesinaṭlu  
+te pūni ninu golchuṭe sarva - bhūśhaṇambu  
+litara bhūśhaṇamula nichcha - gimpanela.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+030  
+sī. bhuvanarakśhaka ❘  
+ninnu - bogaḍanerani noru  
+vraja kagocharamaina - pāḍubonda  
+suravarārchita ❘  
+ninnu - jūḍagorani kanul  
+jalamulopala nelli - sarapuguṇḍlu  
+śrīramādhima ❘  
+nīku - sevajeyani menu  
+kūli kammuḍuvoni - kolimititti  
+veḍkato nīkathal - vinani karṇamulaina  
+gaṭhinaśilādula - galugu tolalu  
+te padmalochana nīmīda - bhaktileni  
+mānavuḍu reṇḍupādāla - mahiśhamayya.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+031  
+sī. atividyanerchuṭa - annavastramulake  
+pasula nārjiñchuṭa - pālakoRake  
+satini beṇḍlāḍuṭa - saṃsāra sukhamuke  
+sutula bośhiñchuṭa - gatulakoRake  
+sainyamul gūrchuṭa - śatrujayamunake  
+sāmu nerchuṭalella - chāvukoRake  
+dānamichchuṭayu muṃ - daṭi sañchitamunake  
+ghanamugā jaduvuṭa - kaḍupu koRake  
+te yitara kāmambu goraka - satatamuganu  
+bhakti nīyandu nilupuṭa - mukti koRake  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+032  
+sī. dharaṇilo veyeṇḍlu - tanuvu nilvagabodu  
+dhana meppaṭiki śāśva - tambu gādu  
+dārasutādulu - tanaveṇṭa rāleru  
+bhrutyulu mṛtini da - ppimpaleru  
+bandhujālamu tannu - bratikiñchukoleru  
+balaparākrama memi - paniki rādu  
+ghanamaina sakala bhā - gyaṃ benta galgina  
+gochimātrambaina - gonuchuboḍu  
+te verri kukkala bhramalanni - viḍichi ninnu  
+bhajana jeseḍivāriki - baramasukhamu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+033  
+sī. narasiṃha  ❘  
+nāku du - rṇayamule meṇḍāye  
+suguṇa mokkaṭiledu - chūḍa janina  
+nanyakāntala mīda - nāśa mānagalenu  
+norula kśhemamu chūchi - yorvalenu  
+iṭuvaṇṭi durbuddhu - linni nā kunnavi  
+nenu jeseḍivanni - nīchakṛtulu  
+nāvaṇṭi pāpiśhṭhi - naruni bhūlokāna  
+buṭṭajesiti vela - bhogiśayana  ❘  
+te abjadaḻanetra ❘  
+nātaṇḍri - vaina phalamu  
+neramulu gāchi rakśhimpu - nīve dikku.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+034  
+sī. dhīrata barula niṃ - dimpa nerchiti gāni  
+tinnagā ninu brastu - timpanaiti  
+borugu kāminulandu - buddhi nilpiti gāni  
+ninnu santatamu dhyā - nimpanaiti  
+berikimuchchaṭa laina - murisi viṇṭinigāni  
+yeñchi nīkatha lāla - kiñchanaiti  
+gautukambuna bāta - kamu gaḍiñchitigāni  
+hechchu puṇyamu saṅgra - himpanaiti  
+te navanilo nenu janmiñchi - nandu kemi  
+sārthakamu gānarādāye - svalpamaina.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+035  
+sī. antyakālamunandu - nāyāsamuna ninnu  
+dalatuno talapano - talatu nipuḍe  
+narasiṃha ❘  
+narasiṃha ❘  
+- narasiṃha ❘  
+lakśhmīśa ❘  
+dānavāntaka ❘  
+koṭi - bhānuteja ❘  
+govinda ❘  
+govinda ❘  
+- govinda ❘  
+sarveśa ❘  
+pannagādhipaśāyi ❘  
+- padmanābha ❘  
+madhuvairi ❘  
+madhuvairi ❘  
+- madhuvairi ❘  
+lokeśa ❘  
+nīlameghaśarīra ❘  
+nigamavinuta ❘  
+te ī vidhambuna nīnāma - miśhṭamuganu  
+bhajanaseyuchu nundu nā - bhāvamandu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+036  
+sī. āyurārogya pu - trārtha sampadalanni  
+kalugajeseḍi bhāra - karta vīve  
+chaduvu lessaga nerpi - sabhalo gariśhṭhādhi  
+kāra mondiñcheḍi - ghanuḍa vīve  
+naḍaka mañchidi peṭṭi - narulu mechcheḍunaṭṭi  
+peru rappiñcheḍi - pedda vīve  
+baluvaina vairāgya - bhaktiGYānamulichchi  
+mukti bondiñcheḍu - mūrti vīve  
+te avanilo mānavula kanni - yāsalichchi  
+vyarthulanu jesi telipeḍi - vāḍa vīve  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+037  
+sī. kāya menta bhayāna - gāpāḍinanugāni  
+dhātrilo nadi chūḍa - dakka bodu  
+eveḻa neroga - memariñchuno? sattva  
+mondaṅga jeyu ne - chandamunanu  
+auśhadhambulu mañchi - vanubhaviñchina gāni  
+karma kśhīṇambaina gāni - viḍadu;  
+koṭivaidyulu gumpu - gūḍivachchina gāni  
+maraṇa mayyeḍu vyādhi - mānpaleru  
+te jīvuni prayāṇakālambu - siddhamaina  
+niluchunā deha mindokka - nimiśhamaina?  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+038  
+sī. jande mimpuga vesi - sandhya vārchina nemi  
+brahma mandaka kāḍu - brāhmaṇuṇḍu  
+tirumaṇi śrīchūrṇa - gururekha liḍinanu  
+viśhṇu nondaka kāḍu - vaiśhṇavuṇḍu  
+būdini nuduṭanu - būsikonina nemi  
+śambhu nondaka kāḍu - śaivajanuḍu  
+kāśhāya vastrālu - gaṭṭi kappina nemi  
+yāśa povaka kāḍu - yativaruṇḍu  
+te enni laukikaveśhālu - gaṭṭukonina  
+guruni jendaka sanmukti - dorakabodu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+039  
+sī. narasiṃha  ❘  
+ne ninnu - namminanduku jāla  
+nenaru nāyanduñchu - nemmanamuna  
+nanni vastuvulu ni - nnaḍigi vesaṭapuṭṭe  
+niṅkanaina gaṭākśha - miyyavayya  
+santasambuna nannu - svargamande yuñchu  
+bhūmiyande yuñchu - bhogaśayana ❘  
+nayamugā vaikuṇṭha - nagaramande yuñchu  
+narakamande yuñchu - naḻinanābha ❘  
+te echaṭa nannuñchinanugāni - yepuḍu ninnu  
+maRachi pokuṇḍa nīnāma - smaraṇanosagu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+040  
+sī. deha munnavaRaku - mohasāgaramandu  
+munuguchunduru śuddha - mūḍhajanulu  
+salalitaiśvaryamul - śāśvataṃ banukoni  
+śhaḍbhramalanu māna - jāla revaru  
+sarvakālamu māya - saṃsāra baddhulai  
+guruni kāruṇyambu gorukonaru  
+GYāna bhakti viraktu - laina peddala jūchi  
+ninda jeyaka - tāmu niluvaleru  
+te mattulainaṭṭi durjāti - manujulella  
+ninnu ganaleru modaṭike - nīrajākśha.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+041  
+sī. ilalona ne janma - mettinappaṭinuṇḍi  
+bahu gaḍiñchitinayya - pātakamulu  
+telisi chesiti gonni - teliyajālaka chesi  
+bādha nonditi nayya - padmanābha  
+anubhaviñcheḍu nappu - dati prayāsambañchu  
+brajalu cheppaga jāla - bhayamu galige  
+negiri povuṭakunai - ye yupāyambaina  
+jesi chūtamaṭanna - jetagādu  
+te sūryaśaśinetra ❘  
+nīchāṭu - jochchi nānu  
+kaluśhamulu druñchi nannelu - kaśhṭamanaka.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+042  
+sī. tāpasārchita ❘  
+nenu - pāpakarmuḍanañchu  
+nāku vaṅkalabeṭṭa - bokuchummi  
+nāṭiki śikśhalu - nannu cheyuṭakaṇṭe  
+neḍu seyumu nīvu - nestamanaka  
+atibhayaṅkarulaina - yamadūtalaku nannu  
+noppagimpaku mayya - yuragaśayana ❘  
+nī dāsulanu baṭṭi - nīvu daṇḍimpaṅga  
+vaddu vaddana renta - peddalaina  
+te daṇḍrivai nīvu parapīḍa - dagulajeya  
+vāsigala peru kapakīrti - vachchunayya.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+043  
+sī. dharaṇilopala nenu - talligarbhamunandu  
+buṭṭinappaṭinuṇḍi - puṇyameRuga  
+nekādaśīvrataṃ - benna ḍuṇḍuga ledu  
+tīrthayātralakaina - dirugaledu  
+pāramārthikamaina - panulu cheyagaledu  
+bhikśha mokkanikaina - beṭṭaledu  
+GYānavantulakaina - būni mrokkagaledu  
+itara dānamulaina - niyyaledu  
+te naḻinadaḻanetra ❘  
+ninnu ne - namminānu  
+jeri rakśhimpave nannu - śīghramuganu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+044  
+sī. aḍavipakśhula kevva - ḍāhāra michchenu  
+mṛgajāti kevvaḍu - metabeṭṭe  
+vanacharādulaku bho - jana mevva ḍippiñche  
+jeṭla kevvaḍu nīllu - chedipose  
+strīlagarbhambuna - śiśuvu nevvaḍu peñche  
+phaṇula kevvaḍu pose - baraga bālu  
+madhupāḻi kevvaḍu - makaranda monariñche  
+basula mevva ḍosaṅge - bachchipūri  
+te jīvakoṭlanu bośhimpa - nīvekāni  
+veRe yoka dāta leḍayya - vedakichūḍa.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+045  
+sī. danujāri ❘  
+nāvaṇṭi - dāsajālamu nīku  
+koṭi saṅkhya galāru - koduva ledu  
+baṇṭlasandaḍivalla - bahuparākai nannu  
+maRachi pokumu bhāgya - mahimacheta  
+daṇḍigā bhrutyulu - dagili nīkuṇḍaṅga  
+bakkabaṃ ṭepāṭi - paniki nagunu?  
+nīvu mechcheḍi panul - nenu jeyagaleka  
+yinta vṛthājanma - mettinānu  
+te bhūjanulalona ne napra - yojakuḍanu  
+ganuka nī satkaṭākśhambu - galugajeyu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+046  
+sī. kamalalochana ❘  
+nannu - gannataṇḍrivigāna  
+ninnu nemaRakuṇṭi - nenu viḍaka  
+yudarapośhaṇakunai - yokari ne nāśimpa  
+nera nā kannambu - nīvu naḍapu  
+peṭṭale naṇṭivā - pinna peddalalona  
+dagavu kippuḍu dīya - dalachinānu  
+dhanamu bhārambaina - dalakirīṭamu nammu  
+kuṇḍalambulu paiḍi - golusu lammu  
+te kosaku nī śaṅkha chakramul - kuduvabeṭṭi  
+grāsamu nosaṅgi pośhiñchu - kapaṭamuḍigi.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+047  
+sī. kuvalayaśyāma ❘  
+nī - koluvu chesina nāku  
+jīta menduku muṭṭa - jeppavaiti  
+mañchimāṭalacheta - goñchemiyyagalevu  
+kalahamau nika jummi - khaṇḍitamuga  
+nīvu sādhuvu gāna - ninta paryantambu  
+chanavuche ninnāḻlu - jarupavalase  
+nika ne sahimpa nī - vipuḍu nannemaina  
+śikśha chesina jeyu - siddhamayiti  
+te neḍu karuṇimpakuṇṭivā - niśchayamuga  
+degabaḍiti chūḍu nītoḍa - jagaḍamunaku.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+048  
+sī. hari ❘  
+nīku baryaṅka - maina śeśhuḍu chāla  
+bavanamu bhakśhiñchi - bratukuchuṇḍu  
+nanuvugā nīku vā - hanamaina khagarāju  
+goppapāmunu noṭa - goRukuchuṇḍu  
+adigāka nī bhārya - yaina lakśhmīdevi  
+dinamu peraṇṭambu - diruguchuṇḍu  
+ninnu bhaktulu pilchi - nityapūjalu chesi  
+prema bakvānnamul - peṭṭuchuṇḍru  
+te svasthamuga nīku grāsamu - jaruguchuṇḍu  
+gāsu nī cheti dokaṭaina - gādu vyayamu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+049  
+sī. puṇḍarīkākśha ❘  
+nā - reṇḍu kannula niṇḍa  
+ninnu jūcheḍi bhāgya - mennaḍayya  
+vāsigā nā mano - vāñCha dīreḍunaṭlu  
+sogasugā nīrūpu - chūpavayya  
+pāpakarmuni kaṇṭa - baḍakapovudamañchu  
+baruśhamaina pratiGYa - baṭṭināve?  
+vasudhalo batita pā - vanuḍa vī vañchu ne  
+buṇyavantulanoṭa - bogaḍa viṇṭi  
+te nemiṭiki vistariñche nī - kinta kīrti  
+drohinainanu nā kīvu - dorakarāde?  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+050  
+sī. pachchi charmapu ditti - pasaledu dehambu  
+lopala nantaṭa - roya rota  
+naramulu śalyamul - navarandhramulu rakta  
+māṃsambu kaṇḍalu - maila titti  
+baluvaina yeṇḍa vā - nala korva dintaina  
+dāḻale dākali - dāhamulaku  
+sakala rogamulaku - saṃsthāname yuṇḍu  
+niluva dasthiramaina - nīṭibugga  
+te bondilo nuṇḍu prāṇamul - poyinanta  
+gāṭike gāni koRagādu - gavvakaina.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+051  
+sī. palurogamulaku nī - pādatīrame kāni  
+valapu mandulu nāku - valadu valadu  
+chelimi seyuchu nīku - seva jeseda gāna  
+nī dāsakoṭilo - nilupavayya  
+grahabhayambunaku ja - kramu dalachedagāni  
+ghorarakśhalu gaṭṭa - goranayya  
+pāmukāṭuku ninnu - bhajana jesedagāni  
+dāni mantramu nenu - talapanayya  
+te dorikitivi nāku daṇḍi vai - dyuḍavu nīvu  
+veyikaśhṭālu vachchinan - veRavanayya.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+052  
+sī. kūṭikosaramu ne - goRagāni janulache  
+balugaddarimpulu - paḍagavalase?  
+dāra suta bhrama - dagiliyuṇḍagagadā  
+deśadeśamulella - dirugavalase?  
+benu daridrata paini - benagiyuṇḍagagadā  
+cheri nīchulaseva - cheyavalase?  
+nabhimānamulu madi - naṇṭiyuṇḍagagadā  
+parula jūchina bhīti - paḍagavalase?  
+te niṭula saṃsāravāridhi - nīdaleka  
+veyividhamula ninnu ne - veḍukoṇṭi.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+053  
+sī. sādhu sajjanulato - jagaḍamāḍina gīḍu  
+kavulato vairambu - gāñcha gīḍu  
+parama dīnula jikka - baṭṭi koṭṭina gīḍu  
+bhikśhagāṇḍranu duḥkha - peṭṭa gīḍu  
+nirupedalanu jūchi - nindajesina gīḍu  
+puṇyavantula diṭṭa - bosagu gīḍu  
+sadbhaktulanu dira - skāramāḍina gīḍu  
+guruni dravyamu dochu - konina gīḍu  
+te duśhṭakāryamu lonariñchu - durjanulaku  
+ghanatarambaina narakambu - gaṭṭimulle  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+054  
+sī. paruladravyamumīda - bhrānti nondinavāḍu  
+parakāntala napekśha - paḍeḍuvāḍu  
+arthula vittambu - lapahariñcheḍuvāḍu  
+dānamiyyaṅga va - ddaneḍivāḍu  
+sabhalalopala nilchi - chāḍicheppeḍivāḍu  
+pakśhapu sākśhyambu - palukuvāḍu  
+viśhṇudāsula jūchi - vekkiriñcheḍivāḍu  
+dharmasādhula diṭṭa - dalachuvāḍu  
+te prajala jantula hiṃsiñchu - pātakuṇḍu  
+kālakiṅkara gadalache - gaśhṭamondu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+055  
+sī. narasiṃha ❘  
+nā taṇḍri - nannelu nannelu  
+kāmitārthamu lichchi - kāvu kāvu  
+daityasaṃhāra ❘  
+chāla - dayayuñchu dayayuñchu  
+dīnapośhaka ❘  
+nīve - dikku dikku  
+ratnabhūśhitavakśha ❘  
+- rakśhiñchu rakśhiñchu  
+bhuvanarakśhaka ❘  
+nannu - brovu brovu  
+mārakoṭisurūpa ❘  
+- manniñchu manniñchu  
+padmalochana ❘  
+cheyi - paṭṭu paṭṭu  
+te suravinuta ❘  
+nenu nīchāṭu - jochchinānu  
+nā moRāliñchi kaḍaterchu - nāgaśayana ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+056  
+sī. nī bhaktulanu ganul - niṇḍa jūchiyu reṇḍu  
+chetula johāru - seyuvāḍu  
+nerputo nevaraina - nī kathal cheppaṅga  
+vinayamanduchu jāla - vineḍuvāḍu  
+tana gṛhambunaku nī - dāsulu rā jūchi  
+pīṭapai gūrchuṇḍa - beṭṭuvāḍu  
+nīsevakula jāti - nītu lennaka chāla  
+dāsoha mani chera - dalachuvāḍu  
+te paramabhaktuṇḍu dhanyuṇḍu - bhānuteja ❘  
+vāni ganugonna buṇyambu - vasudhalona.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+057  
+sī. pakśhivāhana ❘  
+nenu - bratikinannidinālu  
+koṇḍegāṇḍranu gūḍi - kumatinaiti  
+nannavastramu lichchi - yādarimpumu nannu  
+gannataṇḍrivi nīve - kamalanābha ❘  
+maraṇa mayyeḍināḍu - mamatato nīyoddi  
+baṇṭla dolumu mundu - brahmajanaka ❘  
+inajabhaṭāvaḻi - yīḍichikonipoka  
+karuṇato nāyodda - gāva luñchu  
+te kosaku nī sannidhiki bilchu - koniyu nīku  
+sevakuni jesikonavayya - śeśhaśayana ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+058  
+sī. nigamādiśāstramul - nerchina dvijuḍaina  
+yaGYakartagu soma - yājiyaina  
+dharaṇilopala brabhā - ta snānaparuḍaina  
+nityasatkarmādi - niratuḍaina  
+nupavāsa niyamambu - londu sajjanuḍaina  
+gāvivastramugaṭṭu - ghanuḍunaina  
+daṇḍiśhoḍaśamahā - dānaparuṇḍaina  
+sakala yātralu salpu - sarasuḍaina  
+te garvamuna gaśhṭapaḍi ninnu - gānakunna  
+mokśhasāmrājya mondaḍu - mohanāṅga ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+059  
+sī. pañjarambuna gāki - baṭṭi yuñchina lessa  
+palukune vintaina - chilukavalenu?  
+gārdabhambunu dechchi - kaḻlemimpugaveya  
+dirugune gurrambu - tīrugānu?  
+enupapotunu māva - ṭī ḍu śikśhiñchina  
+naḍachune madavāra - ṇambuvalenu?  
+peddapiṭṭanu meta - beṭṭi peñchina grovvi  
+sāgune veṭāḍu - ḍegavalenu?  
+te kujanulanu dechchi nī seva - koRaku beṭṭa  
+vāñChato jeture bhakta - varulavalenu?  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+060  
+sī. nīku dāsuḍa naṇṭi - ninnu nammukayuṇṭi  
+gāna nāpai neḍu - karuṇajūḍu  
+dosiloggiti nīku - droha mennagaboku  
+padmalochana ❘  
+nenu - paruḍagānu  
+bhakti nīpai nuñchi - bhajana jeseda gāni  
+parula veḍanu jummi - varamu limmu  
+daṇḍidātavu nīvu - taḍavuseyaka kāvu  
+ghorapātakarāśi - goṭṭivaichi  
+te śīghramuga gorku līḍerchu - chinta dīrchu  
+niratamuga nannu bośhiñchu - nenaru nuñchu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+061  
+sī. vidya nerchiti nañchu - virravīgagaledu  
+bhāgyavantuḍa nañchu - balukaledu  
+dravyavantuḍa nañchu - daRachu nikkagaledu  
+niratadānamulaina - neRapaledu  
+putravantuḍa nañchu - bogaḍuchuṇḍagaledu  
+bhrutyavantuḍa nañchu - bogaḍaledu  
+śauryavantuḍa nañchu - santasimpagaledu  
+kāryavantuḍa nañchu - gaḍapaledu  
+te naluguriki meppugānaina - naḍuvaledu  
+naḻinadaḻanetra ❘  
+ninnu ne - namminānu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+062  
+sī. atilobhulanu bhikśha - maḍugabovuṭa rota  
+tanadravya mokariṇṭa - dācha rota  
+guṇahīnu ḍaguvāni - koluvu golchuṭa rota  
+yorula pañchalakrinda - nuṇḍa rota  
+bhāgyavantunitoḍa - bantamāḍuṭa rota  
+guRileni bandhula - gūḍa rota  
+ādāyamulu leka - yappudīyuṭa rota  
+jāra chorula gūḍi - chanuṭa rota  
+te yādilakśhmīśa ❘  
+nībaṇṭa - naitinayya ❘  
+yiṅka neḍabāsi janmambu - letta rota.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+063  
+sī. verrivāniki nela - vedākśharambulu?  
+moṭuvāniki mañchi - pāṭa lela?  
+pasulakāpari kela - paratattvabodhalu?  
+viṭakāni keṭiko - viśhṇukathalu?  
+vadaru śuṇṭhala kela - vrāta pustakamulu?  
+tirugu drimmari kela - devapūja?  
+dravyalobhiki nela - dhātṛtva guṇamulu?  
+doṅgabaṇṭuku mañchi - saṅga tela?  
+te krūrajanulaku nīmīda - gori kela?  
+drohi pāpātmunaku dayā - duḥkha mela?  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+064  
+sī. nā taṇḍri nādāta - nāyiśhṭadaivamā  
+nannu mannanaseyu - nārasiṃha ❘  
+dayayuñchu nāmīda - dappulanni kśhamiñchu  
+nigamagochara ❘  
+nāku - nīve dikku  
+ne durātmuḍa nañchu - nīmanambuna gopa  
+gimpabokumu svāmi ❘  
+- kevalamuga  
+muktidāyaka nīku - mrokkinanduku nannu  
+garuṇiñchi rakśhiñchu - kamalanābha ❘  
+te daṇḍidora vañchu nīveṇṭa - dagilinānu  
+neḍu pratyakśhamai nannu - nirvahimpu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+065  
+sī. vemāRu nīkathal - vinuchu nuṇḍeḍivāḍu  
+parula muchchaṭamīda - bhrānti paḍaḍu  
+agaṇitambuga ninnu - bogaḍa nerchinavāḍu  
+cheḍḍamāṭalu noṭa - jeppaboḍu  
+āsakticheta ni - nnanusariñcheḍivāḍu  
+dhanamadāndhulaveṇṭa - dagula boḍu  
+santasambuna ninnu - smaraṇajeseḍivāḍu  
+chelagi nīchulaperu - dalapaboḍu  
+te ninnu nammina bhaktuṇḍu - niśchayamuga  
+gori chillara velpula - golvaboḍu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+066  
+sī. ne nenta veḍina - nī kela dayarādu?  
+palumāRu pilichina - baluka vemi?  
+palikina nī kunna - pada vemibovu? nī  
+momaina boḍachūpa - vemi nāku?  
+śaraṇu jochchinavāni - savarimpavale gāka  
+parihariñchuṭa nīku - birudu gādu  
+nīdāsulanu nīvu - nirvahimpaka yunna  
+baru levva raguduru - paṅkajākśha ❘  
+te dāta daivambu talliyu - daṇḍri vīve  
+nammiyunnānu nīpāda - naḻinamulanu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+067  
+sī. vedamul chadiveḍu - vipravaryuṇḍaina  
+raṇamu sādhiñcheḍu - rājeyaina  
+vartakakṛśhikuḍau - vaiśyamukhyuṇḍaina  
+barichagiñcheḍu śūdra - varyuḍayina  
+mechchukhaḍgamu baṭṭi - meRayu mlechChuṇḍaina  
+brajala kakkaRapaḍu - rajakuḍaina  
+charma mammeḍi hīna - chaṇḍālanaruḍaina  
+nī mahītalamandu - nevvaḍaina  
+te ninnu goniyāḍuchuṇḍenā - niśchayamuga  
+vāḍu mokśhādhikāri yī - vasudhalona.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+068  
+sī. sakalavidyalu nerchi - sabha jayimpagavachchu  
+śūruḍai raṇamandu - boravachchu  
+rājarājai puṭṭi - rājya melagavachchu  
+hema godānambu - liyyavachchu  
+gaganamaṃ dunna chu - kkala neñchagāvachchu  
+jīvarāsula peḻlu - cheppavachchu  
+naśhṭāṅgayogamu - labhyasimpagavachchu  
+meka rītiga nāku - mesavavachchu  
+te tāmarasagarbha hara puraṃ - darulakaina  
+ninnu varṇimpa daramaune - nīrajākśha ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+069  
+sī. narasiṃha ❘  
+nīvaṇṭi - doranu sampādiñchi  
+kumati mānavula ne - golvajāla  
+nekku vaiśvaryambu - liyyalekunnanu  
+boṭṭakumātramu - poyarāde?  
+ghanamugā didi nīku - karavuna bośhimpa  
+gaśhṭa mentaṭi svalpa - kāryamayya?  
+peṭṭajālaka yela - bhikśhamettiñchedu  
+nannu bīdanu jesi - nā vademi?  
+te amala ❘  
+kamalākśha ❘  
+ne niṭlu - śramapaḍaṅga  
+gannulaku baṇḍuvai nīku - gānabaḍune?  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+070  
+sī. vanaruhanābha ❘  
+nī - vaṅka jeriti nenu  
+gaṭṭigā nanu gāvu - kāvu manuchu  
+vachchinanduku vega - varamu liyyakakāni  
+levaboyina ninnu - levaniyya  
+gūrchuṇḍabeṭṭi nī - koṅgu gaṭṭiga baṭṭi  
+puchchukondunu jūḍu - bhogiśayana ❘  
+yīveḻa nī kaḍḍa - mevaru vachchinagāni  
+vārikainanu loṅgi - vaḍakabonu  
+te gopagāḍanu nīvu nā - guṇamu telisi  
+yippuḍe nannu rakśhiñchi - yelukommu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+071  
+sī. prahlādu ḍepāṭi - paiḍi kānuka lichche?  
+madagajaṃ bennichche - mauktikamulu?  
+nāraduṃ ḍennichche - nagalu ratnambu? la  
+halya nī ke yagra - hāra michche?  
+uḍuta nī kepāṭi - yūḍigambulu chese?  
+ghanavibhīśhaṇu ḍemi - kaṭna michche?  
+pañchapāṇḍavu lemi - lañcha michchiri nīku?  
+draupadi nī kenta - dravya michche?  
+te nīku vīranda Rayinaṭlu - nenu gāna?  
+yendu kani nannu rakśhimpa - vinduvadana ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+072  
+sī. vāñChato balichakra - vartidaggara jeri  
+bhikśhamettiti vela - biḍiyapaḍaka?  
+yaḍavilo śabari di - yyani phalā landiyya  
+jetuloggiti vela - siggupaḍaka?  
+veḍkato vevega - viduruniṇṭiki negi  
+vindugoṇṭi vademi - velitipaḍaka?  
+aḍuku lalpamu kuche - luḍu gaḍiñchuka tera  
+bokkasāgiti vela - lekkagonaka?  
+te bhaktulaku nīvu peṭṭuṭa - bhāgyamaunu  
+vāri kāśiñchitivi tiṇḍi - vāḍa vaguchu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+073  
+sī. stambhamaṃ dudayiñchi - dānavendruni druñchi  
+karuṇato brahlādu - gāchināvu  
+makariche jikki sā - majamu duḥkhiñchaṅga  
+gṛpayuñchi vega ra - kśhiñchināvu  
+śaraṇañchu nā vibhī - śhaṇuḍu nī chāṭuna  
+vachchinappuḍe laṅka - nichchināvu  
+ā kucheluḍu chere - ḍaṭuku larpiñchina  
+bahusampadala nichchi - pampināvu  
+te vārivale nannu bośhimpa - vaśamugāde?  
+yanta valapakśha mela śrī - kānta ❘  
+nīku?  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+074  
+sī. vyāsu ḍe kulamandu - vāsigā janmiñche?  
+viduru ḍe kulamandu - vṛddhi bonde?  
+garṇu ḍekulamandu - ghanamugā vardhille?  
+nā vasiśhṭhuṃ ḍendu - navatariñche?  
+nimpugā vālmīki - ye kulambuna buṭṭe?  
+guhu ḍanu puṇyu ḍe - kulamuvāḍu?  
+śrīśuku ḍekkaṭa - jelagi janmiñchenu?  
+śabari yekulamandu - janmamonde?  
+te ne kulambuna vī rinda - Rechchināru?  
+nīkṛpāpātrulaku jāti - nītu lela?  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+075  
+sī. vasudhāsthalambuna - varṇahīnuḍu gāni  
+bahuḻa durāchāra - paruḍu gāni  
+taḍasi kāsiyyani - dharmaśūnyuḍu gāni  
+chaduvanerani mūḍha - januḍu gāni  
+sakalamānavulu me - chchani kṛtaghnuḍu gāni  
+chūḍa sompunu leni - śuṇṭha gāni  
+apratiśhṭhalaku lo - naina dīnuḍu gāni  
+modaṭi ke meRugani - moṭu gāni  
+te pratidinamu nīdu bhajanache - baragunaṭṭi  
+vāni ke vaṅka ledayya - vachchu mukti.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+076  
+sī. ibhakumbhamulamīdi - kegireḍi siṅgambu  
+muṭṭune kuRuchaina - mūśhakamunu?  
+navachūtapatramul - namaluchunna pikambu  
+goRukune jilleḍu - konalu noṭa?  
+aravindamakaranda - manubhaviñcheḍi teṭi  
+povune palleru - pūlakaḍaku?  
+lalita maina rasāla - phalamu goreḍi chilka  
+mesavune bhamata nu - mmettakāya?  
+te nilanu nīkīrtanalu pāḍa - nerchinataḍu  
+parulakīrtana bāḍune - yarasi chūḍa?  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+077  
+sī. sarveśa ❘  
+nīpāda - sarasijadvayamandu  
+jitta mumpagalenu - jedarakuṇḍa  
+nīvaina dayayuñchi - nilichi yuṇḍeḍunaṭlu  
+cheri nannipu ḍelu - sevakuḍanu  
+vanajalochana ❘  
+nenu - vaṭṭi mūrkhuḍa jummi  
+nīsvarūpamu jūḍa - nerpu vega  
+tana kumāruna kuggu - talli vosinayaṭlu  
+bhaktimārgaṃ banu - pālu posi  
+te premato nannu bośhiñchi - peñchukonumu  
+ghanata kekkiñchu nīdāsa - gaṇamulona.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+078  
+sī. jīmūtavarṇa ❘  
+nī - momuto sarirāka  
+kamalāri yatikaḻaṃ - kamunu baḍase  
+sogasaina nī netra - yugamuto sarirāka  
+naḻinabṛndamu nīḻla - naḍuma jere  
+garirājavarada ❘  
+nī - gaḻamuto sarirāka  
+peddaśaṅkhamu bobba - peṭṭa boḍage  
+śrīpati ❘  
+nīdivya - rūputo sari rāka  
+puśhpabāṇuḍu nīku - butru ḍayye  
+te nindirādevi ninnu mo - hiñchi viḍaka  
+nīku baṭṭamahiśhi yayye - niśchayamuga.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+079  
+sī. haridāsulanu ninda - lāḍakuṇḍina jālu  
+sakala granthammulu - chadivinaṭlu  
+bhikśha miyyaṅga da - ppimpakuṇḍina jālu  
+jemuṭṭi dānambu - chesinaṭlu  
+miñchi sajjanula vaṃ - chiñchakuṇḍina jālu  
+nimpugā bahumāna - michchinaṭlu  
+devāgrahāramul - dīyakuṇḍina jālu  
+ganakakambapu guḻlu - gaṭṭinaṭlu  
+te okari varśāśanamu muñcha - kunna jālu  
+berukīrtiga satramul - peṭṭinaṭlu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+080  
+sī. ihalokasaukhyamu - lichchagiñcheda manna  
+deha meppaṭiki dā - sthirata nonda  
+dāyuśhya munna pa - ryantambu paṭutayu  
+nokkatīruna nuṇḍa - durvilona  
+bālyayuvatvadu - rbalavārdhakamu lanu  
+mūṭilo munigeḍi - muRikikompa  
+bhrāntito dīni gā - pāḍuda manumonna  
+gālamṛtyuvucheta - golupovu  
+te nammarā dayya ❘  
+yidi māya - nāṭakambu  
+janma mika nolla na nnelu - jalajanābha ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+081  
+sī. vadanambu nīnāma - bhajana goruchunuṇḍu  
+jihva nīkīrtanal - seya goru  
+hastayugmambu ni - nnarchimpa gorunu  
+garṇamul nī mīdi - kathalu goru  
+tanuvu nīsevaye - ghanamugā gorunu  
+nayanamul nīdarśa - nambu goru  
+mūrdhammu nīpada - mmula mrokkagā goru  
+nātma nīdai yuṇḍu - narasi chūḍa  
+te svapnamuna naina neveḻa - santatamunu  
+buddhi nī pādamulayandu - būniyuṇḍu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+082  
+sī. padmākśha ❘  
+mamatache - baramu nandeda mañchu  
+virravīgudumayya - verripaṭṭi  
+māsvatantrambaina - madamu gaṇḍlaku gappi  
+mogamu paṭṭadu kāma - mohamunanu  
+brahmadevuṇḍaina - baiḍidehamu galga  
+jesiveyaka mammu - jeRiche nataḍu  
+tuchChamainaṭuvaṇṭi - to lemmukalatoḍi  
+muRiki chettalu cherchi - mūṭa kaṭṭe  
+te nī śarīrālu paḍipovu - ṭeRuga kemu  
+kāmukula maiti mika mimmu - gānalemu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+083  
+sī. garuḍavāhana ❘  
+divya - kaustubhālaṅkāra ❘  
+ravikoṭiteja ❘  
+sā - raṅgavadana ❘  
+maṇigaṇānvita ❘  
+hema - makuṭābharaṇa ❘  
+chāru  
+makarakuṇḍala ❘  
+lasa - nmandahāsa ❘  
+kāñchanāmbara ❘  
+ratna - kāñchivibhūśhita ❘  
+suravarārchita ❘  
+chandra - sūryanayana ❘  
+kamalanābha ❘  
+mukunda ❘  
+- gaṅgādharastuta ❘  
+rākśhasāntaka ❘  
+nāga - rājaśayana ❘  
+te patitapāvana ❘  
+lakśhīśa ❘  
+- brahmajanaka ❘  
+bhaktavatsala ❘  
+sarveśa ❘  
+- paramapuruśha ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+084  
+sī. palumāRu daśarūpa - mulu dariñchiti vela?  
+yekarūpamu bonda - vela nīvu?  
+nayamuna kśhīrābdhi - naḍuma jeriti vela?  
+ratnakāñchana mandi - ramulu leve?  
+pannagendrunimīda - bavvaḻiñchiti vela?  
+jalatārupaṭṭemaṃ - chamulu leve?  
+Rekkalu galapakśhi - nekkasāgiti vela?  
+gajaturaṅgāndoḻi - kamulu leve?  
+te vanajalochana ❘  
+yiṭuvaṇṭi - vaibhavamulu  
+sogasugā nīku docheno - sundarāṅga?  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+085  
+sī. tirupati sthalamandu - dinnagā ne nunna  
+veṅkaṭeśuḍu meta - veyaleḍo?  
+puruśhottamamuna ke - boyanajālu ja  
+gannāthu ḍannambu - gaḍapaleḍo?  
+śrīraṅgamunaku ne - jera boyina jālu  
+svāmi grāsamu beṭṭi - sākaleḍo?  
+kāñchīpuramulona - gadisi ne goluvunna  
+garivaraduḍu poṭṭa - gaḍapaleḍo?  
+te yendu bovaka nenu nī - mandiramuna  
+nilichitini nīku nāmīda - nenaru ledu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+086  
+sī. tārkśhyavāhana ❘  
+nīvu - daṇḍidāta vaṭañchu  
+gori veḍuka ninnu - golvavachchi  
+yarthimārgamunu ne - nanusariñchitinayya  
+lāvaina badunālgu - lakśha laina  
+veśhamul vesi nā - vidyāpragalbhata  
+jūpasāgiti nīku - sundarāṅga ❘  
+yānanda maina ne - naḍuga vachchina dichchi  
+vāñCha dīrpumu - nīlavarṇa ❘  
+vega  
+te nīku nāvidya harśhambu - gāka yunna  
+tepatepaku veśhamul - denu summi.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+087  
+sī. amarendravinuta ❘  
+ne - natidurātmuḍa nañchu  
+galalona nainanu - ganula baḍavu  
+nīvu pratyakśhamai - nuluvakuṇḍina māne  
+doḍḍagā noka yukti - dorakenayya ❘  
+gaṭṭikoyyanu dechchi - ghanamugā khaṇḍiñchi  
+nīsvarūpamu chesi - nilupukoñchu  
+dhūpa dīpamu lichchi - tulasito būjiñchi  
+nityanaivedyamul - nemamuganu  
+te naḍupuchunu ninnu golicheda - nammi buddhi  
+nī prapañchambu galugu nā - kinte chālu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+088  
+sī. bhuvaneśa ❘  
+govinda ❘  
+- ravikoṭisaṅkāśa ❘  
+pakśhivāhana ❘  
+bhakta - pārijāta ❘  
+yambhojabhava rudra - jambhārisannuta ❘  
+sāmagānavilola ❘  
+- sārasākśha ❘  
+vanadhigambhīra ❘  
+śrī - vatsakaustubhavakśha ❘  
+śaṅkhachakragadāsi - śārGYahasta ❘  
+dīnarakśhaka ❘  
+vāsu - deva ❘  
+daityavināśa ❘  
+nāradārchita ❘  
+divya - nāgaśayana ❘  
+te chāru navaratnakuṇḍala - śravaṇayugaḻa ❘  
+vibudhavandita pādabja ❘  
+- viśvarūpa ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+089  
+sī. nāgendraśayana ❘  
+nī - nāmamādhuryambu  
+mūḍukannula sāmba - mūrti keRuka  
+paṅkajātākśha ❘  
+nī - balaparākrama mella  
+bhāratīpati yaina - brahma keRuka  
+madhukaiṭabhāri ❘  
+nī - māyāsamarthata  
+vasudhalo balichakra - varti keRuka  
+paramātma ❘  
+nī dagu - pakśhapātitvambu  
+daśaśatākśhula puraṃ - daruni keRuka  
+te vīri keRukagu nīkathal - vinta lella  
+narula keRu kanna nevaraina - navvipore?  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+090  
+sī. arthu lemaina ni - nnaḍugavachcheda rañchu  
+kśhīrasāgaramandu - jerināvu  
+nīchuṭṭu sevakul - niluvakuṇḍuṭakunai  
+bhayadasarpamumīda - baṇḍināvu  
+bhaktabṛndamu veṇṭa - baḍi chariñcheda rañchu  
+negasi poyeḍipakśhi - nekkināvu  
+dāsulu nīdvāra - māsimpakuṇṭaku  
+mañchi yodhula kāva - luñchināvu  
+te lāvu galavāḍa vaiti ve - lāgu nenu  
+ninnu jūtunu nātaṇḍri ❘  
+- nīrajākśha ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+091  
+sī. nīkathal chevulalo - sokuṭa modalugā  
+bulakāṅkuramu mena - buṭṭuvāḍu  
+nayamaina nī divya - nāmakīrtanalona  
+magnuḍai dehambu - maRachuvāḍu  
+phālambuto nīdu - pādayugmamunaku  
+bremato daṇḍa ma - rpiñchuvāḍu  
+hā puṇḍarīkākśha ❘  
+- hā rāma ❘  
+hari ❘  
+yañchu  
+veḍkato gekalu - veyuvāḍu  
+te chittakamalambunanu ninnu - jerchuvāḍu  
+nīdulokambunaṃ duṇḍu - nīrajākśha ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+092  
+sī. nigamagochara ❘  
+nenu - nīku meppagunaṭlu  
+lessagā būjimpa - lenu summi  
+nāku dochina bhūśha - ṇamulu peṭṭeda nanna  
+gaustubhamaṇi nīku - galadu munde  
+bhakśhyabhojyamula na - rpaṇamu jeseda nanna  
+nīvu peṭṭiti sudha - nirjarulaku  
+galimikoddiga gānu - kala nosaṅgeda nanna  
+bhārgavīdevi nī - bhārya yayye  
+te nanni galavāḍa vakhila lo - kādhipativi ❘  
+nīku sommulu peṭṭa ne - nentavāḍa ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+093  
+sī. navasarojadaḻākśha ❘  
+- nannu bośhiñcheḍu  
+dātavu nī vañchu - dhairyapaḍiti  
+nā manambuna ninnu - namminanduku daṇḍri ❘  
+melu nā konarimpu - nīladeha ❘  
+bhaḻibhaḻī ❘  
+nī yanta - prabhuvu nekkaḍa jūḍa  
+buḍamilo nī peru - pogaḍavachchu  
+mundu jesina pāpa - munu naśimpaga jesi  
+nirvahimpumu nannu - nerputoḍa  
+te baramasantośha māye nā - prāṇamulaku  
+nī^^ṛṇamu dīrchukona nera - nīrajākśha ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+094  
+sī. phaṇulapuṭṭalamīda - bavvaḻiñchinayaṭlu  
+pulula gumpuna jera - boyinaṭlu  
+makarivargaṃ bunna - maḍugu jochchinayaṭlu  
+gaṅgadāpuna niṇḍlu - gaṭṭinaṭlu  
+chedalabhūmini jāpa - chera baRachinayaṭlu  
+oṭibindela bāla - nunichinaṭlu  
+verrivāniki bahu - vitta michchinayaṭlu  
+kammaguḍise mandu - gālchinaṭlu  
+te svāmi nī bhaktavarulu du - rjanulatoḍa  
+jelimi jesinaya ṭlaina - jeṭu vachchu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+095  
+sī. danujasaṃhāra ❘  
+chakra - dhara ❘  
+nīku daṇḍambu  
+lindirādhipa ❘  
+nīku - vandanambu  
+patitapāvana ❘  
+nīku - bahunamaskāramul  
+nīrajātadaḻākśha ❘  
+- nīku śaraṇu  
+vāsavārchita ❘  
+megha - varṇa ❘  
+nīku śubhambu  
+mandaradhara ❘  
+nīku - maṅgaḻambu  
+kambukandhara ❘  
+śārjga - kara ❘  
+nīku bhadrambu  
+dīnarakśhaka ❘  
+nīku - digvijayamu  
+te sakalavaibhavamulu nīku - sārvabhauma ❘  
+nityakalyāṇamulu nagu - nīku nepuḍu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+096  
+sī. matsyāvatāra mai - maḍugulopala jochchi  
+somakāsuru druñchi - chodyamuganu  
+dechchi vedamu lella - mechcha devatalella  
+brahma kichchiti vīvu - bhaḻi ❘  
+yanaṅga  
+nā vedamula niyya - nāchāraniśhṭhala  
+nanubhaviñchuchu nundu - ravanisurulu  
+sakalapāpambulu - samasipovu naṭañchu  
+manuju landaRu nīdu - mahima delisi  
+te yundu raravindanayana ❘  
+nī - yuniki deliyu  
+vāralaku vega mokśhambu - vachchu nanagha ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+097  
+sī. kūrmāvatāramai - kudharambukrindanu  
+gorkito nuṇḍavā - komaru migula?  
+varahāvatāramai - vanabhūmulanu jochchi  
+śikśhimpavā hira - ṇyākśhu napuḍu?  
+narasiṃhamūrtivai - narabhojanu hiraṇya  
+kaśipuni drumpavā - kānti mīRa?  
+vāmanarūpamai - vasudhalo balichakra  
+varti naRampavā - vaira muḍigi?  
+te yiṭṭi panu lella jeyagā - nevarikeni  
+tagune narasiṃha ❘  
+nīkidi - dagunu gāka ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+098  
+sī. lakśhmīśa ❘  
+nīdivya - lakśhaṇaguṇamula  
+vinajāla keppuḍu - verrinaiti  
+nā verriguṇamulu - nayamugā khaṇḍiñchi  
+nannu rakśhimpu mo - naḻinanetra ❘  
+ninnu ne nammiti - nitaradaivamula ne  
+nammale deppuḍu - nāgaśayana ❘  
+kāpāḍinanu nīve - kaśhṭapeṭṭina nīve  
+nīpādakamalamul - nirata menu  
+te nammiyunnānu nīpāda - naḻinabhakti  
+vega dayachesi rakśhimpu - vedavidya ❘  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+099  
+sī. amarendravinuta ❘  
+ni - nnanusariñchinavāru  
+mukti bondiri vega - mudamutonu  
+nīpādapadmamul - neRa nammiyunnānu  
+nāku mokśhaṃ bimmu - naḻinanetra ❘  
+kāchi rakśhiñchu nan - gaḍaterchu vegame  
+nī sevakuni jeyu - niśchalamuga  
+gāpāḍinanu nīku - gaiṅkaryaparuḍa nai  
+chelagi nīpanulanu - jeyuvāḍa  
+te nanuchu balumāRu veḍeda - nabjanābha ❘  
+nāku bratyakśha magumu nin - namminānu.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+100  
+sī. śeśhappa yanu kavi - cheppina padyamul  
+chevula kānandamai - chelaguchuṇḍu  
+ne manujuṇḍaina - nelami nī śatakambu  
+bhaktito vinna sa - tphalamu galugu  
+jelagi yī padyamul - cherchi vrāsinavāru  
+kamalākśhukaruṇanu - gāntu repuḍu  
+nimpugā bustakaṃ - bepuḍu būjiñchina  
+duritajālambulu - dolagipovu  
+te niddi puṇyākaraṃ bani - yepuḍu janulu  
+gaśhaṭa mennaka paṭhiyimpa - galugu mukti.  
+bhūśhaṇavikāsa ❘  
+śrīdharma - puranivāsa ❘  
+duśhṭasaṃhāra ❘  
+narasiṃha - duritadūra ❘  
+### PlainEnglish
+
+#### naarasiMha shatakam
+
+001  
+see. shreemanohara ❘  
+suraa - rchita siMdhugaMbheera ❘  
+bhaktavatsala ❘  
+koTi - bhaanuteja ❘  
+kaMjanetra ❘  
+hiraNya - kashyapaaMtaka ❘  
+shoora ❘  
+saadhurakshhaNa ❘  
+shaMkha - chakrahasta ❘  
+prahlaada varada ❘  
+paa - padhvaMsa ❘  
+sarvesha ❘  
+kshheerasaagarashaayi ❘  
+- kRRishhNavarNa ❘  
+pakshhivaahana ❘  
+neela - bhramarakuMtalajaala ❘  
+pallavaaruNapaada - padmayugaLa ❘  
+te. chaarushreechaMdanaagaru - charchitaaMga ❘  
+kuMdakuTmaladaMta ❘  
+vai - kuMThadhaama ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+002  
+see. padmalochana ❘  
+seesa - padyamul nee meeda  
+j.eppaboonitinayya ❘  
+- chittagiMpu  
+gaNa yati praasa la - kshhaNamu jooDagaledu  
+paMchakaavya shloka - paThana ledu  
+amarakaaMDatrayaM - barasi chooDagaledu  
+shaastreeya graMdhamul - chaduvaledu  
+nee kaTaakshhaMbuna - ne rachiMch.eda gaani  
+pragnya naayadi gaadu - prastutiMpa  
+te. dappugaligina sadbhakti - takkuvaun.e  
+ch.eRakunaku vaMkapoyina - ch.eDun.e teepu?  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+003  
+see. narasiMha ❘  
+nee divya - naamamaMtramucheta  
+duritajaalamu lanni - dolavachchu  
+narasiMha ❘  
+nee divya - naamamaMtramucheta  
+baluvaina rogamul - paapavachchu  
+narasiMha ❘  
+nee divya - naamamaMtramucheta  
+ripusaMghamula saMha - riMpavachchu  
+narasiMha ❘  
+nee divya - naamamaMtramucheta  
+daMDahastuni baMTla - daramavachchu  
+te. bhaLira ❘  
+ne nee mahaamaMtra - balamucheta  
+divya vaikuMTha padavi saa - dhiMpavachchu  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+004  
+see. aadinaaraayaNaa ❘  
+- yanuchu naalukatoDa  
+baluka nerchinavaari - paadamulaku  
+saashhTaaMgamuga nama - skaara marpaNa jesi  
+prastutiMch.edanayya - bahuvidhamula  
+dharaNilo narul.eMta - daMDivaarainanu  
+ninnu gaananivaari - ne smariMpa  
+memu shreshhThula maMchu - midukuchuMch.eDivaari  
+ch.eMta jeraganonu - sheshhashayana  
+te. parama saatvikulaina nee - bhaktavarula  
+daasulaku daasuDanu jumee - dhaatrilona  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+005  
+see. aishvaryamulaku ni - nnanusariMpagaledu  
+dravya mimmani v.eMTa - dagulaledu  
+kanaka mimmani chaala - gashhTap.eTTagaledu  
+palla kimmani noTa - balakaledu  
+s.ommu limmani ninnu - nammi k.olvagaledu  
+bhoomu limmani peru - p.ogaDaledu  
+balamu limmani ninnu - bratimaalagaaledu  
+pasula nimmani paTTu - paTTaledu  
+te. nenu gorina d.okkaTe - neelavarNa  
+chayyananu mokshhamichchina - jaalu naaku  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+006  
+see. maMduMDanani nannu - niMda chesinanemi?  
+naa deenatanu joochi - navva nemi?  
+doorabhaavamuleka - toolanaaDina nemi?  
+preetiseyaka vaMka - b.eTTa nemi?  
+kakkasaMbulu palki - v.ekkiriMchina nemi?  
+teevrakopamucheta - diTTa nemi?  
+h.echchumaaTalacheta - n.emm.e laaDina nemi?  
+ceri daapaTa geli - cheyanemi?  
+te. kalpavRRikshhaMbuval.e neevu - galga niMka  
+brajala lakshhyaMbu naakela? - padmanaabha ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+007  
+see. chittashuddhiga neeku - sevajes.edagaani  
+puDamilo janula m.e - ppulaku gaadu  
+janmapaavanatakai - smaraNajes.eda gaani  
+sarivaarilo brati - shhthalaku gaadu  
+muktikosamu nenu - mr.okki veD.edagaani  
+daMDibhaagyamu nimi - ttaMbu gaadu  
+ninnu b.ogaDaga vidya - nerchitinekaani  
+kukshhiniMD.eDu kooTi - k.oRaku gaadu  
+te. paaramaarthikamunaku ne baaTupaDiti  
+geertiki napekshhapaDaledu - kRRishhNavarNa ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+008  
+see. shravaNa raMdhramula nee - satkathal p.ogaDaMga  
+lesha maanaMdaMbu - lenivaaDu  
+puNyavaMtulu ninnu - boojaseyaga joochi  
+bhaavamaMdutsaaha - paDanivaaDu  
+bhaktavaryulu nee pra - bhaavamul p.ogaDaMga  
+datparatvamuleka - talaguvaaDu  
+tanachittamaMdu nee - dhyaana m.ennaDu leka  
+kaalamaMtayu vRRidhaa - gaDapuvaaDu  
+te. vasudhalon.ella vyardhuMDu - vaaD.e yagunu  
+maRiyu j.eDugaaka y.eppuDu - mamatan.oMdi.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+009  
+see. gautameesnaanaana - gaDateRuda maTanna  
+m.onasi channeeLlalo - munugalenu  
+teerthayaatralache gRRi - taarthu DaudamaTanna  
+baDali nemaMbu le - naDapalenu  
+daanadharmamula sa - dgatini j.eMdudamanna  
+ghanamugaa naay.odda - dhanamuledu  
+tapamaachariMchi saa - rdhakamu n.oMdudamanna  
+nimishhamaina manassu - nilupalenu  
+te. kashhTamulakorva naacheta - gaadu ninnu  
+smaraNaches.eda naa yadhaa - shakti k.oladi.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+010  
+see. arthivaaMDraku neeka - haani jeyuTa kaMT.e  
+d.eMputo vasanaabhi - dinuTa melu  
+aaDubiDDalas.ommu - lapahariMchuTa kaMT.e  
+baMDa gaTTuka noota - baDuTa melu  
+parulakaaMtala baTTi - balmi gooDuTa kaMT.e  
+baDabaagni keelala - baDuTa melu  
+bratukajaalaka d.oMga - panulu cheyuTa kaMT.e  
+g.oMguto mushhT.ettu - k.onuTa melu  
+te. jalajadaLanetra nee bhakta - janulatoDi  
+jagaDamaaD.eDu panikaMT.e - jaavu melu  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+011  
+see. gaardabhaMbuna kela - kastoori tilakaMbu?  
+markaTaMbuna kela - malayajaMbu?  
+shaardhoolamunaka kela - sharkaraapoopaMbu?  
+sookaraMbuna kela - chootaphalamu?  
+maarjaalamuna kela - mall.epuvvulabaMti?  
+guDlagoobala kela - kuMDalamulu?  
+mahishhaani kela ni - rmalamaina vastramul?  
+bakasaMtatiki nela - paMjaraMbu?  
+te. drohachiMtana jes.eDi - durjanulaku  
+madhuramainaTTi neenaama - maMtramela?  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+012  
+see. pasaraMbu vaMjaina - basulakaapari tappu  
+prajalu durjanulaina - prabhuni tappu  
+bhaarya gayyaaLaina - braaNanaadhuni tappu  
+tanayuDu dushhTayina - taMDri tappu  
+sainyaMbu ch.edirina - sainyanaadhuni tappu  
+kooturu ch.eDugaina - maata tappu  
+ashvaMbu ch.eDugaina - naarohakuni tappu  
+daMti dushhTayina maa - vaMtu tappu  
+te. iTTi tappul.eRuMgaka - yichchavachchi  
+naTula m.elagudu rippu Dee - yavani janulu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+013  
+see. kotiki jalataaru - kuLlaayi yeTiki?  
+virajaaji poodaMDa - vidhava kela?  
+mukkiDit.ottuku - mutt.eMpu nattela?  
+nadda memiTiki jaa - tyaMdhunakunu?  
+maachakammaku nela - mauktikahaaramul?  
+kroorachittunaku sa - dgoshhThu lela?  
+RaMkubotuku nela - biMkaMpu nishhThalu?  
+vaavi yeTiki dushhTa - vartanunaku?  
+te. maaTa nilukaDa kuMkari - moTu kela?  
+ch.eviTivaaniki satkatha - shravaNa mela?  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+014  
+see. maanyaMbuleeya sa - mardhuD.okkaDu leDu  
+maanyamul ch.eRupa sa - mardhu laMta  
+y.eMDina yooLlago - D.eRigiMpa D.evvaDu  
+baMDina yooLlamu - brabhuvu laMta  
+yitaDu peda yaTaMchu - n.eRigiMpa D.evvaMDu  
+kalavaari siru l.enna - galaru chaala  
+danayaali cheshhTala - tapp.enna D.evvaDu  
+b.eRakaaMta RaMk.enna - b.edda laMta  
+te. yiTTi dushhTula kadhikaara - michchinaTTi  
+prabhuvu tappu laTaMchunu - balukaval.enu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+015  
+see. talligarbhamunuMDi - dhanamu te D.evvaDu  
+v.eLlipoy.eDinaaDu - v.eMTaraadu  
+lakshhaadhikaaraina - lavaNa mannam.e kaani  
+m.eRugu baMgaaraMbu - mriMgaboDu  
+vitta maarjanajesi - virraveeguT.e kaani  
+kooDab.eTTina s.ommu - toDaraadu  
+p.oMdugaa maRugaina - bhoomilopala b.eTTi  
+daanadharmamu leka - daachi daachi  
+te. tudaku d.oMgala kitturo - d.orala kavun.o  
+ten.e juMTeega liyyavaa - t.eruvarulaku?  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+016  
+see. lokamaM d.evaDaina - lobhimaanavu Dunna  
+bhikshha marthimi jeta - b.eTTaleDu  
+taanu b.eTTakayunna - tagavu puTTadugaani  
+y.orulu p.eTTaga joochi - yorvaleDu  
+daatadaggaRa jeri - tana mull.e ch.eDinaTlu  
+jihvato jaaDeelu - ch.eppuchuMDu  
+phalamu vighnaMbaina - balu saMtasamunaMdu  
+melu kalgina jaala - miNukuchuMDu  
+te. shreeramaanaatha ❘  
+yiTuvaMTi - kroorunakunu  
+bhikshhukula shatruvani - peru p.eTTavachchu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+017  
+see. tanuvulo braaNamul = taraLip.oyy.eDiveLa  
+nee svaroopamunu dhyaa - niMchunataDu  
+nimishhamaatramulona - ninnu jerunu gaani  
+yamuni chetiki jikki - shramalabaDaDu  
+paramasaMtoshhaana - bhajana jes.eDivaari  
+puNya memanavachchu - bhogishayana  
+mokshhamu nee daasa - mukhyula kagu gaani  
+naraka m.ekkaDidayya - naLinanetra  
+te. kamalanaabha nee mahimalu - gaanaleni  
+tuchChulaku muktid.orakuTa - durlabhaMbu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+018  
+see. neelameghashyaama ❘  
+- neev.e taMDrivi maaku  
+kamalavaasini mammu - gannatalli  
+nee bhaktavarulaMta - nijamaina baaMdhavul  
+nee kaTaakshhamu maa ka - nekadhanamu  
+nee keertanalu maaku - loka prapaMchaMbu  
+nee sahaayamu maaku - nityasukhamu  
+nee maMtrame maaku - nishhkaLaMkapu vidya  
+nee pada dhyaanaMbu - nityajapamu  
+te. toyajaataakshha nee paada - tulasidaLamu  
+rogamula kaushhadhamu brahma - rudravinuta.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+019  
+see. bratikinannaaLlu nee - bhajana tappanu gaani  
+maraNakaalamunaMdu - maRatunem.o  
+yaaveLa yamadoota - laagrahaMbuna vachchi  
+praaNamul p.ekaliMchi - paTTunapuDu  
+kapha vaata paityamul - gappagaa bhramacheta  
+gaMpa mudbhavamaMdi - kashhTapaDuchu  
+naa jihvato ninnu - naaraayaNaa yaMchu  
+bilutuno shramacheta - biluvan.o  
+te. naaTi kippuD.e chetu nee - naamabhajana  
+talach.edanu, j.evi niDavayya ❘  
+- dhairyamuganu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+020  
+see. paaMchabhautikamu du - rbalamaina kaayaM bi  
+d.eppuDo viDuchuTa - y.eRukaledu  
+shatavarshhamuladaaka - mitamu j.eppiri gaani  
+nammaraa daamaaTa - n.emmanamuna  
+baalyamaMdo maMchi - praayamaMdo leka  
+mudimiyaMdo leka - musaliyaMd.o  
+yoorano yaDavino - yudakamadhyamunano  
+y.eppuDo viDuchuTa - yekshhaNaMb.o  
+te. maraName nishchayamu buddhi - maMtuDaina  
+dehamunnaMtalo mimmu - d.eliyavalayu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+021  
+see. tallidaMDrulu bhaarya - tanayu laaptulu baava  
+maRadu lannalu mena - maamagaaru  
+ghanamugaa baMdhuvul - galginappaTikaina  
+daanu darlaga v.eMTa - dagili raaru  
+yamuni dootalu praaNa - mapagariMchuka poga  
+mamatato boraaDi - maanpaleru  
+balaga maMdaRu duHkha - paDuTa maatram.e kaani  
+yiMchuka yaayushhya - miyyaleru  
+te. chuTTamulameedi bhramadeesi - choora j.ekki  
+saMtatamu mimmu nammuTa - saarthakaMbu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+022  
+see. ibharaajavarada ❘  
+ni - nn.eMta bilchinagaani  
+maaRu palka vademi - maunitanam.o?  
+munijanaarchita ❘  
+ninnu - mr.okki veDinagaani  
+kanula jooDa vademi - gaDusudanam.o?  
+chaala dainyamun.oMdi - chaaTu ch.ochchinagaani  
+bhaagya miyya vademi - prauDhatanam.o?  
+sthiramugaa neepaada - seva jes.eda nanna  
+d.orakajaala vademi - dhoortatanam.o?  
+te. mokshhadaayaka ❘  
+yiTuvaMTi - moorkhajanuni  
+kashhTap.eTTina neekemi - kaDupuniMDu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+023  
+see. neemeeda keertanal - nityagaanamu jesi  
+ramyam.oMdiMpa naa - raduDagaanu  
+saavadhaanamuga nee - charaNa paMkaja seva  
+salipi m.eppaMpaMga - shabarigaanu  
+baalyamappaTinuMDi - bhakti neeyaMduna  
+galuganu brahlaada - ghanuDagaanu  
+ghanamugaa neemeedi - graMthamul galpiMchi  
+vinutiseyanu vyaasa - muninigaanu  
+te. saadhuDanu moorkhamati manu - shhyaadhamuDanu  
+heenuDanu jummi neevu - na nneluk.onumu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+024  
+see. atishayaMbuga galla - laaDanerchitigaani  
+paaTigaa satyamul - palukanera  
+satkaarya vighnamul - salupa nerchitigaani  
+yishhTa m.oMdaga nirva - hiMpanera  
+n.okari s.ommuku dosi - l.ogga nerchitigaani  
+ch.eluvugaa dharmaMbu - seyanera  
+dhanamu liyyaMga va - ddanaga nerchitigaani  
+sheeghra michch.eDunaTlu - ch.eppanera  
+te. baMkajaataakshha ❘  
+ne nati - paatakuDanu  
+dappulanniyu kshhamiyiMpa - daMDri veev.e ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+025  
+see. urvilo naayushhya - munna paryaMtaMbu  
+maaya saMsaaraMbu - maragi naruDu  
+sakala paapamulaina - saMgrahiMchunu gaani  
+ninnu jer.eDi yukti - nervaleDu  
+tudaku gaaluniy.oddi - doota liddaRu vachchi  
+guMjuka chani vaaru - grudduchuMDa  
+hiMsa korvaga leka - yeDchi gaMtuluvesi  
+dikku ledani naalgu - dishalu chooDa  
+te. dannu viDipiMpa vachch.eDi - dhanyu DeDi  
+muMdu needaasuDai yunna - mukti galugu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+026  
+see. adhika vidyaavaMtu - laprayojakulairi  
+poorNashuMThalu sabhaa - poojyulairi  
+satyavaMtulamaaTa - jana virodhaMbaay.e  
+vadarubotulamaaTa - vaasik.ekk.e  
+dharmavaadanaparul - daaridryam.oMdiri  
+paramalobhulu dhana - praaptulairi  
+puNyavaMtulu roga - bhoota peeDitulairi  
+dushhTamaanavulu va - rdhishhNulairi  
+te. pakshhivaahana ❘  
+maavaMTi - bhikshhukulaku  
+shaktiledaay.e nika neev.e - chaaTu maaku.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+027  
+see. bhujabalaMbuna b.edda - pulula jaMpagavachchu  
+paamukaMThamu jeta - baTTavachchu  
+brahma raakshhasakoTla - baaRadrolagavachchu  
+manujula rogamul - maanpavachchu  
+jihva kishhTamugaani - chedu mriMgagavachchu  
+badanu khaDgamu cheta - nadamavachchu  
+gashhTam.oMduchu muMDla - kaMpalo j.oravachchu  
+diTTubotula noLlu - kaTTavachchu  
+te. buDamilo dushhTulaku gnyaana - bodha t.elipi  
+sajjanula jeyale D.eMta - chaturudaina.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+028  
+see. avanilogala yaatra - lanni cheyagavachchu  
+mukhyuDai nadulaMdu - munugavachchu  
+mukkupaTTuka saMdhya - m.onasi vaarvagavachchu  
+dinnagaa japamaala - drippavachchu  
+vedaala karthaMbu - viRichi ch.eppagavachchu  
+shreshhTh kratuvu l.ella - jeyavachchu  
+dhanamu lakshhalu koTlu - daanamiyyagavachchu  
+naishhThikaachaaramul - naDupavachchu  
+te. jitta manyasthalaMbuna - jerakuMDa  
+nee padaaMbhojamulayaMdu - nilaparaadu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+029  
+see. karNayugmamuna nee - kathalu sokinajaalu  
+p.edda pogula joLlu - p.eTTinaTlu  
+chetu l.ettuchu booja - seyagalginajaalu  
+toraMpu kaDiyaalu - d.oDiginaTlu  
+m.onasi mastakamuto - mr.okka galginajaalu  
+ch.eluvamaina turaayi - ch.ekkinaTlu  
+gaLamu n.ovvaga ninnu - baluka galginajaalu  
+viMtagaa gaMTheelu - vesinaTlu  
+te. pooni ninu g.olchuTe sarva - bhooshhaNaMbu  
+litara bhooshhaNamula nichcha - giMpanela.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+030  
+see. bhuvanarakshhaka ❘  
+ninnu - b.ogaDanerani noru  
+vraja kagocharamaina - paaDub.oMda  
+suravaraarchita ❘  
+ninnu - jooDagorani kanul  
+jalamulopala n.elli - sarapuguMDlu  
+shreeramaadhima ❘  
+neeku - sevajeyani menu  
+kooli kammuDuvoni - k.olimititti  
+veDkato neekathal - vinani karNamulaina  
+gaThinashilaadula - galugu t.olalu  
+te. padmalochana neemeeda - bhaktileni  
+maanavuDu r.eMDupaadaala - mahishhamayya.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+031  
+see. atividyanerchuTa - annavastramulake  
+pasula naarjiMchuTa - paalak.oRak.e  
+satini b.eMDlaaDuTa - saMsaara sukhamuke  
+sutula boshhiMchuTa - gatulak.oRak.e  
+sainyamul goorchuTa - shatrujayamunake  
+saamu nerchuTal.ella - chaavuk.oRak.e  
+daanamichchuTayu muM - daTi saMchitamunake  
+ghanamugaa jaduvuTa - kaDupu k.oRak.e  
+te. yitara kaamaMbu goraka - satatamuganu  
+bhakti neeyaMdu nilupuTa - mukti k.oRak.e  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+032  
+see. dharaNilo veyeMDlu - tanuvu nilvagabodu  
+dhana m.eppaTiki shaashva - taMbu gaadu  
+daarasutaadulu - tanav.eMTa raaleru  
+bhrutyulu mRRitini da - ppiMpaleru  
+baMdhujaalamu tannu - bratikiMchukoleru  
+balaparaakrama memi - paniki raadu  
+ghanamaina sakala bhaa - gyaM b.eMta galgina  
+gochimaatraMbaina - g.onuchuboDu  
+te. v.erri kukkala bhramalanni - viDichi ninnu  
+bhajana jes.eDivaariki - baramasukhamu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+033  
+see. narasiMha  ❘  
+naaku du - rNayamule m.eMDaay.e  
+suguNa m.okkaTiledu - chooDa janina  
+nanyakaaMtala meeda - naasha maanagalenu  
+n.orula kshhemamu choochi - yorvalenu  
+iTuvaMTi durbuddhu - linni naa kunnavi  
+nenu jes.eDivanni - neechakRRitulu  
+naavaMTi paapishhThi - naruni bhoolokaana  
+buTTajesiti vela - bhogishayana  ❘  
+te. abjadaLanetra ❘  
+naataMDri - vaina phalamu  
+neramulu gaachi rakshhiMpu - neev.e dikku.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+034  
+see. dheerata barula niM - diMpa nerchiti gaani  
+tinnagaa ninu brastu - tiMpanaiti  
+b.orugu kaaminulaMdu - buddhi nilpiti gaani  
+ninnu saMtatamu dhyaa - niMpanaiti  
+b.erikimuchchaTa laina - murisi viMTinigaani  
+y.eMchi neekatha laala - kiMchanaiti  
+gautukaMbuna baata - kamu gaDiMchitigaani  
+h.echchu puNyamu saMgra - hiMpanaiti  
+te. navanilo nenu janmiMchi - naMdu kemi  
+saarthakamu gaanaraadaay.e - svalpamaina.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+035  
+see. aMtyakaalamunaMdu - naayaasamuna ninnu  
+dalatuno talapano - talatu nipuD.e  
+narasiMha ❘  
+narasiMha ❘  
+- narasiMha ❘  
+lakshhmeesha ❘  
+daanavaaMtaka ❘  
+koTi - bhaanuteja ❘  
+goviMda ❘  
+goviMda ❘  
+- goviMda ❘  
+sarvesha ❘  
+pannagaadhipashaayi ❘  
+- padmanaabha ❘  
+madhuvairi ❘  
+madhuvairi ❘  
+- madhuvairi ❘  
+lokesha ❘  
+neelameghashareera ❘  
+nigamavinuta ❘  
+te. ee vidhaMbuna neenaama - mishhTamuganu  
+bhajanaseyuchu nuMdu naa - bhaavamaMdu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+036  
+see. aayuraarogya pu - traartha saMpadalanni  
+kalugajes.eDi bhaara - karta veev.e  
+chaduvu l.essaga nerpi - sabhalo garishhThaadhi  
+kaara m.oMdiMch.eDi - ghanuDa veev.e  
+naDaka maMchidi p.eTTi - narulu m.echcheDunaTTi  
+peru rappiMch.eDi - p.edda veev.e  
+baluvaina vairaagya - bhaktignyaanamulichchi  
+mukti b.oMdiMch.eDu - moorti veev.e  
+te. avanilo maanavula kanni - yaasalichchi  
+vyarthulanu jesi t.elip.eDi - vaaDa veev.e.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+037  
+see. kaaya m.eMta bhayaana - gaapaaDinanugaani  
+dhaatrilo nadi chooDa - dakka bodu  
+eveLa neroga - memariMchun.o? sattva  
+m.oMdaMga jeyu ne - chaMdamunanu  
+aushhadhaMbulu maMchi - vanubhaviMchina gaani  
+karma kshheeNaMbaina gaani - viDadu;  
+koTivaidyulu guMpu - gooDivachchina gaani  
+maraNa mayy.eDu vyaadhi - maanpaleru  
+te. jeevuni prayaaNakaalaMbu - siddhamaina  
+niluchunaa deha miMd.okka - nimishhamaina?  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+038  
+see. jaMd.e miMpuga vesi - saMdhya vaarchina nemi  
+brahma maMdaka kaaDu - braahmaNuMDu  
+tirumaNi shreechoorNa - gururekha liDinanu  
+vishhNu n.oMdaka kaaDu - vaishhNavuMDu  
+boodini nuduTanu - boosik.onina nemi  
+shaMbhu n.oMdaka kaaDu - shaivajanuDu  
+kaashhaaya vastraalu - gaTTi kappina nemi  
+yaasha povaka kaaDu - yativaruMDu  
+te. .enni laukikaveshhaalu - gaTTuk.onina  
+guruni j.eMdaka sanmukti - d.orakabodu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+039  
+see. narasiMha  ❘  
+ne ninnu - namminaMduku jaala  
+n.enaru naayaMduMchu - n.emmanamuna  
+nanni vastuvulu ni - nnaDigi vesaTapuTT.e  
+niMkanaina gaTaakshha - miyyavayya  
+saMtasaMbuna nannu - svargamaMde yuMchu  
+bhoomiyaMde yuMchu - bhogashayana ❘  
+nayamugaa vaikuMTha - nagaramaMde yuMchu  
+narakamaMde yuMchu - naLinanaabha ❘  
+te. .echaTa nannuMchinanugaani - y.epuDu ninnu  
+maRachi pokuMDa neenaama - smaraNan.osagu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+040  
+see. deha munnavaRaku - mohasaagaramaMdu  
+munuguchuMduru shuddha - mooDhajanulu  
+salalitaishvaryamul - shaashvataM banuk.oni  
+shhaDbhramalanu maana - jaala r.evaru  
+sarvakaalamu maaya - saMsaara baddhulai  
+guruni kaaruNyaMbu goruk.onaru  
+gnyaana bhakti viraktu - laina p.eddala joochi  
+niMda jeyaka - taamu niluvaleru  
+te. mattulainaTTi durjaati - manujul.ella  
+ninnu ganaleru m.odaTike - neerajaakshha.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+041  
+see. ilalona ne janma - m.ettinappaTinuMDi  
+bahu gaDiMchitinayya - paatakamulu  
+t.elisi chesiti g.onni - t.eliyajaalaka chesi  
+baadha n.oMditi nayya - padmanaabha  
+anubhaviMch.eDu nappu - dati prayaasaMbaMchu  
+brajalu ch.eppaga jaala - bhayamu galig.e  
+n.egiri povuTakunai - ye yupaayaMbaina  
+jesi chootamaTanna - jetagaadu  
+te. sooryashashinetra ❘  
+neechaaTu - j.ochchi naanu  
+kalushhamulu druMchi nannelu - kashhTamanaka.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+042  
+see. taapasaarchita ❘  
+nenu - paapakarmuDanaMchu  
+naaku vaMkalab.eTTa - bokuchummi  
+naaTiki shikshhalu - nannu cheyuTakaMT.e  
+neDu seyumu neevu - nestamanaka  
+atibhayaMkarulaina - yamadootalaku nannu  
+n.oppagiMpaku mayya - yuragashayana ❘  
+nee daasulanu baTTi - neevu daMDiMpaMga  
+vaddu vaddana r.eMta - p.eddalaina  
+te. daMDrivai neevu parapeeDa - dagulajeya  
+vaasigala peru kapakeerti - vachchunayya.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+043  
+see. dharaNilopala nenu - talligarbhamunaMdu  
+buTTinappaTinuMDi - puNyam.eRuga  
+nekaadasheevrataM - b.enna DuMDuga ledu  
+teerthayaatralakaina - dirugaledu  
+paaramaarthikamaina - panulu cheyagaledu  
+bhikshha m.okkanikaina - b.eTTaledu  
+gnyaanavaMtulakaina - booni mr.okkagaledu  
+itara daanamulaina - niyyaledu  
+te. naLinadaLanetra ❘  
+ninnu ne - namminaanu  
+jeri rakshhiMpave nannu - sheeghramuganu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+044  
+see. aDavipakshhula k.evva - Daahaara michch.enu  
+mRRigajaati k.evvaDu - metab.eTT.e  
+vanacharaadulaku bho - jana m.evva DippiMch.e  
+j.eTla k.evvaDu neellu - chedipos.e  
+streelagarbhaMbuna - shishuvu n.evvaDu p.eMch.e  
+phaNula k.evvaDu pos.e - baraga baalu  
+madhupaaLi k.evvaDu - makaraMda m.onariMch.e  
+basula m.evva D.osaMg.e - bachchipoori  
+te. jeevakoTlanu boshhiMpa - neev.ekaani  
+veR.e y.oka daata leDayya - v.edakichooDa.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+045  
+see. danujaari ❘  
+naavaMTi - daasajaalamu neeku  
+koTi saMkhya galaaru - k.oduva ledu  
+baMTlasaMdaDivalla - bahuparaakai nannu  
+maRachi pokumu bhaagya - mahimacheta  
+daMDigaa bhrutyulu - dagili neekuMDaMga  
+bakkabaM TepaaTi - paniki nagunu?  
+neevu m.echch.eDi panul - nenu jeyagaleka  
+yiMta vRRithaajanma - m.ettinaanu  
+te. bhoojanulalona ne napra - yojakuDanu  
+ganuka nee satkaTaakshhaMbu - galugajeyu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+046  
+see. kamalalochana ❘  
+nannu - gannataMDrivigaana  
+ninnu nemaRakuMTi - nenu viDaka  
+yudaraposhhaNakunai - y.okari ne naashiMpa  
+nera naa kannaMbu - neevu naDapu  
+p.eTTale naMTivaa - pinna p.eddalalona  
+dagavu kippuDu deeya - dalachinaanu  
+dhanamu bhaaraMbaina - dalakireeTamu nammu  
+kuMDalaMbulu paiDi - g.olusu lammu  
+te. k.osaku nee shaMkha chakramul - kuduvab.eTTi  
+graasamu n.osaMgi poshhiMchu - kapaTamuDigi.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+047  
+see. kuvalayashyaama ❘  
+nee - k.oluvu chesina naaku  
+jeeta m.eMduku muTTa - j.eppavaiti  
+maMchimaaTalacheta - g.oMch.emiyyagalevu  
+kalahamau nika jummi - khaMDitamuga  
+neevu saadhuvu gaana - niMta paryaMtaMbu  
+chanavuche ninnaaLlu - jarupavalas.e  
+nika ne sahiMpa nee - vipuDu nannemaina  
+shikshha chesina jeyu - siddhamayiti  
+te. neDu karuNiMpakuMTivaa - nishchayamuga  
+d.egabaDiti chooDu neetoDa - jagaDamunaku.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+048  
+see. hari ❘  
+neeku baryaMka - maina sheshhuDu chaala  
+bavanamu bhakshhiMchi - bratukuchuMDu  
+nanuvugaa neeku vaa - hanamaina khagaraaju  
+g.oppapaamunu noTa - g.oRukuchuMDu  
+adigaaka nee bhaarya - yaina lakshhmeedevi  
+dinamu peraMTaMbu - diruguchuMDu  
+ninnu bhaktulu pilchi - nityapoojalu chesi  
+prema bakvaannamul - p.eTTuchuMDru  
+te. svasthamuga neeku graasamu - jaruguchuMDu  
+gaasu nee cheti d.okaTaina - gaadu vyayamu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+049  
+see. puMDareekaakshha ❘  
+naa - r.eMDu kannula niMDa  
+ninnu jooch.eDi bhaagya - m.ennaDayya  
+vaasigaa naa mano - vaaMCha deer.eDunaTlu  
+s.ogasugaa neeroopu - choopavayya  
+paapakarmuni kaMTa - baDakapovudamaMchu  
+barushhamaina pratignya - baTTinaav.e?  
+vasudhalo batita paa - vanuDa vee vaMchu ne  
+buNyavaMtulanoTa - b.ogaDa viMTi  
+te. nemiTiki vistariMch.e nee - kiMta keerti  
+drohinainanu naa keevu - d.orakaraad.e?  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+050  
+see. pachchi charmapu ditti - pasaledu dehaMbu  
+lopala naMtaTa - roya rota  
+naramulu shalyamul - navaraMdhramulu rakta  
+maaMsaMbu kaMDalu - maila titti  
+baluvaina y.eMDa vaa - nala korva diMtaina  
+daaLale daakali - daahamulaku  
+sakala rogamulaku - saMsthaanam.e yuMDu  
+niluva dasthiramaina - neeTibugga  
+te. b.oMdilo nuMDu praaNamul - poyinaMta  
+gaaTike gaani k.oRagaadu - gavvakaina.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+051  
+see. palurogamulaku nee - paadateeram.e kaani  
+valapu maMdulu naaku - valadu valadu  
+ch.elimi seyuchu neeku - seva jes.eda gaana  
+nee daasakoTilo - nilupavayya  
+grahabhayaMbunaku ja - kramu dalach.edagaani  
+ghorarakshhalu gaTTa - goranayya  
+paamukaaTuku ninnu - bhajana jes.edagaani  
+daani maMtramu nenu - talapanayya  
+te. d.orikitivi naaku daMDi vai - dyuDavu neevu  
+veyikashhTaalu vachchinan - v.eRavanayya.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+052  
+see. kooTikosaramu ne - g.oRagaani janulache  
+balugaddariMpulu - paDagavalas.e?  
+daara suta bhrama - dagiliyuMDagagadaa  
+deshadeshamul.ella - dirugavalas.e?  
+b.enu daridrata paini - b.enagiyuMDagagadaa  
+cheri neechulaseva - cheyavalas.e?  
+nabhimaanamulu madi - naMTiyuMDagagadaa  
+parula joochina bheeti - paDagavalas.e?  
+te. niTula saMsaaravaaridhi - needaleka  
+veyividhamula ninnu ne - veDuk.oMTi.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+053  
+see. saadhu sajjanulato - jagaDamaaDina geeDu  
+kavulato vairaMbu - gaaMcha geeDu  
+parama deenula jikka - baTTi k.oTTina geeDu  
+bhikshhagaaMDranu duHkha - p.eTTa geeDu  
+nirupedalanu joochi - niMdajesina geeDu  
+puNyavaMtula diTTa - b.osagu geeDu  
+sadbhaktulanu dira - skaaramaaDina geeDu  
+guruni dravyamu dochu - k.onina geeDu  
+te. dushhTakaaryamu l.onariMchu - durjanulaku  
+ghanataraMbaina narakaMbu - gaTTimull.e.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+054  
+see. paruladravyamumeeda - bhraaMti n.oMdinavaaDu  
+parakaaMtala napekshha - paD.eDuvaaDu  
+arthula vittaMbu - lapahariMch.eDuvaaDu  
+daanamiyyaMga va - ddan.eDivaaDu  
+sabhalalopala nilchi - chaaDich.epp.eDivaaDu  
+pakshhapu saakshhyaMbu - palukuvaaDu  
+vishhNudaasula joochi - v.ekkiriMch.eDivaaDu  
+dharmasaadhula diTTa - dalachuvaaDu  
+te. prajala jaMtula hiMsiMchu - paatakuMDu  
+kaalakiMkara gadalache - gashhTam.oMdu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+055  
+see. narasiMha ❘  
+naa taMDri - nannelu nannelu  
+kaamitaarthamu lichchi - kaavu kaavu  
+daityasaMhaara ❘  
+chaala - dayayuMchu dayayuMchu  
+deenaposhhaka ❘  
+neev.e - dikku dikku  
+ratnabhooshhitavakshha ❘  
+- rakshhiMchu rakshhiMchu  
+bhuvanarakshhaka ❘  
+nannu - brovu brovu  
+maarakoTisuroopa ❘  
+- manniMchu manniMchu  
+padmalochana ❘  
+cheyi - paTTu paTTu  
+te. suravinuta ❘  
+nenu neechaaTu - j.ochchinaanu  
+naa m.oRaaliMchi kaDaterchu - naagashayana ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+056  
+see. nee bhaktulanu ganul - niMDa joochiyu r.eMDu  
+chetula johaaru - seyuvaaDu  
+nerputo n.evaraina - nee kathal ch.eppaMga  
+vinayamaMduchu jaala - vin.eDuvaaDu  
+tana gRRihaMbunaku nee - daasulu raa joochi  
+peeTapai goorchuMDa - b.eTTuvaaDu  
+neesevakula jaati - neetu l.ennaka chaala  
+daasoha mani chera - dalachuvaaDu  
+te. paramabhaktuMDu dhanyuMDu - bhaanuteja ❘  
+vaani ganug.onna buNyaMbu - vasudhalona.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+057  
+see. pakshhivaahana ❘  
+nenu - bratikinannidinaalu  
+k.oMD.egaaMDranu gooDi - kumatinaiti  
+nannavastramu lichchi - yaadariMpumu nannu  
+gannataMDrivi neev.e - kamalanaabha ❘  
+maraNa mayy.eDinaaDu - mamatato neey.oddi  
+baMTla dolumu muMdu - brahmajanaka ❘  
+inajabhaTaavaLi - yeeDichik.onipoka  
+karuNato naay.odda - gaava luMchu  
+te. k.osaku nee sannidhiki bilchu - k.oniyu neeku  
+sevakuni jesik.onavayya - sheshhashayana ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+058  
+see. nigamaadishaastramul - nerchina dvijuDaina  
+yagnyakartagu soma - yaajiyaina  
+dharaNilopala brabhaa - ta snaanaparuDaina  
+nityasatkarmaadi - niratuDaina  
+nupavaasa niyamaMbu - l.oMdu sajjanuDaina  
+gaavivastramugaTTu - ghanuDunaina  
+daMDishhoDashamahaa - daanaparuMDaina  
+sakala yaatralu salpu - sarasuDaina  
+te. garvamuna gashhTapaDi ninnu - gaanakunna  
+mokshhasaamraajya m.oMdaDu - mohanaaMga ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+059  
+see. paMjaraMbuna gaaki - baTTi yuMchina l.essa  
+palukune viMtaina - chilukaval.enu?  
+gaardabhaMbunu d.echchi - kaLl.emiMpugaveya  
+dirugune gurraMbu - teerugaanu?  
+.enupapotunu maava - Tee Du shikshhiMchina  
+naDachune madavaara - NaMbuval.enu?  
+p.eddapiTTanu meta - b.eTTi p.eMchina gr.ovvi  
+saagune veTaaDu - Degaval.enu?  
+te. kujanulanu d.echchi nee seva - k.oRaku b.eTTa  
+vaaMChato jeture bhakta - varulaval.enu?  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+060  
+see. neeku daasuDa naMTi - ninnu nammukayuMTi  
+gaana naapai neDu - karuNajooDu  
+dosil.oggiti neeku - droha m.ennagaboku  
+padmalochana ❘  
+nenu - paruDagaanu  
+bhakti neepai nuMchi - bhajana jes.eda gaani  
+parula veDanu jummi - varamu limmu  
+daMDidaatavu neevu - taDavuseyaka kaavu  
+ghorapaatakaraashi - g.oTTivaichi  
+te. sheeghramuga gorku leeDerchu - chiMta deerchu  
+niratamuga nannu boshhiMchu - n.enaru nuMchu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+061  
+see. vidya nerchiti naMchu - virraveegagaledu  
+bhaagyavaMtuDa naMchu - balukaledu  
+dravyavaMtuDa naMchu - daRachu nikkagaledu  
+niratadaanamulaina - n.eRapaledu  
+putravaMtuDa naMchu - b.ogaDuchuMDagaledu  
+bhrutyavaMtuDa naMchu - b.ogaDaledu  
+shauryavaMtuDa naMchu - saMtasiMpagaledu  
+kaaryavaMtuDa naMchu - gaDapaledu  
+te. naluguriki m.eppugaanaina - naDuvaledu  
+naLinadaLanetra ❘  
+ninnu ne - namminaanu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+062  
+see. atilobhulanu bhikshha - maDugabovuTa rota  
+tanadravya m.okariMTa - daacha rota  
+guNaheenu Daguvaani - k.oluvu g.olchuTa rota  
+y.orula paMchalakriMda - nuMDa rota  
+bhaagyavaMtunitoDa - baMtamaaDuTa rota  
+guRileni baMdhula - gooDa rota  
+aadaayamulu leka - yappudeeyuTa rota  
+jaara chorula gooDi - chanuTa rota  
+te. yaadilakshhmeesha ❘  
+neebaMTa - naitinayya ❘  
+yiMka n.eDabaasi janmaMbu - l.etta rota.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+063  
+see. v.errivaaniki nela - vedaakshharaMbulu?  
+moTuvaaniki maMchi - paaTa lela?  
+pasulakaapari kela - paratattvabodhalu?  
+viTakaani keTiko - vishhNukathalu?  
+vadaru shuMThala kela - vraata pustakamulu?  
+tirugu drimmari kela - devapooja?  
+dravyalobhiki nela - dhaatRRitva guNamulu?  
+d.oMgabaMTuku maMchi - saMga tela?  
+te. kroorajanulaku neemeeda - gori kela?  
+drohi paapaatmunaku dayaa - duHkha mela?  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+064  
+see. naa taMDri naadaata - naayishhTadaivamaa  
+nannu mannanaseyu - naarasiMha ❘  
+dayayuMchu naameeda - dappulanni kshhamiMchu  
+nigamagochara ❘  
+naaku - neev.e dikku  
+ne duraatmuDa naMchu - neemanaMbuna gopa  
+giMpabokumu svaami ❘  
+- kevalamuga  
+muktidaayaka neeku - mr.okkinaMduku nannu  
+garuNiMchi rakshhiMchu - kamalanaabha ❘  
+te. daMDid.ora vaMchu neev.eMTa - dagilinaanu  
+neDu pratyakshhamai nannu - nirvahiMpu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+065  
+see. vemaaRu neekathal - vinuchu nuMD.eDivaaDu  
+parula muchchaTameeda - bhraaMti paDaDu  
+agaNitaMbuga ninnu - b.ogaDa nerchinavaaDu  
+ch.eDDamaaTalu noTa - j.eppaboDu  
+aasakticheta ni - nnanusariMch.eDivaaDu  
+dhanamadaaMdhulav.eMTa - dagula boDu  
+saMtasaMbuna ninnu - smaraNajes.eDivaaDu  
+ch.elagi neechulaperu - dalapaboDu  
+te. ninnu nammina bhaktuMDu - nishchayamuga  
+gori chillara velpula - g.olvaboDu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+066  
+see. ne n.eMta veDina - nee kela dayaraadu?  
+palumaaRu pilichina - baluka vemi?  
+palikina nee kunna - pada vemibovu? nee  
+momaina b.oDachoopa - vemi naaku?  
+sharaNu j.ochchinavaani - savariMpaval.e gaaka  
+parihariMchuTa neeku - birudu gaadu  
+needaasulanu neevu - nirvahiMpaka yunna  
+baru l.evva raguduru - paMkajaakshha ❘  
+te. daata daivaMbu talliyu - daMDri veev.e  
+nammiyunnaanu neepaada - naLinamulanu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+067  
+see. vedamul chadiv.eDu - vipravaryuMDaina  
+raNamu saadhiMch.eDu - raaj.eyaina  
+vartakakRRishhikuDau - vaishyamukhyuMDaina  
+barichagiMch.eDu shoodra - varyuDayina  
+m.echchukhaDgamu baTTi - m.eRayu mlechChuMDaina  
+brajala kakkaRapaDu - rajakuDaina  
+charma mamm.eDi heena - chaMDaalanaruDaina  
+nee maheetalamaMdu - n.evvaDaina  
+te. ninnu g.oniyaaDuchuMD.enaa - nishchayamuga  
+vaaDu mokshhaadhikaari yee - vasudhalona.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+068  
+see. sakalavidyalu nerchi - sabha jayiMpagavachchu  
+shooruDai raNamaMdu - boravachchu  
+raajaraajai puTTi - raajya melagavachchu  
+hema godaanaMbu - liyyavachchu  
+gaganamaM dunna chu - kkala n.eMchagaavachchu  
+jeevaraasula peLlu - ch.eppavachchu  
+nashhTaaMgayogamu - labhyasiMpagavachchu  
+meka reetiga naaku - m.esavavachchu  
+te. taamarasagarbha hara puraM - darulakaina  
+ninnu varNiMpa daramaun.e - neerajaakshha ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+069  
+see. narasiMha ❘  
+neevaMTi - d.oranu saMpaadiMchi  
+kumati maanavula ne - g.olvajaala  
+n.ekku vaishvaryaMbu - liyyalekunnanu  
+b.oTTakumaatramu - poyaraad.e?  
+ghanamugaa didi neeku - karavuna boshhiMpa  
+gashhTa m.eMtaTi svalpa - kaaryamayya?  
+p.eTTajaalaka yela - bhikshham.ettiMch.edu  
+nannu beedanu jesi - naa vademi?  
+te. amala ❘  
+kamalaakshha ❘  
+ne niTlu - shramapaDaMga  
+gannulaku baMDuvai neeku - gaanabaDun.e?  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+070  
+see. vanaruhanaabha ❘  
+nee - vaMka jeriti nenu  
+gaTTigaa nanu gaavu - kaavu manuchu  
+vachchinaMduku vega - varamu liyyakakaani  
+levaboyina ninnu - levaniyya  
+goorchuMDab.eTTi nee - k.oMgu gaTTiga baTTi  
+puchchuk.oMdunu jooDu - bhogishayana ❘  
+yeeveLa nee kaDDa - m.evaru vachchinagaani  
+vaarikainanu l.oMgi - vaDakabonu  
+te. gopagaaDanu neevu naa - guNamu t.elisi  
+yippuDe nannu rakshhiMchi - yeluk.ommu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+071  
+see. prahlaadu DepaaTi - paiDi kaanuka lichch.e?  
+madagajaM b.ennichch.e - mauktikamulu?  
+naaraduM D.ennichch.e - nagalu ratnaMbu? la  
+halya nee ke yagra - haara michch.e?  
+uDuta nee kepaaTi - yooDigaMbulu ches.e?  
+ghanavibheeshhaNu Demi - kaTna michch.e?  
+paMchapaaMDavu lemi - laMcha michchiri neeku?  
+draupadi nee k.eMta - dravya michch.e?  
+te. neeku veeraMda RayinaTlu - nenu gaana?  
+y.eMdu kani nannu rakshhiMpa - viMduvadana ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+072  
+see. vaaMChato balichakra - vartidaggara jeri  
+bhikshham.ettiti vela - biDiyapaDaka?  
+yaDavilo shabari di - yyani phalaa laMdiyya  
+jetul.oggiti vela - siggupaDaka?  
+veDkato vevega - viduruniMTiki negi  
+viMdug.oMTi vademi - v.elitipaDaka?  
+aDuku lalpamu kuche - luDu gaDiMchuka tera  
+b.okkasaagiti vela - l.ekkag.onaka?  
+te. bhaktulaku neevu p.eTTuTa - bhaagyamaunu  
+vaari kaashiMchitivi tiMDi - vaaDa vaguchu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+073  
+see. staMbhamaM dudayiMchi - daanaveMdruni druMchi  
+karuNato brahlaadu - gaachinaavu  
+makariche jikki saa - majamu duHkhiMchaMga  
+gRRipayuMchi vega ra - kshhiMchinaavu  
+sharaNaMchu naa vibhee - shhaNuDu nee chaaTuna  
+vachchinappuD.e laMka - nichchinaavu  
+aa kucheluDu cher.e - DaTuku larpiMchina  
+bahusaMpadala nichchi - paMpinaavu  
+te. vaarival.e nannu boshhiMpa - vashamugaad.e?  
+yaMta valapakshha mela shree - kaaMta ❘  
+neeku?  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+074  
+see. vyaasu De kulamaMdu - vaasigaa janmiMch.e?  
+viduru De kulamaMdu - vRRiddhi b.oMd.e?  
+garNu DekulamaMdu - ghanamugaa vardhill.e?  
+naa vasishhThuM D.eMdu - navatariMch.e?  
+niMpugaa vaalmeeki - ye kulaMbuna buTT.e?  
+guhu Danu puNyu De - kulamuvaaDu?  
+shreeshuku D.ekkaTa - j.elagi janmiMch.enu?  
+shabari yekulamaMdu - janmam.oMd.e?  
+te. ne kulaMbuna vee riMda - R.echchinaaru?  
+neekRRipaapaatrulaku jaati - neetu lela?  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+075  
+see. vasudhaasthalaMbuna - varNaheenuDu gaani  
+bahuLa duraachaara - paruDu gaani  
+taDasi kaasiyyani - dharmashoonyuDu gaani  
+chaduvanerani mooDha - januDu gaani  
+sakalamaanavulu m.e - chchani kRRitaghnuDu gaani  
+chooDa s.oMpunu leni - shuMTha gaani  
+apratishhThalaku lo - naina deenuDu gaani  
+m.odaTi ke m.eRugani - moTu gaani  
+te. pratidinamu needu bhajanache - baragunaTTi  
+vaani ke vaMka ledayya - vachchu mukti.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+076  
+see. ibhakuMbhamulameedi - k.egir.eDi siMgaMbu  
+muTTune kuRuchaina - mooshhakamunu?  
+navachootapatramul - namaluchunna pikaMbu  
+g.oRukune jilleDu - k.onalu noTa?  
+araviMdamakaraMda - manubhaviMch.eDi teTi  
+povune palleru - poolakaDaku?  
+lalita maina rasaala - phalamu gor.eDi chilka  
+m.esavune bhamata nu - mm.ettakaaya?  
+te. nilanu neekeertanalu paaDa - nerchinataDu  
+parulakeertana baaDune - yarasi chooDa?  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+077  
+see. sarvesha ❘  
+neepaada - sarasijadvayamaMdu  
+jitta muMpagalenu - j.edarakuMDa  
+neevaina dayayuMchi - nilichi yuMD.eDunaTlu  
+cheri nannipu Delu - sevakuDanu  
+vanajalochana ❘  
+nenu - vaTTi moorkhuDa jummi  
+neesvaroopamu jooDa - nerpu vega  
+tana kumaaruna kuggu - talli vosinayaTlu  
+bhaktimaargaM banu - paalu posi  
+te. premato nannu boshhiMchi - p.eMchuk.onumu  
+ghanata k.ekkiMchu needaasa - gaNamulona.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+078  
+see. jeemootavarNa ❘  
+nee - momuto sariraaka  
+kamalaari yatikaLaM - kamunu baDas.e  
+s.ogasaina nee netra - yugamuto sariraaka  
+naLinabRRiMdamu neeLla - naDuma jer.e  
+gariraajavarada ❘  
+nee - gaLamuto sariraaka  
+p.eddashaMkhamu b.obba - p.eTTa b.oDag.e  
+shreepati ❘  
+needivya - rooputo sari raaka  
+pushhpabaaNuDu neeku - butru Dayy.e  
+te. niMdiraadevi ninnu mo - hiMchi viDaka  
+neeku baTTamahishhi yayy.e - nishchayamuga.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+079  
+see. haridaasulanu niMda - laaDakuMDina jaalu  
+sakala graMthammulu - chadivinaTlu  
+bhikshha miyyaMga da - ppiMpakuMDina jaalu  
+jemuTTi daanaMbu - chesinaTlu  
+miMchi sajjanula vaM - chiMchakuMDina jaalu  
+niMpugaa bahumaana - michchinaTlu  
+devaagrahaaramul - deeyakuMDina jaalu  
+ganakakaMbapu guLlu - gaTTinaTlu  
+te. .okari varshaashanamu muMcha - kunna jaalu  
+berukeertiga satramul - p.eTTinaTlu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+080  
+see. ihalokasaukhyamu - lichchagiMch.eda manna  
+deha m.eppaTiki daa - sthirata n.oMda  
+daayushhya munna pa - ryaMtaMbu paTutayu  
+n.okkateeruna nuMDa - durvilona  
+baalyayuvatvadu - rbalavaardhakamu lanu  
+mooTilo munig.eDi - muRikik.oMpa  
+bhraaMtito deeni gaa - paaDuda manum.onna  
+gaalamRRityuvucheta - golupovu  
+te. nammaraa dayya ❘  
+yidi maaya - naaTakaMbu  
+janma mika n.olla na nnelu - jalajanaabha ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+081  
+see. vadanaMbu neenaama - bhajana goruchunuMDu  
+jihva neekeertanal - seya goru  
+hastayugmaMbu ni - nnarchiMpa gorunu  
+garNamul nee meedi - kathalu goru  
+tanuvu neesevaye - ghanamugaa gorunu  
+nayanamul needarsha - naMbu goru  
+moordhammu neepada - mmula mr.okkagaa goru  
+naatma needai yuMDu - narasi chooDa  
+te. svapnamuna naina neveLa - saMtatamunu  
+buddhi nee paadamulayaMdu - booniyuMDu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+082  
+see. padmaakshha ❘  
+mamatache - baramu naMd.eda maMchu  
+virraveegudumayya - v.erripaTTi  
+maasvataMtraMbaina - madamu gaMDlaku gappi  
+m.ogamu paTTadu kaama - mohamunanu  
+brahmadevuMDaina - baiDidehamu galga  
+jesiveyaka mammu - j.eRich.e nataDu  
+tuchChamainaTuvaMTi - to l.emmukalatoDi  
+muRiki ch.ettalu cherchi - mooTa kaTT.e  
+te. nee shareeraalu paDipovu - T.eRuga kemu  
+kaamukula maiti mika mimmu - gaanalemu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+083  
+see. garuDavaahana ❘  
+divya - kaustubhaalaMkaara ❘  
+ravikoTiteja ❘  
+saa - raMgavadana ❘  
+maNigaNaanvita ❘  
+hema - makuTaabharaNa ❘  
+chaaru  
+makarakuMDala ❘  
+lasa - nmaMdahaasa ❘  
+kaaMchanaaMbara ❘  
+ratna - kaaMchivibhooshhita ❘  
+suravaraarchita ❘  
+chaMdra - sooryanayana ❘  
+kamalanaabha ❘  
+mukuMda ❘  
+- gaMgaadharastuta ❘  
+raakshhasaaMtaka ❘  
+naaga - raajashayana ❘  
+te. patitapaavana ❘  
+lakshheesha ❘  
+- brahmajanaka ❘  
+bhaktavatsala ❘  
+sarvesha ❘  
+- paramapurushha ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+084  
+see. palumaaRu dasharoopa - mulu dariMchiti vela?  
+yekaroopamu b.oMda - vela neevu?  
+nayamuna kshheeraabdhi - naDuma jeriti vela?  
+ratnakaaMchana maMdi - ramulu lev.e?  
+pannageMdrunimeeda - bavvaLiMchiti vela?  
+jalataarupaTT.emaM - chamulu lev.e?  
+R.ekkalu galapakshhi - n.ekkasaagiti vela?  
+gajaturaMgaaMdoLi - kamulu lev.e?  
+te. vanajalochana ❘  
+yiTuvaMTi - vaibhavamulu  
+s.ogasugaa neeku doch.eno - suMdaraaMga?  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+085  
+see. tirupati sthalamaMdu - dinnagaa ne nunna  
+veMkaTeshuDu meta - veyaleD.o?  
+purushhottamamuna ke - boyanajaalu ja  
+gannaathu DannaMbu - gaDapaleD.o?  
+shreeraMgamunaku ne - jera boyina jaalu  
+svaami graasamu b.eTTi - saakaleD.o?  
+kaaMcheepuramulona - gadisi ne g.oluvunna  
+garivaraduDu p.oTTa - gaDapaleD.o?  
+te. y.eMdu bovaka nenu nee - maMdiramuna  
+nilichitini neeku naameeda - n.enaru ledu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+086  
+see. taarkshhyavaahana ❘  
+neevu - daMDidaata vaTaMchu  
+gori veDuka ninnu - g.olvavachchi  
+yarthimaargamunu ne - nanusariMchitinayya  
+laavaina badunaalgu - lakshha laina  
+veshhamul vesi naa - vidyaapragalbhata  
+joopasaagiti neeku - suMdaraaMga ❘  
+yaanaMda maina ne - naDuga vachchina dichchi  
+vaaMCha deerpumu - neelavarNa ❘  
+vega  
+te. neeku naavidya harshhaMbu - gaaka yunna  
+tepatepaku veshhamul - denu summi.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+087  
+see. amareMdravinuta ❘  
+ne - natiduraatmuDa naMchu  
+galalona nainanu - ganula baDavu  
+neevu pratyakshhamai - nuluvakuMDina maan.e  
+d.oDDagaa n.oka yukti - d.orak.enayya ❘  
+gaTTik.oyyanu d.echchi - ghanamugaa khaMDiMchi  
+neesvaroopamu chesi - nilupuk.oMchu  
+dhoopa deepamu lichchi - tulasito boojiMchi  
+nityanaivedyamul - nemamuganu  
+te. naDupuchunu ninnu g.olich.eda - nammi buddhi  
+nee prapaMchaMbu galugu naa - kiMt.e chaalu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+088  
+see. bhuvanesha ❘  
+goviMda ❘  
+- ravikoTisaMkaasha ❘  
+pakshhivaahana ❘  
+bhakta - paarijaata ❘  
+yaMbhojabhava rudra - jaMbhaarisannuta ❘  
+saamagaanavilola ❘  
+- saarasaakshha ❘  
+vanadhigaMbheera ❘  
+shree - vatsakaustubhavakshha ❘  
+shaMkhachakragadaasi - shaargnyahasta ❘  
+deenarakshhaka ❘  
+vaasu - deva ❘  
+daityavinaasha ❘  
+naaradaarchita ❘  
+divya - naagashayana ❘  
+te. chaaru navaratnakuMDala - shravaNayugaLa ❘  
+vibudhavaMdita paadabja ❘  
+- vishvaroopa ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+089  
+see. naageMdrashayana ❘  
+nee - naamamaadhuryaMbu  
+mooDukannula saaMba - moorti k.eRuka  
+paMkajaataakshha ❘  
+nee - balaparaakrama m.ella  
+bhaarateepati yaina - brahma k.eRuka  
+madhukaiTabhaari ❘  
+nee - maayaasamarthata  
+vasudhalo balichakra - varti k.eRuka  
+paramaatma ❘  
+nee dagu - pakshhapaatitvaMbu  
+dashashataakshhula puraM - daruni k.eRuka  
+te. veeri k.eRukagu neekathal - viMta l.ella  
+narula k.eRu kanna n.evaraina - navvipor.e?  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+090  
+see. arthu lemaina ni - nnaDugavachch.eda raMchu  
+kshheerasaagaramaMdu - jerinaavu  
+neechuTTu sevakul - niluvakuMDuTakunai  
+bhayadasarpamumeeda - baMDinaavu  
+bhaktabRRiMdamu v.eMTa - baDi chariMch.eda raMchu  
+n.egasi poy.eDipakshhi - n.ekkinaavu  
+daasulu needvaara - maasiMpakuMTaku  
+maMchi yodhula kaava - luMchinaavu  
+te. laavu galavaaDa vaiti ve - laagu nenu  
+ninnu jootunu naataMDri ❘  
+- neerajaakshha ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+091  
+see. neekathal ch.evulalo - sokuTa m.odalugaa  
+bulakaaMkuramu m.ena - buTTuvaaDu  
+nayamaina nee divya - naamakeertanalona  
+magnuDai dehaMbu - maRachuvaaDu  
+phaalaMbuto needu - paadayugmamunaku  
+bremato daMDa ma - rpiMchuvaaDu  
+haa puMDareekaakshha ❘  
+- haa raama ❘  
+hari ❘  
+yaMchu  
+veDkato gekalu - veyuvaaDu  
+te. chittakamalaMbunanu ninnu - jerchuvaaDu  
+needulokaMbunaM duMDu - neerajaakshha ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+092  
+see. nigamagochara ❘  
+nenu - neeku m.eppagunaTlu  
+l.essagaa boojiMpa - lenu summi  
+naaku dochina bhooshha - Namulu p.eTT.eda nanna  
+gaustubhamaNi neeku - galadu muMd.e  
+bhakshhyabhojyamula na - rpaNamu jes.eda nanna  
+neevu p.eTTiti sudha - nirjarulaku  
+galimik.oddiga gaanu - kala n.osaMg.eda nanna  
+bhaargaveedevi nee - bhaarya yayy.e  
+te. nanni galavaaDa vakhila lo - kaadhipativi ❘  
+neeku s.ommulu p.eTTa ne - n.eMtavaaDa ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+093  
+see. navasarojadaLaakshha ❘  
+- nannu boshhiMch.eDu  
+daatavu nee vaMchu - dhairyapaDiti  
+naa manaMbuna ninnu - namminaMduku daMDri ❘  
+melu naa k.onariMpu - neeladeha ❘  
+bhaLibhaLee ❘  
+nee yaMta - prabhuvu n.ekkaDa jooDa  
+buDamilo nee peru - p.ogaDavachchu  
+muMdu jesina paapa - munu nashiMpaga jesi  
+nirvahiMpumu nannu - nerputoDa  
+te. baramasaMtoshha maay.e naa - praaNamulaku  
+nee^^RRiNamu deerchuk.ona nera - neerajaakshha ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+094  
+see. phaNulapuTTalameeda - bavvaLiMchinayaTlu  
+pulula guMpuna jera - boyinaTlu  
+makarivargaM bunna - maDugu j.ochchinayaTlu  
+gaMgadaapuna niMDlu - gaTTinaTlu  
+ch.edalabhoomini jaapa - chera baRachinayaTlu  
+oTibiMd.ela baala - nunichinaTlu  
+v.errivaaniki bahu - vitta michchinayaTlu  
+kammaguDis.e maMdu - gaalchinaTlu  
+te. svaami nee bhaktavarulu du - rjanulatoDa  
+j.elimi jesinaya Tlaina - jeTu vachchu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+095  
+see. danujasaMhaara ❘  
+chakra - dhara ❘  
+neeku daMDaMbu  
+liMdiraadhipa ❘  
+neeku - vaMdanaMbu  
+patitapaavana ❘  
+neeku - bahunamaskaaramul  
+neerajaatadaLaakshha ❘  
+- neeku sharaNu  
+vaasavaarchita ❘  
+megha - varNa ❘  
+neeku shubhaMbu  
+maMdaradhara ❘  
+neeku - maMgaLaMbu  
+kaMbukaMdhara ❘  
+shaarjga - kara ❘  
+neeku bhadraMbu  
+deenarakshhaka ❘  
+neeku - digvijayamu  
+te. sakalavaibhavamulu neeku - saarvabhauma ❘  
+nityakalyaaNamulu nagu - neeku n.epuDu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+096  
+see. matsyaavataara mai - maDugulopala j.ochchi  
+somakaasuru druMchi - chodyamuganu  
+d.echchi vedamu l.ella - m.echcha devatal.ella  
+brahma kichchiti veevu - bhaLi ❘  
+yanaMga  
+naa vedamula niyya - naachaaranishhThala  
+nanubhaviMchuchu nuMdu - ravanisurulu  
+sakalapaapaMbulu - samasipovu naTaMchu  
+manuju laMdaRu needu - mahima d.elisi  
+te. yuMdu raraviMdanayana ❘  
+nee - yuniki d.eliyu  
+vaaralaku vega mokshhaMbu - vachchu nanagha ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+097  
+see. koormaavataaramai - kudharaMbukriMdanu  
+gorkito nuMDavaa - k.omaru migula?  
+varahaavataaramai - vanabhoomulanu j.ochchi  
+shikshhiMpavaa hira - Nyaakshhu napuDu?  
+narasiMhamoortivai - narabhojanu hiraNya  
+kashipuni druMpavaa - kaaMti meeRa?  
+vaamanaroopamai - vasudhalo balichakra  
+varti naRaMpavaa - vaira muDigi?  
+te. yiTTi panu l.ella jeyagaa - n.evarikeni  
+tagun.e narasiMha ❘  
+neekidi - dagunu gaaka ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+098  
+see. lakshhmeesha ❘  
+needivya - lakshhaNaguNamula  
+vinajaala k.eppuDu - v.errinaiti  
+naa v.erriguNamulu - nayamugaa khaMDiMchi  
+nannu rakshhiMpu mo - naLinanetra ❘  
+ninnu ne nammiti - nitaradaivamula ne  
+nammale d.eppuDu - naagashayana ❘  
+kaapaaDinanu neev.e - kashhTap.eTTina neev.e  
+neepaadakamalamul - nirata menu  
+te. nammiyunnaanu neepaada - naLinabhakti  
+vega dayachesi rakshhiMpu - vedavidya ❘  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+099  
+see. amareMdravinuta ❘  
+ni - nnanusariMchinavaaru  
+mukti b.oMdiri vega - mudamutonu  
+neepaadapadmamul - n.eRa nammiyunnaanu  
+naaku mokshhaM bimmu - naLinanetra ❘  
+kaachi rakshhiMchu nan - gaDaterchu vegame  
+nee sevakuni jeyu - nishchalamuga  
+gaapaaDinanu neeku - gaiMkaryaparuDa nai  
+ch.elagi neepanulanu - jeyuvaaDa  
+te. nanuchu balumaaRu veD.eda - nabjanaabha ❘  
+naaku bratyakshha magumu nin - namminaanu.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  
+100  
+see. sheshhappa yanu kavi - ch.eppina padyamul  
+ch.evula kaanaMdamai - ch.elaguchuMDu  
+ne manujuMDaina - n.elami nee shatakaMbu  
+bhaktito vinna sa - tphalamu galugu  
+j.elagi yee padyamul - cherchi vraasinavaaru  
+kamalaakshhukaruNanu - gaaMtu r.epuDu  
+niMpugaa bustakaM - b.epuDu boojiMchina  
+duritajaalaMbulu - d.olagipovu  
+te. niddi puNyaakaraM bani - y.epuDu janulu  
+gashhaTa m.ennaka paThiyiMpa - galugu mukti.  
+bhooshhaNavikaasa ❘  
+shreedharma - puranivaasa ❘  
+dushhTasaMhaara ❘  
+narasiMha - duritadoora ❘  

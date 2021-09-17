@@ -289,3 +289,47 @@ naMgamu shreeveMkaTaadhipu DitaDu ‖
 సంగతి మావంటిశరణాగతులకు  
 నంగము శ్రీవేంకటాధిపు డితడు ‖  
 
+### English
+
+#### annamayya kīrtana cheri yaśodaku
+
+ceri yaśodaku śiśu vitaḍu  
+dhāruṇi brahmaku taṇḍriyu nitaḍu ‖
+
+solasi cūcinanu sūryacandrulanu  
+lali vedacalleḍulakśhaṇuḍu ❘  
+nilicinaniluvuna nikhiladevatala  
+kaligiñcu suralaganivo yitaḍu ‖
+
+māṭalāḍinanu mariyajāṇḍamulu  
+koṭulu voḍameṭiguṇarāśi ❘  
+nīṭagunūrpula nikhilavedamulu  
+cāṭuvanū reṭisamudra mitaḍu ‖
+
+muṅgiṭa jolasina mohana mātmala  
+boṅgiñceghanapuruśhuḍu ❘  
+saṅgati māvaṇṭiśaraṇāgatulaku  
+naṅgamu śrīveṅkaṭādhipu ḍitaḍu ‖
+
+### PlainEnglish
+
+#### annamayya keertana cheri yashodaku
+
+ceri yashodaku shishu vitaDu  
+dhaaruNi brahmaku taMDriyu nitaDu ‖
+
+s.olasi coocinanu sooryacaMdrulanu  
+lali v.edacall.eDulakshhaNuDu ❘  
+nilicinaniluvuna nikhiladevatala  
+kaligiMcu suralaganivo yitaDu ‖
+
+maaTalaaDinanu mariyajaaMDamulu  
+koTulu voDameTiguNaraashi ❘  
+neeTagunoorpula nikhilavedamulu  
+caaTuvanoo reTisamudra mitaDu ‖
+
+muMgiTa j.olasina mohana maatmala  
+b.oMgiMceghanapurushhuDu ❘  
+saMgati maavaMTisharaNaagatulaku  
+naMgamu shreeveMkaTaadhipu DitaDu ‖
+

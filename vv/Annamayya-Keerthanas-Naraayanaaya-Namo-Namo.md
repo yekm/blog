@@ -289,3 +289,47 @@ yiravuga neegati n.evvaru dalacina yihapara maMtramu liMdariki ‖
 నరకధ్వంసే నమో నమో నరసింహాయ నమో నమో  
 యిరవుగ నీగతి నెవ్వరు దలచిన యిహపర మంత్రము లిందరికి ‖  
 
+### English
+
+#### annamayya kīrtana nārāyaṇāaya namo namo
+
+nārāyaṇāya namo namo nānātmane namo namo   
+yīracanalane yevvaru dalacina yihapara mantramu lindariki ‖
+
+govindāya namo namo gopālāya namo namo   
+bhāvajagurave namo namo praṇavātmane namo namo ❘  
+deveśāya namo namo divyaguṇāya namo yanucu   
+yīvarusalane yevvaru dalacina yihapara mantramu lindariki ‖
+
+dāmodarāya namo namo dharaṇīśāya namo namo   
+śrīmahiḻāpataye namo śiśhṭarakśhiṇe namo namo ❘  
+vāmanāya te namo namo vanajākśhāya namo namo   
+yīmeralane yevvaru dalacina yihapara mantramu lindariki ‖
+
+paripūrṇāya namo namo praṇavāgrāya namo namo   
+cirantana śrī veṅkaṭanāyaka śeśhaśāyine namo namo ❘  
+narakadhvaṃse namo namo narasiṃhāya namo namo   
+yiravuga nīgati nevvaru dalacina yihapara mantramu lindariki ‖
+
+### PlainEnglish
+
+#### annamayya keertana naaraayaNaaaya namo namo
+
+naaraayaNaaya namo namo naanaatmane namo namo   
+yeeracanalane y.evvaru dalacina yihapara maMtramu liMdariki ‖
+
+goviMdaaya namo namo gopaalaaya namo namo   
+bhaavajagurave namo namo praNavaatmane namo namo ❘  
+deveshaaya namo namo divyaguNaaya namo yanucu   
+yeevarusalane y.evvaru dalacina yihapara maMtramu liMdariki ‖
+
+daamodaraaya namo namo dharaNeeshaaya namo namo   
+shreemahiLaapataye namo shishhTarakshhiNe namo namo ❘  
+vaamanaaya te namo namo vanajaakshhaaya namo namo   
+yeemeralane y.evvaru dalacina yihapara maMtramu liMdariki ‖
+
+paripoorNaaya namo namo praNavaagraaya namo namo   
+ciraMtana shree veMkaTanaayaka sheshhashaayine namo namo ❘  
+narakadhvaMse namo namo narasiMhaaya namo namo   
+yiravuga neegati n.evvaru dalacina yihapara maMtramu liMdariki ‖
+

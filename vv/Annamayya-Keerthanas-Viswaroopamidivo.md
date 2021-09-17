@@ -289,3 +289,47 @@ kooTuvainanneliti y.ekkuvanonaataapamu ‖
 వాటపు సొమ్ములు ముద్ర వక్షపుటలమేల్మంగ  
 కూటువైనన్నేలితి యెక్కువనోనాతాపము ‖  
 
+### English
+
+#### annamayya kīrtana viśvarūpamidivo
+
+viśvarūpamidivo viśhṇurūpamidivo  
+śāśvatulamaitimiṅka jayamu nājanmamu ‖
+
+koṇḍavaṇṭi harirūpu gurutaina tirumala  
+paṇḍina vṛkśhamule kalpataruvulu ❘  
+niṇḍina mṛgādulella nityamuktajanamulu  
+meṇḍuga pratyakśhamāye meluvonājanmamu ‖
+
+meḍavaṇṭi harirūpu miñcainapaiḍi gopura  
+māḍane vālina pakśhula marulu ❘  
+vāḍala koneṭi cuṭla vaikuṇṭha nagaramu  
+yīḍamāku poḍacūpe ihamepoparamu ‖
+
+koṭimadanulavaṇṭi guḍilo cakkani mūrti  
+yīṭuleni śrī veṅkaṭeśuḍitaḍu ❘  
+vāṭapu sommulu mudra vakśhapuṭalamelmaṅga  
+kūṭuvainanneliti yekkuvanonātāpamu ‖
+
+### PlainEnglish
+
+#### annamayya keertana vishvaroopamidivo
+
+vishvaroopamidivo vishhNuroopamidivo  
+shaashvatulamaitimiMka jayamu naajanmamu ‖
+
+k.oMDavaMTi hariroopu gurutaina tirumala  
+paMDina vRRikshhamule kalpataruvulu ❘  
+niMDina mRRigaadul.ella nityamuktajanamulu  
+m.eMDuga pratyakshhamaay.e meluvonaajanmamu ‖
+
+meDavaMTi hariroopu miMcainapaiDi gopura  
+maaDane vaalina pakshhula marulu ❘  
+vaaDala koneTi cuTla vaikuMTha nagaramu  
+yeeDamaaku p.oDacoop.e ihamepoparamu ‖
+
+koTimadanulavaMTi guDilo cakkani moorti  
+yeeTuleni shree veMkaTeshuDitaDu ❘  
+vaaTapu s.ommulu mudra vakshhapuTalamelmaMga  
+kooTuvainanneliti y.ekkuvanonaataapamu ‖
+

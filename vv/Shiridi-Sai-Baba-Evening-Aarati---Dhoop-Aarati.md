@@ -3877,3 +3877,489 @@ shree sachchidaanaMda sadguru saayinaadh maharaaj ki jai
 రాజాధిరాజ యోగిరాజ పరబ్రహ్మ శ్రీసాయినాధామహరాజ్  
 శ్రీ సచ్చిదానంద సద్గురు సాయినాధ్ మహరాజ్ కి జై  
 
+### English
+
+#### śhiriḍi sāyi bābā sāyaṅkāla ārati - dhūp ārati
+
+śrī sachchidānanda sadguru sāyinādha maharāj kī jai.  
+ārati sāyibābā saukhya dātāra jīva  
+charaṇa rajatālī dyāvā dāsāvisāvā  
+bhaktāvisāvā āratisāyibābā  
+jāḻuniya anaṅga sasvarūpirāhedaṅga  
+mumūkśha janadāvi nijaḍoḻā śrīraṅga  
+ḍoḻā śrīraṅga āratisāyibābā  
+jayamani jaisābhāva taya taisā anubhava  
+dāvisi dayāghanā aisi tujhīhimāva  
+tujhīhimāvā āratisāyibābā  
+tumachenāma dyātā hare saṃskṛti vyadhā  
+agādhatavakaraṇi mārga dāvisi anādhā  
+dāvisi anādhā ārati sāyibābā  
+kaliyugi avatārā sadguṇa parabrahmā sāchāra  
+avatīrṇa jhūlāse svāmī datta digambara  
+datta digambara ārati sāyibābā  
+āṭhādivasā guruvārī bhakta karītivārī  
+prabhupada pahāvayā bhavabhaya nivārī  
+bhayanivārī ārati sāyibābā  
+mājhānija dravyaṭheva tava charaṇarajasevā  
+māgaṇe hechi^^ātā tuhmā devādidevā  
+devādideva āratisāyibābā  
+ichChitā dīnachātaka nirmala toyanijasūkha  
+pājave mādhavāyā sambhāḻa apūḻibāka  
+apūḻibāka āratisāyibābā  
+saukhyadātāra jīvā charaṇa rajatāḻī dyāvādāsā  
+visāvā bhaktāvisāvā ārati sāyibābā  
+2. abhaṅg  
+śiriḍi mājhe paṇḍarīpura sāyibābāramāvara  
+bābāramāvara - sāyibābāramāvara  
+śuddabhakti chandrabhāgā - bhāvapuṇḍalīkajāgā  
+puṇḍalīka jāgā - bhāvapuṇḍalīkajāgā  
+yāho yāho avaghejana❘  
+karūbābānsī vandana  
+sāyisī vandana❘  
+karūbābānsī vandana‖
+
+gaṇūhmaṇe bābāsāyi❘  
+dāvapāva mājhe āyī  
+pāvamājhe āyī dāvapāva mājheyā^^ī  
+3. namanaṃ  
+ghālīna loṭāṅgaṇa,vandīna charaṇa  
+ḍolyānī pāhīna rūpatujhe❘  
+preme āliṅgana,ānande pūjina  
+bhāve ovāḻīna hmaṇe nāmā‖
+
+tvameva mātā cha pitā tvameva  
+tvameva bandhuścha sakhā tvameva  
+tvameva vidyā draviṇaṃ tvameva  
+tvameva sarvaṃ mamadevadeva  
+kāyena vāchā manasendriyairvā  
+buddhyātmanāvā prakṛte svabhāvāt  
+karomi yadyatsakalaṃ parasmai  
+nārāyaṇāyeti samarpayāmī  
+achyutaṅkeśavaṃ rāmanārāyaṇaṃ  
+kṛśhṇadāmodaraṃ vāsudevaṃ hariṃ  
+śrīdharaṃ mādhavaṃ gopikāvallabhaṃ  
+jānakīnāyakaṃ rāmachandraṃ bhaje  
+4. nāma smaraṇaṃ  
+harerāma harerāma rāmarāma hare hare  
+harekṛśhṇa harekṛśhṇa kṛśhṇa kṛśhṇa hare hare ‖
+
+śrī gurudevadatta  
+5. namaskārāśhṭakaṃ  
+anantā tulāte kasere stavāve  
+anantā tulāte kasere namāve  
+anantāmukhāchā śiṇe śeśha gāta  
+namaskāra sāśhṭāṅga śrīsāyinādhā  
+smarāvemanītvatpadā nityabhāve  
+urāvetarī bhaktisāṭhī svabhāve  
+tarāve jagā tārunīmāyā tātā  
+namaskāra sāśhṭāṅga śrīsāyinādhā  
+vase josadā dāvayā santalīlā  
+dise āGYa lokā parī jojanālā  
+parī antarī GYānakaivalya dātā  
+namaskāra sāśhṭāṅga śrīsāyinādhā  
+bharāladhalā janmahā māna vāchā  
+narāsārdhakā sādhanībhūta sāchā  
+dharūsāyi premā gaḻāyā ahantā  
+namaskāra sāśhṭāṅga śrīsāyinādhā  
+dharāve karīsāna alpaGYa bālā  
+karāve ahmādhanyachumbhonigālā  
+mukhīghāla premekharāgrāsa atā  
+namaskāra sāśhṭāṅga śrīsāyinādhā  
+surā dīka jyāñchyā padāvanditāti  
+śukādīka jāte samānatvadetī  
+prayāgādi tīrdhe padīnamrahotā  
+namaskāra sāśhṭāṅga śrīsāyinādhā  
+tujhyājyāpadā pāhatā gopabālī  
+sadāraṅgalī chitsvarūpī miḻālī  
+karīrāsakrīḍā save kṛśhṇanādhā  
+namaskāra sāśhṭāṅga śrīsāyinādhā  
+tulāmāgato māgaṇe ekadhyāve  
+karājoḍito dīna atyanta bhāve  
+bhavīmohanīrāja hātāri ātā  
+namaskāra sāśhṭāṅga śrīsāyinādhā  
+6. prārthana  
+aisā ye^^ībā! sāyi digambarā  
+akśhayarūpa avatārā ❘  
+sarvahi vyāpaka tū  
+śrutisārā, anasūyātrikumārā(bābāye) mahārāje ībā  
+kāśīsnāna japa pratidivasī kolhāpura bhikśhesī nirmala nadi tuṅgā  
+jalaprāsī, nidrāmāhuradeśī aisā ye yībā  
+jhoḻīlombatase vāmakarī triśūla ḍhamarūdhāri  
+bhaktāvaradasadā sukhakārī, deśīla muktīchārī aisā ye yībā  
+pāyipādukā japamālā kamaṇḍalūmṛgaChālā  
+dhāraṇa kariśībā nāgajaṭā, mukuṭa śobhatomāthā aisā ye yībā  
+tatpara tujhyāyā jedhyānī akśhayatvāñchesadanī  
+lakśhmīvāsakarī dinarajanī, rakśhasisaṅkaṭa vāruni aisā ye yībā  
+yāparidhyāna tujhe gururāyā dṛśyakarī nayanāyā  
+pūrṇānanda sukhe hīkāyā, lāvisihari guṇagāyā  
+aisā ye yībā sāyi digambara akśhaya rūpa avatārā  
+sarvahivyāpaka tū, śrutisārā anasūyātri kumārā(bābāye) mahārāje ībā  
+7. sāyi mahimā stotraṃ  
+sadāsatsvarūpaṃ chidānandakandaṃ  
+jagatsambhavasdhāna saṃhāra hetuṃ  
+svabhaktechChayā mānuśhaṃ darśayantaṃ  
+namāmīśvaraṃ sadguruṃ sāyināthaṃ  
+bhavadhvānta vidhvaṃsa mārtāṇḍamīḍyaṃ  
+manovāgatītaṃ munir dhyāna gamyaṃ  
+jagadvyāpakaṃ nirmalaṃ nirguṇaṃ tvāṃ  
+namāmīśvaraṃ sadguruṃ sāyināthaṃ  
+bhavāmbhodi magnārdhitānāṃ janānāṃ  
+svapādāśritānāṃ svabhakti priyāṇāṃ  
+samuddāraṇārdhaṃ kalau sambhavantaṃ  
+namāmīśvaraṃ sadguruṃ sāyināthaṃ  
+sadānimba vṛkśhasyamulādhi vāsāt  
+sudhāsrāviṇaṃ tikta mapya priyantaṃ  
+taruṃ kalpa vṛkśhādhikaṃ sādhayantaṃ  
+namāmīśvaraṃ sadguruṃ sāyināthaṃ  
+sadākalpa vṛkśhasya tasyādhimūle  
+bhavadbhāvabuddhyā saparyādisevāṃ  
+nṛṇāṃ kurvatāṃ bhukti-mukti pradantaṃ  
+namāmīśvaraṃ sadguruṃ sāyināthaṃ  
+anekā śṛtā tarkya līlā vilāsai:  
+samā viśhkṛteśāna bhāsvatrpabhāvaṃ  
+ahambhāvahīnaṃ prasannātmabhāvaṃ  
+namāmīśvaraṃ sadguruṃ sāyināthaṃ  
+satāṃ viśramārāma mevābhirāmaṃ  
+sadāsajjanai saṃstutaṃ sannamadbhi:  
+janāmodadaṃ bhakta bhadra pradantaṃ  
+namāmīśvaraṃ sadguruṃ sāyināthaṃ  
+ajanmādyamekaṃ parambrahma sākśhāt  
+svayaṃ sambhavaṃ rāmamevāvatīrṇaṃ  
+bhavaddarśanātsampunīta: prabhohaṃ  
+namāmīśvaraṃ sadguruṃ sāyināthaṃ  
+śrīsāyiśa kṛpānidhe khilanṛṇāṃ sarvārdhasiddiprada  
+yuśhmatpādaraja: prabhāvamatulaṃ dhātāpivaktākśhama:  
+sadbhaktyāśśaraṇaṃ kṛtāñjalipuṭa: samprāptitosmin prabho  
+śrīmatsāyipareśa pāda kamalān nānyachcharaṇyaṃmama  
+sāyirūpadhara rāghavottamaṃ  
+bhaktakāma vibudha drumaṃ prabhuṃ  
+māyayopahata chitta śuddhaye  
+chintayāmyaha maharniśaṃ mudā  
+śaratsudhāṃśaṃ pratimaṃ prakāśaṃ  
+kṛpātapatraṃ tavasāyinātha  
+tvadīyapādābja samāśritānāṃ  
+svachChāyayātāpa mapākarotu  
+upāsanādaivata sāyinātha  
+smavairma yopāsani nāstutastvaṃ  
+ramenmanome tavapādayugme  
+bhruṅgo yadābje makarandalubdha:  
+anekajanmārjita pāpasaṅkśhayo  
+bhavedbhavatpāda saroja darśanāt  
+kśhamasva sarvānaparādha puñjakān  
+prasīda sāyiśa sadguro dayānidhe  
+śrīsāyinātha charaṇāmṛta pūrṇachittā  
+tatpāda sevanaratā ssata tañcha bhaktyā  
+saṃsārajanya duritaugha vinirga tāste  
+kaivalya dhāma paramaṃ samavāpnuvanti  
+stotrame tatpaṭhedbhaktyā yonnarastanmanāsadā  
+sadguro: sāyināthasya kṛpāpātraṃ bhavedbhavaṃ  
+8. guru prasāda yāchanādaśakaṃ  
+rusomamapriyāmbikā majavarīpitāhīruso  
+rusomamapriyāṅganā priyasutātmajāhīruso  
+rusobhaginabandhu hī svaśura sāsubāyi ruso  
+nadatta gurusāyimā majhavarī kadhīhī ruso  
+pusona sunabhāyityā majana bhrātRRījāyā puso  
+pusona priyasoyare priyasagenaGYātī puso  
+puso suhṛdanāsakha svajananāpta bandhū puso  
+parīna gurusāyimā majhavarī kadhīhī ruso  
+pusona abalāmule taruṇa vṛddahī nāpuso  
+pusona guruthākuṭe majana dorasāne puso  
+pusonachabale bure sujanasāduhīnā puso  
+parīna gurusāyimā majhavarī kadhīhī ruso  
+dusochaturattvavit vibudha prāGYaGYānīruso  
+ruso hi vidu strīyā kuśala paṇḍitāhīruso  
+rusomahipatīyatī bhajakatāpasīhī ruso  
+nadatta gurusāyimā majhavarī kadhīhī ruso  
+rusokavi^^ṛśhi munī anaghasiddayogīruso  
+rusohigṛhadevatātikulagrāmadevī ruso  
+rusokhalapiśāchchahī malīnaḍākinī hīruso  
+nadatta gurusāyimā majhavarī kadhīhī ruso  
+rusomṛgakhagakṛmī akhilajīvajantūruso  
+ruso viṭapaprastarā achala āpagābdhīruso  
+rusokhapavanāgnivār avanipañchatattveruso  
+nadatta gurusāyimā majhavarī kadhīhī ruso  
+ruso vimalakinnarā amalayakśhiṇīhīruso  
+rusośaśikhagādihī gagani tārakāhīruso  
+ruso amararājahī adaya dharmarājā ruso  
+nadatta gurusāyimā majhavarī kadhīhī ruso  
+ruso mana sarasvatī chapalachitta tīhīruso  
+rusovapudiśākhilākaṭhinakālato hīruso  
+rusosakala viśvahīmayitu brahmagoḻaṃruso  
+nadatta gurusāyimā majhavarī kadhīhī ruso  
+vimūḍa hmaṇuni haso majanamatsarāhī ruso  
+padābhiruchi uḻaso jananakardhamīnāphaso  
+nadurga dṛtichā dhaso aśiva bhāva māgekhaso  
+prapañchi manaheruso dṛḍaviraktichittīṭhaso  
+kuṇāchi ghṛṇānasonachaspṛhakaśāchī aso  
+sadaiva hṛdayā vaso manasidyāni sāyivaso  
+padīpraṇayavoraso nikhila dṛśya bābādiso  
+nadatta gurusāyimā upariyāchanelā ruso  
+9. mantra puśhpaṃ  
+hari oṃ yaGYena yaGYamayajantadevā stānidharmāṇi  
+pradhamānyāsan ❘  
+tehanākaṃ mahimāna:ssachanta  
+yatrapūrve sādhyā ssanti devā:❘  
+oṃ rājādhirājāya pasahyasāhine  
+namovayaṃ vai śravaṇāya kurmahe  
+samekāmān kāmakāmāya mahyaṃ  
+kāmeśvaro vaiśravaṇo dadātu  
+kuberāya vaiśravaṇāyā mahārājāyanama:  
+oṃ svastī sāmrājyaṃ bhojyaṃ  
+svārājyaṃ vairājyaṃ pārameśhṭyaṃrājyaṃ  
+mahārājya mādhipatyamayaṃ samantaparyā  
+īśyā ssārvabhauma ssārvā yuśhān  
+tādāpadārdāt prudhivyaisamudra paryāntāyā  
+ekarālliti tadapyeśha ślokobigīto maruta:  
+pariveśhṭoro marutta syāvasan gruhe  
+āvikśhitasyakāma prer viśvedevāsabhāsada iti  
+śrī nārāyaṇavāsudeva sachchidānanda sadguru sāyinādh mahārāj ki jai  
+karacharaṇa kṛtaṃ vākkāya jaṅkarmajaṃvā  
+śravaṇanayanajaṃ vāmānasaṃvā parādhaṃ  
+vidita maviditaṃ vā sarvametat kśhamasva  
+jayajaya karuṇābdhe śrīprabhosāyinādha  
+śrī sachchidānanda sadguru sāyinādh maharāj ki jai  
+rājādhirāja yogirāja parabrahma śrīsāyinādhāmaharāj  
+śrī sachchidānanda sadguru sāyinādh maharāj ki jai  
+### PlainEnglish
+
+#### shhiriDi saayi baabaa saayaMkaala aarati - dhoop aarati
+
+shree sachchidaanaMda sadguru saayinaadha maharaaj kee jai.  
+aarati saayibaabaa saukhya daataara jeeva  
+charaNa rajataalee dyaavaa daasaavisaavaa  
+bhaktaavisaavaa aaratisaayibaabaa  
+jaaLuniya anaMga sasvaroopiraahedaMga  
+mumookshha janadaavi nijaDoLaa shreeraMga  
+DoLaa shreeraMga aaratisaayibaabaa  
+jayamani jaisaabhaava taya taisaa anubhava  
+daavisi dayaaghanaa aisi tujheehimaava  
+tujheehimaavaa aaratisaayibaabaa  
+tumachenaama dyaataa hare saMskRRiti vyadhaa  
+agaadhatavakaraNi maarga daavisi anaadhaa  
+daavisi anaadhaa aarati saayibaabaa  
+kaliyugi avataaraa sadguNa parabrahmaa saachaara  
+avateerNa jhoolaase svaamee datta digaMbara  
+datta digaMbara aarati saayibaabaa  
+aaThaadivasaa guruvaaree bhakta kareetivaaree  
+prabhupada pahaavayaa bhavabhaya nivaaree  
+bhayanivaaree aarati saayibaabaa  
+maajhaanija dravyaTheva tava charaNarajasevaa  
+maagaNe hechi^^aataa tuhmaa devaadidevaa  
+devaadideva aaratisaayibaabaa  
+ichChitaa deenachaataka nirmala toyanijasookha  
+paajave maadhavaayaa saMbhaaLa apooLibaaka  
+apooLibaaka aaratisaayibaabaa  
+saukhyadaataara jeevaa charaNa rajataaLee dyaavaadaasaa  
+visaavaa bhaktaavisaavaa aarati saayibaabaa  
+2. abhaMg  
+shiriDi maajhe paMDareepura saayibaabaaramaavara  
+baabaaramaavara - saayibaabaaramaavara  
+shuddabhakti chaMdrabhaagaa - bhaavapuMDaleekajaagaa  
+puMDaleeka jaagaa - bhaavapuMDaleekajaagaa  
+yaaho yaaho avaghejana❘  
+karoobaabaansee vaMdana  
+saayisee vaMdana❘  
+karoobaabaansee vaMdana‖
+
+gaNoohmaNe baabaasaayi❘  
+daavapaava maajhe aayee  
+paavamaajhe aayee daavapaava maajheyaa^^ee  
+3. namanaM  
+ghaaleena loTaaMgaNa,vaMdeena charaNa  
+Dolyaanee paaheena roopatujhe❘  
+preme aaliMgana,aanaMde poojina  
+bhaave ovaaLeena hmaNe naamaa‖
+
+tvameva maataa cha pitaa tvameva  
+tvameva baMdhushcha sakhaa tvameva  
+tvameva vidyaa draviNaM tvameva  
+tvameva sarvaM mamadevadeva  
+kaayena vaachaa manaseMdriyairvaa  
+buddhyaatmanaavaa prakRRite svabhaavaat  
+karomi yadyatsakalaM parasmai  
+naaraayaNaayeti samarpayaamee  
+achyutaMkeshavaM raamanaaraayaNaM  
+kRRishhNadaamodaraM vaasudevaM hariM  
+shreedharaM maadhavaM gopikaavallabhaM  
+jaanakeenaayakaM raamachaMdraM bhaje  
+4. naama smaraNaM  
+hareraama hareraama raamaraama hare hare  
+harekRRishhNa harekRRishhNa kRRishhNa kRRishhNa hare hare ‖
+
+shree gurudevadatta  
+5. namaskaaraashhTakaM  
+anaMtaa tulaate kasere stavaave  
+anaMtaa tulaate kasere namaave  
+anaMtaamukhaachaa shiNe sheshha gaata  
+namaskaara saashhTaaMga shreesaayinaadhaa  
+smaraavemaneetvatpadaa nityabhaave  
+uraavetaree bhaktisaaThee svabhaave  
+taraave jagaa taaruneemaayaa taataa  
+namaskaara saashhTaaMga shreesaayinaadhaa  
+vase josadaa daavayaa saMtaleelaa  
+dise aagnya lokaa paree jojanaalaa  
+paree aMtaree gnyaanakaivalya daataa  
+namaskaara saashhTaaMga shreesaayinaadhaa  
+bharaaladhalaa janmahaa maana vaachaa  
+naraasaardhakaa saadhaneebhoota saachaa  
+dharoosaayi premaa gaLaayaa ahaMtaa  
+namaskaara saashhTaaMga shreesaayinaadhaa  
+dharaave kareesaana alpagnya baalaa  
+karaave ahmaadhanyachuMbhonigaalaa  
+mukheeghaala premekharaagraasa ataa  
+namaskaara saashhTaaMga shreesaayinaadhaa  
+suraa deeka jyaaMchyaa padaavaMditaati  
+shukaadeeka jaate samaanatvadetee  
+prayaagaadi teerdhe padeenamrahotaa  
+namaskaara saashhTaaMga shreesaayinaadhaa  
+tujhyaajyaapadaa paahataa gopabaalee  
+sadaaraMgalee chitsvaroopee miLaalee  
+kareeraasakreeDaa save kRRishhNanaadhaa  
+namaskaara saashhTaaMga shreesaayinaadhaa  
+tulaamaagato maagaNe ekadhyaave  
+karaajoDito deena atyaMta bhaave  
+bhaveemohaneeraaja haataari aataa  
+namaskaara saashhTaaMga shreesaayinaadhaa  
+6. praarthana  
+aisaa ye^^eebaa! saayi digaMbaraa  
+akshhayaroopa avataaraa ❘  
+sarvahi vyaapaka too  
+shrutisaaraa, anasooyaatrikumaaraa(baabaaye) mahaaraaje eebaa  
+kaasheesnaana japa pratidivasee k.olhaapura bhikshhesee nirmala nadi tuMgaa  
+jalapraasee, nidraamaahuradeshee aisaa ye yeebaa  
+jhoLeeloMbatase vaamakaree trishoola Dhamaroodhaari  
+bhaktaavaradasadaa sukhakaaree, desheela mukteechaaree aisaa ye yeebaa  
+paayipaadukaa japamaalaa kamaMDaloomRRigaChaalaa  
+dhaaraNa karisheebaa naagajaTaa, mukuTa shobhatomaathaa aisaa ye yeebaa  
+tatpara tujhyaayaa jedhyaanee akshhayatvaaMchesadanee  
+lakshhmeevaasakaree dinarajanee, rakshhasisaMkaTa vaaruni aisaa ye yeebaa  
+yaaparidhyaana tujhe gururaayaa dRRishyakaree nayanaayaa  
+poorNaanaMda sukhe heekaayaa, laavisihari guNagaayaa  
+aisaa ye yeebaa saayi digaMbara akshhaya roopa avataaraa  
+sarvahivyaapaka too, shrutisaaraa anasooyaatri kumaaraa(baabaaye) mahaaraaje eebaa  
+7. saayi mahimaa stotraM  
+sadaasatsvaroopaM chidaanaMdakaMdaM  
+jagatsaMbhavasdhaana saMhaara hetuM  
+svabhaktechChayaa maanushhaM darshayaMtaM  
+namaameeshvaraM sadguruM saayinaathaM  
+bhavadhvaaMta vidhvaMsa maartaaMDameeDyaM  
+manovaagateetaM munir dhyaana gamyaM  
+jagadvyaapakaM nirmalaM nirguNaM tvaaM  
+namaameeshvaraM sadguruM saayinaathaM  
+bhavaaMbhodi magnaardhitaanaaM janaanaaM  
+svapaadaashritaanaaM svabhakti priyaaNaaM  
+samuddaaraNaardhaM kalau saMbhavaMtaM  
+namaameeshvaraM sadguruM saayinaathaM  
+sadaaniMba vRRikshhasyamulaadhi vaasaat  
+sudhaasraaviNaM tikta mapya priyaMtaM  
+taruM kalpa vRRikshhaadhikaM saadhayaMtaM  
+namaameeshvaraM sadguruM saayinaathaM  
+sadaakalpa vRRikshhasya tasyaadhimoole  
+bhavadbhaavabuddhyaa saparyaadisevaaM  
+nRRiNaaM kurvataaM bhukti-mukti pradaMtaM  
+namaameeshvaraM sadguruM saayinaathaM  
+anekaa shRRitaa tarkya leelaa vilaasai:  
+samaa vishhkRRiteshaana bhaasvatrpabhaavaM  
+ahaMbhaavaheenaM prasannaatmabhaavaM  
+namaameeshvaraM sadguruM saayinaathaM  
+sataaM vishramaaraama mevaabhiraamaM  
+sadaasajjanai saMstutaM sannamadbhi:  
+janaamodadaM bhakta bhadra pradaMtaM  
+namaameeshvaraM sadguruM saayinaathaM  
+ajanmaadyamekaM paraMbrahma saakshhaat  
+svayaM saMbhavaM raamamevaavateerNaM  
+bhavaddarshanaatsaMpuneeta: prabhohaM  
+namaameeshvaraM sadguruM saayinaathaM  
+shreesaayisha kRRipaanidhe khilanRRiNaaM sarvaardhasiddiprada  
+yushhmatpaadaraja: prabhaavamatulaM dhaataapivaktaakshhama:  
+sadbhaktyaashsharaNaM kRRitaaMjalipuTa: saMpraaptitosmin prabho  
+shreematsaayiparesha paada kamalaan naanyachcharaNyaMmama  
+saayiroopadhara raaghavottamaM  
+bhaktakaama vibudha drumaM prabhuM  
+maayayopahata chitta shuddhaye  
+chiMtayaamyaha maharnishaM mudaa  
+sharatsudhaaMshaM pratimaM prakaashaM  
+kRRipaatapatraM tavasaayinaatha  
+tvadeeyapaadaabja samaashritaanaaM  
+svachChaayayaataapa mapaakarotu  
+upaasanaadaivata saayinaatha  
+smavairma yopaasani naastutastvaM  
+ramenmanome tavapaadayugme  
+bhruMgo yadaabje makaraMdalubdha:  
+anekajanmaarjita paapasaMkshhayo  
+bhavedbhavatpaada saroja darshanaat  
+kshhamasva sarvaanaparaadha puMjakaan  
+praseeda saayisha sadguro dayaanidhe  
+shreesaayinaatha charaNaamRRita poorNachittaa  
+tatpaada sevanarataa ssata taMcha bhaktyaa  
+saMsaarajanya duritaugha vinirga taaste  
+kaivalya dhaama paramaM samavaapnuvaMti  
+stotrame tatpaThedbhaktyaa yonnarastanmanaasadaa  
+sadguro: saayinaathasya kRRipaapaatraM bhavedbhavaM  
+8. guru prasaada yaachanaadashakaM  
+rusomamapriyaaMbikaa majavareepitaaheeruso  
+rusomamapriyaaMganaa priyasutaatmajaaheeruso  
+rusobhaginabaMdhu hee svashura saasubaayi ruso  
+nadatta gurusaayimaa majhavaree kadheehee ruso  
+pusona sunabhaayityaa majana bhraatRReejaayaa puso  
+pusona priyasoyare priyasagenagnyaatee puso  
+puso suhRRidanaasakha svajananaapta baMdhoo puso  
+pareena gurusaayimaa majhavaree kadheehee ruso  
+pusona abalaamule taruNa vRRiddahee naapuso  
+pusona guruthaakuTe majana dorasaane puso  
+pusonachabale bure sujanasaaduheenaa puso  
+pareena gurusaayimaa majhavaree kadheehee ruso  
+dusochaturattvavit vibudha praagnyagnyaaneeruso  
+ruso hi vidu streeyaa kushala paMDitaaheeruso  
+rusomahipateeyatee bhajakataapaseehee ruso  
+nadatta gurusaayimaa majhavaree kadheehee ruso  
+rusokavi^^RRishhi munee anaghasiddayogeeruso  
+rusohigRRihadevataatikulagraamadevee ruso  
+rusokhalapishaachchahee maleenaDaakinee heeruso  
+nadatta gurusaayimaa majhavaree kadheehee ruso  
+rusomRRigakhagakRRimee akhilajeevajaMtooruso  
+ruso viTapaprastaraa achala aapagaabdheeruso  
+rusokhapavanaagnivaar avanipaMchatattveruso  
+nadatta gurusaayimaa majhavaree kadheehee ruso  
+ruso vimalakinnaraa amalayakshhiNeeheeruso  
+rusoshashikhagaadihee gagani taarakaaheeruso  
+ruso amararaajahee adaya dharmaraajaa ruso  
+nadatta gurusaayimaa majhavaree kadheehee ruso  
+ruso mana sarasvatee chapalachitta teeheeruso  
+rusovapudishaakhilaakaThinakaalato heeruso  
+rusosakala vishvaheemayitu brahmagoLaMruso  
+nadatta gurusaayimaa majhavaree kadheehee ruso  
+vimooDa hmaNuni haso majanamatsaraahee ruso  
+padaabhiruchi uLaso jananakardhameenaaphaso  
+nadurga dRRitichaa dhaso ashiva bhaava maagekhaso  
+prapaMchi manaheruso dRRiDaviraktichitteeThaso  
+kuNaachi ghRRiNaanasonachaspRRihakashaachee aso  
+sadaiva hRRidayaa vaso manasidyaani saayivaso  
+padeepraNayavoraso nikhila dRRishya baabaadiso  
+nadatta gurusaayimaa upariyaachanelaa ruso  
+9. maMtra pushhpaM  
+hari oM yagnyena yagnyamayajaMtadevaa staanidharmaaNi  
+pradhamaanyaasan ❘  
+tehanaakaM mahimaana:ssachaMta  
+yatrapoorve saadhyaa ssaMti devaa:❘  
+oM raajaadhiraajaaya pasahyasaahine  
+namovayaM vai shravaNaaya kurmahe  
+samekaamaan kaamakaamaaya mahyaM  
+kaameshvaro vaishravaNo dadaatu  
+kuberaaya vaishravaNaayaa mahaaraajaayanama:  
+oM svastee saamraajyaM bhojyaM  
+svaaraajyaM vairaajyaM paarameshhTyaMraajyaM  
+mahaaraajya maadhipatyamayaM samaMtaparyaa  
+eeshyaa ssaarvabhauma ssaarvaa yushhaan  
+taadaapadaardaat prudhivyaisamudra paryaaMtaayaa  
+ekaraalliti tadapyeshha shlokobigeeto maruta:  
+pariveshhToro marutta syaavasan gruhe  
+aavikshhitasyakaama prer vishvedevaasabhaasada iti  
+shree naaraayaNavaasudeva sachchidaanaMda sadguru saayinaadh mahaaraaj ki jai  
+karacharaNa kRRitaM vaakkaaya jaMkarmajaMvaa  
+shravaNanayanajaM vaamaanasaMvaa paraadhaM  
+vidita maviditaM vaa sarvametat kshhamasva  
+jayajaya karuNaabdhe shreeprabhosaayinaadha  
+shree sachchidaanaMda sadguru saayinaadh maharaaj ki jai  
+raajaadhiraaja yogiraaja parabrahma shreesaayinaadhaamaharaaj  
+shree sachchidaanaMda sadguru saayinaadh maharaaj ki jai  

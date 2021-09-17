@@ -302,3 +302,47 @@ kaum.era vayassu ee chooDi kuDuta naaMchaari ‖
 కౌమెర వయస్సు ఈ చూడి కుడుత నాంచారి ‖  
 
 
+### English
+
+#### annamayya kīrtana chūḍaramma satulārā
+
+chūḍaramma satulārā sobāna pāḍaramma ❘  
+kūḍunnadi pati chūḍi kuḍuta nāñchāri ‖
+
+śrīmahālakśhmiyaṭa siṅgārālake marudu ❘  
+kāmuni talliyaṭa chakkadanālake marudu ❘  
+somuni tobuṭṭuvaṭa sompukaḻalakemarudu ❘  
+komalāṅgi ī chūḍi kuḍuta nāñchāri ‖
+
+kalaśābdhi kūturaṭa gambhīralake marudu ❘  
+talapaloka mātayaṭa daya mari emarudu ❘  
+jalajanivāsiniyaṭa challadanamemarudu ❘  
+koladimīra ī chūḍi kuḍuta nāñchāri ‖
+
+amaravanditayaṭa aṭṭī mahima emarudu ❘  
+amṛtamu chuṭṭamaṭa ānandālakemarudu ❘  
+tamito śrīveṅkaṭeśu dāne vachchi peṇḍlāḍe ❘  
+kaumera vayassu ī chūḍi kuḍuta nāñchāri ‖
+
+### PlainEnglish
+
+#### annamayya keertana chooDaramma satulaaraa
+
+chooDaramma satulaaraa sobaana paaDaramma ❘  
+kooDunnadi pati chooDi kuDuta naaMchaari ‖
+
+shreemahaalakshhmiyaTa siMgaaraalake marudu ❘  
+kaamuni talliyaTa chakkadanaalake marudu ❘  
+somuni tobuTTuvaTa s.oMpukaLalakemarudu ❘  
+komalaaMgi ee chooDi kuDuta naaMchaari ‖
+
+kalashaabdhi kooturaTa gaMbheeralake marudu ❘  
+talapaloka maatayaTa daya mari emarudu ❘  
+jalajanivaasiniyaTa challadanamemarudu ❘  
+k.oladimeera ee chooDi kuDuta naaMchaari ‖
+
+amaravaMditayaTa aTTee mahima emarudu ❘  
+amRRitamu chuTTamaTa aanaMdaalakemarudu ❘  
+tamito shreeveMkaTeshu daan.e vachchi p.eMDlaaD.e ❘  
+kaum.era vayassu ee chooDi kuDuta naaMchaari ‖
+

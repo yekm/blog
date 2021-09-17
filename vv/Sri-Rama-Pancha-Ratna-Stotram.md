@@ -315,3 +315,59 @@ iti shreeshaMkaraacaarya viracita shreeraamapaMcaratnaM saMpoorNaM
 
 ఇతి శ్రీశంకరాచార్య విరచిత శ్రీరామపంచరత్నం సంపూర్ణం  
 
+### English
+
+#### śrī rāma pañcha ratna stotram
+
+kañjātapatrāyata locanāya karṇāvataṃsojjvala kuṇḍalāya  
+kāruṇyapātrāya suvaṃśajāya namostu rāmāyasalakśhmaṇāya 
+‖ 1 ‖
+
+vidyunnibhāmbhoda suvigrahāya vidyādharaissaṃstuta sadguṇāya  
+vīrāvatāraya virodhihartre namostu rāmāyasalakśhmaṇāya 
+‖ 2 ‖
+
+saṃsakta divyāyudha kārmukāya samudra garvāpaharāyudhāya  
+sugrīvamitrāya surārihantre namostu rāmāyasalakśhmaṇāya 
+‖ 3 ‖
+
+pītāmbarālaṅkṛta madhyakāya pitāmahendrāmara vanditāya  
+pitre svabhaktasya janasya mātre namostu rāmāyasalakśhmaṇāya 
+‖ 4 ‖
+
+namo namaste khila pūjitāya namo namastendunibhānanāya  
+namo namaste raghuvaṃśajāya namostu rāmāyasalakśhmaṇāya 
+‖ 5 ‖
+
+imāni pañcaratnāni trisandhyaṃ yaḥ paṭhennaraḥ  
+sarvapāpa vinirmuktaḥ sa yāti paramāṃ gatiṃ ‖
+
+iti śrīśaṅkarācārya viracita śrīrāmapañcaratnaṃ sampūrṇaṃ  
+### PlainEnglish
+
+#### shree raama paMcha ratna stotram
+
+kaMjaatapatraayata locanaaya karNaavataMsojjvala kuMDalaaya  
+kaaruNyapaatraaya suvaMshajaaya namostu raamaayasalakshhmaNaaya 
+‖ 1 ‖
+
+vidyunnibhaaMbhoda suvigrahaaya vidyaadharaissaMstuta sadguNaaya  
+veeraavataaraya virodhihartre namostu raamaayasalakshhmaNaaya 
+‖ 2 ‖
+
+saMsakta divyaayudha kaarmukaaya samudra garvaapaharaayudhaaya  
+sugreevamitraaya suraarihaMtre namostu raamaayasalakshhmaNaaya 
+‖ 3 ‖
+
+peetaaMbaraalaMkRRita madhyakaaya pitaamaheMdraamara vaMditaaya  
+pitre svabhaktasya janasya maatre namostu raamaayasalakshhmaNaaya 
+‖ 4 ‖
+
+namo namaste khila poojitaaya namo namasteMdunibhaananaaya  
+namo namaste raghuvaMshajaaya namostu raamaayasalakshhmaNaaya 
+‖ 5 ‖
+
+imaani paMcaratnaani trisaMdhyaM yaH paThennaraH  
+sarvapaapa vinirmuktaH sa yaati paramaaM gatiM ‖
+
+iti shreeshaMkaraacaarya viracita shreeraamapaMcaratnaM saMpoorNaM  

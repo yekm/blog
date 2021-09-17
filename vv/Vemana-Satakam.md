@@ -9571,3 +9571,1765 @@ vishvadaabhiraama vinura vema! ‖ 146 ‖
 విశ్వదాభిరామ వినుర వేమ! ‖ 146 ‖  
 
 
+### English
+
+#### vemana śatakam
+
+talapulona galugu dā daivame proddu  
+talachi chūḍanataku tatvamagunu  
+vūRakuṇḍa nervunuttama yogirā  
+viśvadābhirāma vinura vema!  
+‖ 1 ‖
+
+tana virakti yaneḍi dāsi chetanu jikki  
+migili veḍalaveka miṇukuchunna  
+naruḍi keḍamukti varaleḍi cheppaḍī  
+viśvadābhirāma vinura vema!  
+‖ 2 ‖
+
+tanadu manasucheta darkiñchi jyotiśha  
+menta chese nanuchu neñchi chūchu,  
+tana yadṛśhṭamanta daiva meRuṅgaḍā?  
+viśvadābhirāma vinura vema!  
+‖ 3 ‖
+
+ṭīka vrāsinaṭlenekulu peddalu  
+lokamandu jeppi mañchu  
+kākulaṭṭi janula kānarī marmamu  
+viśvadābhirāma vinura vema!  
+‖ 4 ‖
+
+GYānamenna guruvu GYānahainyamu buddhi  
+reṇṭinandu rimmarechunapuḍu  
+rimma telipeneni reṇḍoka rūpurā  
+viśvadābhirāma vinura vema!  
+‖ 5 ‖
+
+jāṇalamani yandru chapalātmulaguvāru  
+telivileka tammuteliyaleru  
+kaśhṭamaina yaḍavi gāsīluchunnāru  
+viśvadābhirāma vinura vema!  
+‖ 6 ‖
+
+janana maraṇamulana svapna suśhuptulu  
+jagamulandu neṇḍa jagamuluṇḍu  
+naruḍu jagamunaṇṭa naḍubāṭu kādoko  
+viśvadābhirāma vinura vema!  
+‖ 7 ‖
+
+Chāyananosagucheṭlu sādhuvu bodhaṭṭu  
+laḍagi darinijeri paḍayavachchu  
+naṭṭuniṭṭu dāṭanadi povunidi rāma  
+viśvadābhirāma vinura vema!  
+‖ 8 ‖
+
+naruḍeyaina leka nārāyaṇuṇḍaina  
+tattvabaddhuḍaina daraṇi naraya  
+maraṇamunnadanuchu madini nammagavale  
+viśvadābhirāma vinura vema!  
+‖ 9 ‖
+
+dvārambandhamunaku dalupulu gaḍiyalu  
+valene noṭikoppugala niyatulu  
+dharmamerigi paluka dhanyuṇḍau bhuvilona  
+viśvadābhirāma vinura vema!  
+‖ 10 ‖
+
+brahmaghaṭamu menu prāṇambu tagagāli  
+mitrachandra śikhulu netrachayamu  
+maRiyu brahmamanaga mahimīda ledayā  
+viśvadābhirāma vinura vema!  
+‖ 11 ‖
+
+yoginanuchu gonta yogamugūrchaka  
+jagamunellabaṭṭa champi tinuchu  
+dhanamu koRaku vāḍu tagavāḍuchuṇḍina  
+yogikāḍu vāḍe yogu vema!  
+‖ 12 ‖
+
+ardha yaṅkaṇamuna kādhāramainaṭṭi  
+yoṇṭimeḍa guñju nonaranilpe  
+niṇṭikoka magaṇḍe yillāṇḍrunedguru  
+viśvadābhirāma vinura vema!  
+‖ 13 ‖
+
+annadānamunaku nadhika sampadagalgi  
+yamaraloka pūjyuḍagunu mīRu  
+annamagunu brahmamadi kanalerayā  
+viśvadābhirāma vinura vema!  
+‖ 14 ‖
+
+bondi yevari sommu pośhimpabalumāru  
+prāṇa mevari sommu bhaktiseya,  
+dhanamadevarisommu dharmame tana sommu  
+viśvadābhirāma vinura vema!  
+‖ 15 ‖
+
+paṇḍuvalana buṭṭe baraga prapañchamu  
+paṇḍuvalana buṭṭe paramu nihamu  
+paṇḍu meleRiṅge brahlāduḍilalona  
+viśvadābhirāma vinura vema!  
+‖ 16 ‖
+
+tapamuvela? yaraya dhātrijanulakella  
+nonara śivuni jūḍa nupama galadu  
+manasu chadaranīka mahilona jūḍarā  
+viśvadābhirāma vinura vema!  
+‖ 17 ‖
+
+tanaguṇamu tanaku nuṇḍaga  
+nenayaṅgā noruni guṇamu neñchunu madilo  
+dana guṇamu teliya kanyuni  
+banigoni dūśhiñchuvāḍu vyarthuḍu vema!  
+‖ 18 ‖
+
+jālinondarādu javadāṭi kanarādu  
+adi mūlamaina ātmamaRugu  
+poricheri pondi pūrṇamu nandurā  
+viśvadābhirāma vinura vema!  
+‖ 19 ‖
+
+jāti, matamu viḍichi chani yogikāmelu  
+jātito neyunna nītivalade  
+matamubaṭṭi jāti mānakuṇṭa koRanta  
+viśvadābhirāma vinura vema!  
+‖ 20 ‖
+
+nīvaninanu nenaninanu  
+bhāvammuna neRukayokka paddhatiyagunā  
+bhāvambu delisi madini  
+rbhāvamugā ninnu ganuṭa paramagu vema!  
+‖ 21 ‖
+
+nīḻla munugunela? nidhula meṭṭaganela  
+monasi velpulakunu mrokkanela  
+kapaṭa kalmaśhamulu kaḍupulo nuṇḍagā  
+viśvadābhirāma vinura vema!  
+‖ 22 ‖
+
+pañcha mukhamulandu bañchākśhari janiñche  
+pañcha varṇamulanu prabale jagamu  
+pañchamukhuni mīru prastuti cheyuṇḍī  
+viśvadābhirāma vinura vema!  
+‖ 23 ‖
+
+neyi venna kāchi nīḍane yuñchina  
+beri gaṭṭipaḍunu perugurīti  
+poripori madini ponīka paṭṭumu  
+viśvadābhirāma vinura vema!  
+‖ 24 ‖
+
+maṇṭikuṇḍavaṇṭi māya śarīrambu  
+chachchunennaḍaina, chāvadātma  
+ghaṭamulenniyaina gaganamokkaṭegadā,  
+viśvadābhirāma vinura vema!  
+‖ 25 ‖
+
+maṇṭa lohamandu mrākula śilalandu  
+paṭamulandu goḍapratimalandu  
+tannudeliyu koRakudaguladā paramātma  
+viśvadābhirāma vinura vema!  
+‖ 26 ‖
+
+nimiśhamainanu madi nilchi nirmalamuga  
+liṅga jīvāveśulanu gāñchi bhaṅgapaḍaka  
+pūja madiyandu jeruṭa pūrṇapadavi  
+paramu gorina nidicheya bāgu vema!  
+‖ 27 ‖
+
+dhūmādula nāvṛtamai  
+vyomambunakegani kaliyu nupamulu tanalo  
+śrīmiñchu śivuni jerunu  
+gāmādula galiyaḍataḍu ghanamuga vema!  
+‖ 28 ‖
+
+pagaluḍuga nāsaluḍugunu  
+vagapuḍugaṃ gorkeluḍugu vaḍi janmambul  
+taguluḍugu bhogamuḍigina  
+triguṇambunu naḍuga mukti teruvagu vema!  
+‖ 29 ‖
+
+pāla nīṭi kalata paramahaṃsa meRugunu  
+nīru pālu neṭlu nerchunemali  
+laGYuḍaina hīnuḍala śivu neRugunā?  
+viśvadābhirāma vinura vema!  
+‖ 30 ‖
+
+puṭṭu puṭṭalede puḍamini janulella  
+puṭṭi giṭṭalede pūrvulevaru  
+puṭṭi giṭṭuṭella vaṭṭi bhrāntulu sumī,  
+viśvadābhirāma vinura vema!  
+‖ 31 ‖
+
+parula vittamandu bhrānti vāsinayaṭṭi  
+puruśhuḍavanilona puṇyamūrti  
+parula vittamaraya pāpasañchitamagu  
+viśvadābhirāma vinura vema!  
+‖ 32 ‖
+
+paradhanambulakunu prāṇamulichchunu  
+satyamantaleka jāraḍagunu  
+dvijulamañchu nintrutejamiñchukaledu  
+viśvadābhirāma vinura vema!  
+‖ 33 ‖
+
+noru palakavachchu nuḍi vrāyagarādu  
+vrātakanna sākśhi valavadanna  
+paragaleni vrāta bhaṅga pāṭundechchu  
+viśvadābhirāma vinura vema!  
+‖ 34 ‖
+
+nijamākalla reṇḍu nīlakaṇṭhuḍeRuṅgu  
+nijamulāḍakunna nītidappu  
+nijamulāḍunapuḍu nī rūpamanavachchu  
+viśvadābhirāma vinura vema!  
+‖ 35 ‖
+
+daśagalārinella dama bandhuvu laṭaṇḍru  
+daśayalemi nentru takkuvaganu  
+daśayana gama dhana daśamokkaṭe daśa  
+viśvadābhirāma vinura vema!  
+‖ 36 ‖
+
+tāmasiñchi cheyadaga deṭṭi kāryambu  
+vegirimpa nadiyu viśhamagunu  
+pachchikāyadechchi paḍaveya phalamaune  
+viśvadābhirāma vinura vema!  
+‖ 37 ‖
+
+tallibiḍḍalakunu tagavu puṭṭiñcheḍi  
+dhanamu sukhamu gūrchunani gaḍintru  
+kāni yellayeḍala ghana duḥkhan^damadi  
+viśvadābhirāma vinura vema!  
+‖ 38 ‖
+
+tallidaṇḍrulennadagu toli guruvulu  
+pārvatībhavu lilabaramagurulu  
+kūlivāṇḍra jagati gurulana drohamu  
+viśvadābhirāma vinura vema!  
+‖ 39 ‖
+
+tāmasiñchi cheyadaga deṭṭi kāryambu  
+vegirimpa nadiyu viśhamagunu  
+pachchikāyadechchi paḍaveya phalamaune  
+viśvadābhirāma vinura vema!  
+‖ 40 ‖
+
+puṭṭu puṭṭalede puḍamini janulella  
+puṭṭi giṭṭalede pūrvulevaru  
+puṭṭi giṭṭuṭella vaṭṭi bhrāntulu sumī,  
+viśvadābhirāma vinura vema!  
+‖ 41 ‖
+
+peṭṭipoyaleni vaṭṭi debelu bhūmi  
+buṭṭiremi vāru giṭṭaremi  
+puṭṭaloni chedalu puṭṭadā giṭṭadā!  
+viśvadābhirāma vinura vema!  
+‖ 42 ‖
+
+lokamandubuṭṭi lokamande perigi  
+loka vibhavamorvaleka januḍu  
+lokamandu janiki lobaḍi cheḍipovunu  
+viśvadābhirāma vinura vema!  
+‖ 43 ‖
+
+madi galigina pūja madanāri mechchunu  
+manasu nilsinanta mahituḍagunu  
+manasuleni pūja maṭṭi samānamu  
+viśvadābhirāma vinura vema!  
+‖ 44 ‖
+
+tāmunu janulemanu kona  
+būnuduro dāni sarasi pondina jaḍanī,  
+rāni padhambuna naḍichina  
+dānane dharmātmuḍaṇḍru tanniṭa vema!  
+‖ 45 ‖
+
+madamu valana galugu māṭalu maRipalki  
+mruchchu saddulanogi mosapuchchi  
+kāsurābenageḍu kaśhṭhuṇḍu guruḍaune?  
+viśvadābhirāma vinura vema!  
+‖ 46 ‖
+
+manase māyā mṛgamau  
+mananemiṭi paikigānī maṇiponīkā  
+manasuna manasunu jampina  
+manande muktigaladu mahilo vema!  
+‖ 47 ‖
+
+mantramokaṭi cheppi maRi devatārchana  
+chesi tamakugaruṇachendinadani  
+vedapaṭhana chesi verrulai poduru,  
+viśvadābhirāma vinura vema!  
+‖ 48 ‖
+
+maṭhamuloniyogi māyalanniyugosi  
+ghaṭamulona nunna ghanunidelisi  
+māṭa māṭakuguru maruvaka telupurā,  
+viśvadābhirāma vinura vema!  
+‖ 49 ‖
+
+tirigi vachchuveḻa maralipoyeḍi veḻa  
+veṇṭa deru dhanamu vaṇṭaboru  
+toneṭaku januno dhanamendu bovuno  
+viśvadābhirāma vinura vema!  
+‖ 50 ‖
+
+āśayaneḍu dāni gosiveyagāleka  
+mohabuddi valana munuguvāru  
+kāśivāsulaina ganaboru mokśhamu  
+viśvadābhirāma vinura vema!  
+‖ 51 ‖
+
+chittamaneḍi vere śithilamainappuḍe  
+prakṛti yaneḍi cheṭṭu paḍunu pidapa  
+gorkulaneḍi peddakommaleṇḍunu gadā  
+viśvadābhirāma vinura vema!  
+‖ 52 ‖
+
+bhogambula kāśimpaka  
+rāgadveśhambu raṅguḍadamalo  
+vegame mokśha padambunu  
+rāganu nātaṇḍu yogirāyuḍu vema!  
+‖ 53 ‖
+
+chanuvārellanu janulaṃ  
+janipoyina vāri puṇya satkathalellan  
+vinavale ganavale manavale  
+nani maśhulaku delusagūḍa dantyamu vema!  
+‖ 54 ‖
+
+āśayaneḍi trālla nakhila janambulu  
+kaṭṭupaḍuchu muktigānarairi  
+GYānakhaḍgamunanu khaṇḍimpa rādoko  
+viśvadābhirāma vinura vema!  
+‖ 55 ‖
+
+atithi rāka chūchi yadaliñchi paḍavaichi  
+kaṭhina chitulaguchu gānaleru  
+karmamunaku mundu dharmamu gānaro  
+viśvadābhirāma vinura vema!  
+‖ 56 ‖
+
+tanu valachina dāvalachunu tanu  
+valavaka yunnanenaḍu tāvalava ḍilan  
+tanadu paṭāṭopambulu tana  
+māyalu panikirāvu dharalona vema!  
+‖ 57 ‖
+
+māṭalāḍa vachchu manasu nilvagaledu  
+telupavachchu dannu teliyaledu  
+suriyabaṭṭavachchu śūruḍu kāleḍu  
+viśvadābhirāma vinura vema!  
+‖ 58 ‖
+
+tanakenāḍu subhikśhamu  
+tanakenāḍunu bhagambu tanaravayunaṃ  
+chunu tana daśakai yelleḍa  
+manasanduna jivukuchuṇḍu mahilo vema!  
+‖ 59 ‖
+
+eṇḍina mā nokaṭaḍavini  
+maṇḍina nandagni puṭṭi yūḍchunu cheṭlan  
+daṇḍigala vaṃśamellanu  
+chaṇḍāluṇḍokaḍu puṭṭi chadupunu vema!  
+‖ 60 ‖
+
+nijamu telisiyunna sujinuḍānijamune  
+palukavalayugāni parulakoraku  
+chāvakūḍa diṅka nopadavyaṃ palka  
+viśvadābhirāma vinura vema!  
+‖ 61 ‖
+
+tāmunu janulemanu kona  
+būnuduro dāni sarasi pondina jaḍanī,  
+rāni padhambuna naḍichina  
+dānane dharmātmuḍaṇḍru tanniṭa vema!  
+‖ 62 ‖
+
+viniyu vinakayuṇḍu kaniyu ganaka yuṇḍu  
+talachi talapakuṇḍu tānu yogi  
+manujavarulacheta maṇipūja gonuchuṇḍu  
+viśvadābhirāma vinura vema!  
+‖ 63 ‖
+
+venna chetabaṭṭi vivarambu teliyaka  
+ghṛtamu korunaṭṭi yatani bhaṇḍi  
+tānu daivamayyu daivambu dalachunu  
+viśvadābhirāma vinura vema!  
+‖ 64 ‖
+
+rūpuvaṅka peru rūḍhigā niluchunu  
+peruvaṅka kriyalu penaguchuṇḍu  
+nāśamaunu tudaku nāmarūpa kriyal  
+viśvadābhirāma vinura vema!  
+‖ 65 ‖
+
+lobhamohamulanu prābhavamulu tappu  
+talachina panulella tappi chanunu  
+tānokaṭi dalachina daivamoṇḍaguchuṇḍu  
+viśvadābhirāma vinura vema!  
+‖ 66 ‖
+
+śāntame janulanu jayamunondiñchunu  
+śāntamunane guruvu jāḍa teliyu  
+śānta bhāva mahima jarchimpalemayā  
+viśvadābhirāma vinura vema!  
+‖ 67 ‖
+
+veśhadhārinepuḍu viśvasimpagarādu  
+veśhadośhamuloka vidhaye yagunu  
+raṭṭukāde munupu rāvaṇu veśhambu  
+viśvadābhirāma vinura vema!  
+‖ 68 ‖
+
+iṅgalambu toḍa nila salputoḍanu  
+paruni yālitoḍa patitutoḍa  
+sarasamāḍuṭella chāvuku mūlamu  
+viśvadābhirāma vinura vema!  
+‖ 69 ‖
+
+aikamatyamokka ṭāvaśyakaṃ bepḍu  
+dāni balimi nentayaina gūḍu  
+gaḍḍi veṇṭa beṭṭi kaṭṭarā yenuṅgu  
+viśvadābhirāma vinura vema!  
+‖ 70 ‖
+
+tāmasiñchi cheyadagadeṭṭi kāryambu  
+vegirimpa nadiyu viśhamagunu  
+pachchikāyadechchi paḍaveya phalamaunā?  
+viśvadābhirāma vinura vema!  
+‖ 71 ‖
+
+tallī biḍḍalaku tagavu puṭṭiñcheḍi  
+dhanamu sukhamu gūrchunani gaḍintru  
+kānīyella yeḍala ghana duḥkhakaramadi  
+viśvadābhirāma vinura vema!  
+‖ 72 ‖
+
+doṅgamāṭalāḍa dorukune mokśhamu  
+chetagāni paluku cheṭudechchu  
+guruvupaddu kādu gunahainya madiyagu  
+viśvadābhirāma vinura vema!  
+‖ 73 ‖
+
+naluguru kala choṭanu dā  
+dala chūpuchu melaguchuṇḍi dhanyāta ganagā  
+dalacheḍi yātaḍu nichchalu  
+gala māṭale palukuchuṇḍagā dagu vema!  
+‖ 74 ‖
+
+naḍuchunichchu natani battemichchina vāni  
+kaḍupu challajesi ghanata viḍuchu  
+naḍupa nera nera nataḍu nāli muchchegadā  
+viśvadābhirāma vinura vema!  
+‖ 75 ‖
+
+padugurāḍumāṭa pāḍiyai dharajellu  
+nokkaḍāḍumāṭa yekkadendu  
+vūrakuṇḍu vāni kūrella nopadu  
+viśvadābhirāma vinura vema!  
+‖ 76 ‖
+
+pataka mandu noppu palu ratnamula pempu  
+baṅgarandu kūrpa baruvu ganunu  
+gāni yitara lohamaina hīnamu gāde  
+viśvadābhirāma vinura vema!  
+‖ 77 ‖
+
+jannamulanu mariyu janniyala naneka  
+mula nonarchiyunna phalamukāna  
+rāka yuṇḍu nīti lekunna mātrāna  
+viśvadābhirāma vinura vema!  
+‖ 78 ‖
+
+tappu paluku paliki tātoṭa chesina  
+kūḍiyuna lakśhmī kruṅgipovu  
+noṭikuṇḍa nīllu nonaragā niluchunā  
+viśvadābhirāma vinura vema!  
+‖ 79 ‖
+
+bhūmi nādi yanina bhūmi phakkuna navvu  
+dāna hīnuṃ jūchi dhanamu navvu  
+kadana bhītuṃ jūchi kāluṇḍu navvunu  
+viśvadābhirāma vinura vema!  
+‖ 80 ‖
+
+nīti jyotileka nirmalambagu nedi  
+eṭlu kalagubara madentayaina  
+dhanamu galigiyunna daivambu galugadu  
+viśvadābhirāma vinura vema!  
+‖ 81 ‖
+
+pagayuḍagu gopamuḍigina  
+pagayuḍugan^^ korkeluḍugu barajanmampuṃ  
+daguluḍugu bhedamuḍigina  
+triguṇamu luḍugaṅga mukti sthiramagu vema!  
+‖ 82 ‖
+
+pappuleni kūḍu parulakosahyame  
+yuppuleni vāḍe yadhika baluḍu  
+muppuleni vāḍu modaṭi sujjānirā  
+viśvadābhirāma vinura vema!  
+‖ 83 ‖
+
+nikkamaina mañchi nīlamokkaṭi chālu  
+taḻuku beḻuku rālu taṭṭeḍela  
+chaduva padyamaraya jāladā yokkaṭi  
+viśvadābhirāma vinura vema!  
+‖ 84 ‖
+
+parula dattamoppi pālanachesina  
+nila svadattamunaku vinu maḍiyagu  
+navani parula datta mahaparimpaga rādu  
+viśvadhābirāma vinura vema!  
+‖ 85 ‖
+
+nijamulāḍu vāni nindiñchu jagamella  
+nijamu balkarādu nīchulakaḍa  
+nija mahātmugūḍa nijamāḍavalayurā  
+viśvadābhirāma vinura vema!  
+‖ 86 ‖
+
+padugurāḍumāṭa pāḍiyai dharajellu  
+nokkaḍāḍumāṭa yekkadendu  
+vūrakuṇḍu vāni kūrella nopadu  
+viśvadābhirāma vinura vema!  
+‖ 87 ‖
+
+parula melu chūchi palugāki vale neppu  
+vaṭṭi māṭalāḍu vāḍadhamuḍu  
+aṭṭi vāni bratuku ṭadiyela maṇṭikā  
+viśvadhābirāma vinura vema!  
+‖ 88 ‖
+
+bhayamantayu dehamunake  
+bhaya muḍigina niśchayambu paramātmunake  
+layamantayu jīvunake  
+jayamātmaku nanuchu jagatiṃ jāṭura vema!   
+‖ 89 ‖
+
+bhūmi nādi yanina bhūmi phakkuna navvu  
+dāna hīnuṃ jūchi dhanamu navvu  
+kadana bhītuṃ jūchi kāluṇḍu navvunu  
+viśvadābhirāma vinura vema!  
+‖ 90 ‖
+
+māṭajeppa vinani manujuḍu mūrkhuḍu  
+māṭa vinna naruḍu mānuḍagunu  
+māṭa vinaga jeppa mānuṭa kūḍadu  
+viśvadābhirāma vinura vema!  
+‖ 91 ‖
+
+manasu telisi yokani māṭaku braticheppa  
+santasiñchu nataḍu chālamechchu  
+manasu deliyakunnaḍaniyuchu nanunedo  
+viśvadābhirāma vinura vema!  
+‖ 92 ‖
+
+ālimāṭalu vini annadammula rosi  
+verepovuvāḍu verrivāḍu  
+kukkatoka paṭṭi godārīdinā?  
+viśvadābhirāma vinura vema!  
+‖ 93 ‖
+
+GYāniyainavāni mānaka pūjiñchu  
+manujuḍeppuḍu paramunanu mudambu  
+sukhamunanduchuṇḍusūrulu mechchaga  
+viśvadābhirāma vinura vema!  
+‖ 94 ‖
+
+hāni kalugabodu harimadi neñcheḍu  
+vāni kabdu paramu vasudhayandu  
+pūni niśhṭhamīri podalaka yuṇḍumu  
+viśvarābhirāma vinura vema!  
+‖ 95 ‖
+
+alpuḍeppuḍu paluku nāḍambaramugānu  
+sajjanuṇḍu paluku challagānu  
+kañchu moginaṭlu kanakambu mogunā  
+viśvadābhirāma vinura vema!  
+‖ 96 ‖
+
+nyāyaśāstra maraya nanyāyamuna diñchu  
+dharmaśāstra mosagu rugmatambu  
+jyotiśhamu janamula nītula dappiñchu  
+viśvadābhirāma vinura vema!  
+‖ 97 ‖
+
+devuḍanaga vere deśamundunnāḍe  
+dehitoḍa nepuḍu dehamande  
+vāhanamulanekki paḍidoluchunnāḍu  
+viśvadābhirāma vinura vema!  
+‖ 98 ‖
+
+bhūmilona buṭṭu bhūsāramellanu  
+tanuvulona buṭṭu tattvamella  
+śramalona buṭṭu sarvambu tānaunu  
+viśvadābhirāma vinura vema!  
+‖ 99 ‖
+
+vrātakaṇṭe hechchu paramīdu daivambu  
+chetakaṇṭe hechchu vrāta ledu  
+vrāta kajuḍu karta chetaku dākarta  
+viśvadābhirāma vinura vema!  
+‖ 100 ‖
+
+chippalonabaḍḍa chinuku mutyambayye  
+nīṭa baḍḍa chinuku nīṭa galise  
+brāpti galugu choṭa phalamela tappurā  
+viśvadābhirāma vinura vema!  
+‖ 101 ‖
+
+iṇṭi iṇṭilonanīśvaruḍuṇḍaga  
+naṇṭi chūḍaleka yaḍavulandu  
+nuṇṭa meṭañchunundurā jogulai  
+viśvadābhirāma vinura vema!  
+‖ 102 ‖
+
+chittaśuddhi kaligichesina puṇyambu  
+koñchemaina nadiyu kodavagādu  
+vittanambu marri vṛkśhambunaku nento  
+viśvadābhirāma vinura vema!  
+‖ 103 ‖
+
+agnibānā mesi yambudhi niṅkiñchu  
+rāmuḍavali kega rāka, nilichi  
+cheṭlu girulu techchi setuvu gaṭṭaḍā  
+viśvadābhirāma vinura vema!  
+‖ 104 ‖
+
+aidu veḻlu balimi hastambu panicheyu  
+naṃ dokaṇḍu viḍḍa pondu cheḍunu  
+svīyuḍokaḍu viḍina jeḍukadā panibalmi  
+viśvadābhirāma vinura vema!  
+‖ 105 ‖
+
+ātmabuddhi valana nakhilamba tānayye  
+jīvabuddhi valana jīvuḍayye  
+mohabuddhilayamu mundara ganugonu  
+viśvadābhirāma vinura vema!  
+‖ 106 ‖
+
+guṇamulogalavāni kulameñchagānela  
+guṇamu kaligeneni koṭiseyu  
+gaṇamuleka yunna guḍḍigavvayuledu  
+viśvadābhirāma vinura vema!  
+‖ 107 ‖
+
+tallitaṇḍrulandu dayaleni putruṇḍu  
+puṭṭanemi? vāḍu giṭṭanemi?  
+puṭṭaloni chedalu puṭṭadā giṭṭadā  
+viśvadābhirāma vinura vema!  
+‖ 108 ‖
+
+kopamuna ghanata koñchemaipovunu  
+kopamunanu guṇamu koratapaḍunu  
+kopamaṇachaneni korikalīḍeru  
+viśvadābhirāma vinura vema!  
+‖ 109 ‖
+
+elugu tolu techchi eḍādi yutikinā  
+nalupu nalupekāni telupukādu  
+koyyabomma techchi koṭṭite guṇiyone  
+viśvadābhirāma vinura vema!  
+‖ 110 ‖
+
+alpabuddhivānikadhikāramichchina  
+doḍḍavārinella tolagagoṭṭu  
+cheppudineḍu kukka cheraku tīperugunā  
+viśvadābhirāma vinura vema!  
+‖ 111 ‖
+
+paṭṭupaṭṭarādu paṭṭiviḍuvarādu  
+paṭṭeneni bigiya paṭṭavalayu  
+paṭṭuviḍuṭakannā paḍichachchuṭemelu  
+viśvadābhirāma vinura vema!  
+‖ 112 ‖
+
+tummacheṭṭu muṇḍla toḍanepuṭṭunu  
+vittulonanuṇḍu veḍalunaṭlu  
+mūrkhunakunu buddhi mundugā buṭṭanu  
+viśvadābhirāma vinura vema!  
+‖ 113 ‖
+
+kapaṭi veśhamūni kaḍagaṇḍlu paḍanela  
+vipina bhūmi tirigi visuganela  
+yupamutone mukti unnadi chūḍarā  
+viśvadābhi rāma vinura vema  
+‖ 114 ‖
+
+anuvugāni choṭa adhikulamanarādu  
+koñchemunduṭella koduvakādu  
+koṇḍa yaddamandu koñchamai uṇḍadā  
+viśvadābhirāma vinura vema!  
+‖ 115 ‖
+
+manasulonunna marmamanta erigi  
+sthiramu chesi ātma teṭaparichi  
+ghaṭamu nilpavalayu, ghanataliṅkeṭiki  
+viśvadābhi rāmavinura vema!  
+‖ 116 ‖
+
+kadalanīyakuṇḍa gaṭṭigā liṅgambu  
+kaṭṭiveyanemi ghanata kalugu  
+bhāvamandu śivuni bhāviñchi kānarā  
+viśvadābhirāma vinura vema!  
+‖ 117 ‖
+
+meka jaṅkabeṭṭimelaguchu mandalo  
+bramani tirugu golla pagidigānu  
+devunerugaka paradavetala dalachu  
+viśvadābhirāma vinura vema!  
+‖ 118 ‖
+
+tana kula gotramu lākṛti  
+tana sampada kalimi balimi tanakelanayā?  
+tana veṇṭarāvu nijamidi  
+tana satyame toḍuvachchu tanato  
+viśvadābhirāma vinura vema!  
+‖ 119 ‖
+
+kalimigalganemi karuṇa lekuṇḍina  
+kalimi tagune duśhṭakarmulakunu  
+tenegūrpanīga teruvuna bovadā  
+viśvadābhirāma vinura vema!  
+‖ 120 ‖
+
+eṇḍina mānokaṭaḍavini  
+maṇḍina nandagni puṭṭi yūḍchunu cheṭlan  
+daṇḍigala vaṃśamellanu  
+chaṇḍāluṇḍokaḍu puṭṭi chaduvunu vema!  
+‖ 121 ‖
+
+kanulu povuvāḍu kāḻlu poyinavāḍu  
+ubhayularayugūḍi yuṇḍinaṭlu  
+peda peda gūḍi penagoni yuṇḍunu  
+viśvadābhirāmā vinura vema!  
+‖ 122 ‖
+
+māṭalāḍu galgu marmamulerigina  
+pinnapeddatanamu lennavaladu  
+pinnacheti divve peddagā velagadā?  
+viśvadhābhirāma vinura vema!  
+‖ 123 ‖
+
+koṇḍamuchchu peṇḍliki koti peraṇṭālu  
+moṇḍi vāni hituḍu baṇḍavāḍu  
+duṇḍagīḍunakunu koṇḍeḍu daḻavāyi  
+viśvadābhirāmā vinura vema!  
+‖ 124 ‖
+
+jhuśhamu nīru veḍala jachchuṭe siddhamu  
+nīṭanuṇḍaneni nikkipaḍunu  
+aṇḍatolugu neḍala nandara pani aṭle  
+viśvadābhi rāma vinura vema!  
+‖ 125 ‖
+
+talliyeḍva vinaka tanayālu vagachina  
+jālipaḍeḍu vāḍu jaḍuḍu summi  
+tāratamya meruganerani paśuvadi  
+viśvadābhirāma vinura vema!  
+‖ 126 ‖
+
+parulamelu chūsi palukāki vale  
+vaṭṭimāṭalāḍu vāḍu adhamuḍu  
+aṭṭivāni batukuṭadi ela maṇṭikā?  
+viśvadābhirāma vinura vema!  
+‖ 127 ‖
+
+gaṅgi govupālu gariṭaḍainanu chālu  
+kaḍaveḍainanu nemi kharamupālu  
+bhaktikalgukūḍu paṭṭeḍainanu chālu  
+viśvadābhirāma vinura vema!  
+‖ 128 ‖
+
+chikkiyunnaveḻa siṃhambunainanu  
+bakka kukkayainā bādhaseyu  
+balimileni veḻa pantamulu chellavu  
+viśvadābhirāma vinura vema!  
+‖ 129 ‖
+
+panasatonalakanna pañchadāralakanna  
+juṇṭitenekanna junnukanna  
+cheRuku rasamukanna chelula māṭale tīpi  
+viśvadābhirāma vinura vema!  
+‖ 130 ‖
+
+niṇḍunadulu pāru nilachi gambhīramai  
+veRrivāgu pāRu vegaborli  
+alpuḍāḍurīti nadhikuṇḍu nāḍunā  
+viśvadābhirāma vinura vema!  
+‖ 131 ‖
+
+uppulenikūra yoppadu ruchulaku  
+pappuleni tiṇḍi phalamuledu  
+appulenivāḍe yadhika sampannuḍu  
+viśvadābhirāma vinura vema!  
+‖ 132 ‖
+
+pasula vanne veru pālella okkaṭi  
+puśhpajāti veru pūja okaṭi  
+darśanambulāru daivambu okkaṭi  
+viśvadābhirāma vinura vema!  
+‖ 133 ‖
+
+champadagina śatṛvu tanacheta  
+chikkeneni kīḍu cheyarādu  
+posaga melu chesi pommanuṭe melu  
+viśvadābhirāma vinura vema!  
+‖ 134 ‖
+
+āpadagala veḻa arasi bandhuvu jūḍu  
+bhayamu veḻa jūḍu baṇṭutanamu  
+pedaveḻa jūḍu peṇḍlāmu guṇamu  
+viśvadābhirāma vinura vema!  
+‖ 135 ‖
+
+uppu kappurambu okka polikanuṇḍu  
+chūḍa chūḍa ruchula jāḍa veru  
+puruśhulandu puṇya puruśhulu veraya  
+viśvadābhirāma vinura vema!  
+‖ 136 ‖
+
+ātma śuddi leni yāchāramadiyela  
+bhāṇḍaśuddi leni pāka mela  
+chittaśuddileni śivapūjalelarā  
+viśvadābhirāma vinura vema!  
+‖ 137 ‖
+
+yinumu viraganeni yinumūru mummāru  
+kāchiyetakavachchu gramamu gānu  
+manasu virigeneni mari chercarādayā  
+viśvadābhirāma vinura vema!  
+‖ 138 ‖
+
+kuṇḍa kumbhamanna koṇḍa parvatamanna  
+nuppu lavaṇamanna nokaṭi kāde  
+bhāśha liṭṭe veru paratatvamokaṭe  
+viśvadābhirāma vinura vema!  
+‖ 139 ‖
+
+anaga nanaga rāga matiśa yilluchunuṇḍu  
+dinaga dinaga vemu tiyyanuṇḍu  
+sādhanamuna panulu samakūru dharalona  
+viśvadābhirāma vinura vema!  
+‖ 140 ‖
+
+cheppuloni rāyi cheviloni jorīga   
+kaṇṭiloni nalusu kāli mullu  
+iṇṭiloni poru nintinta gādayā  
+viśvadābhirāma vinura vema!  
+‖ 141 ‖
+
+tappu lennuvāru taṇḍopa taṇḍambu   
+lurvi janulakella nuṇḍu tappu  
+tappu lennuvāru tama tappulerugaru  
+viśvadābhirāma vinura vema!  
+‖ 142 ‖
+
+mirapa giñja chūḍa mīda nallaganuṇḍu   
+koriki jūḍalona jurukumanunu  
+sajjanu lagu vāri sāra miṭluṇḍu  
+viśvadābhirāma vinura vema!  
+‖ 143 ‖
+
+meḍipaṇḍu chūḍa melimai yuṇḍunu   
+poṭṭavichchi chūḍa puruguluṇḍu  
+pirikivāni madini biṅkamīlāgurā  
+viśvadābhirāma vinura vema!  
+‖ 144 ‖
+
+veru purugu cheri vṛkśhambu jeruchunu   
+chīḍapurugu cheri cheṭṭu jerachu  
+kutsituṇḍu cheri guṇavantu jerachurā  
+viśvadābhirāma vinura vema!  
+‖ 145 ‖
+
+veśhabhāśha lerigi kāśhayavastramul   
+gaṭṭagāne mukti galugabodu  
+talalu boḍulṛna talapulū boḍūlā  
+viśvadābhirāma vinura vema!  
+‖ 146 ‖
+
+### PlainEnglish
+
+#### vemana shatakam
+
+talapulona galugu daa daivame pr.oddu  
+talachi chooDanataku tatvamagunu  
+vooRakuMDa nervunuttama yogiraa  
+vishvadaabhiraama vinura vema!  
+‖ 1 ‖
+
+tana virakti yan.eDi daasi chetanu jikki  
+migili v.eDalaveka miNukuchunna  
+naruDi keDamukti varal.eDi ch.eppaDee  
+vishvadaabhiraama vinura vema!  
+‖ 2 ‖
+
+tanadu manasucheta darkiMchi jyotishha  
+m.eMta chese nanuchu n.eMchi choochu,  
+tana yadRRishhTamaMta daiva m.eRuMgaDaa?  
+vishvadaabhiraama vinura vema!  
+‖ 3 ‖
+
+Teeka vraasinaTlenekulu p.eddalu  
+lokamaMdu j.eppi maMchu  
+kaakulaTTi janula kaanaree marmamu  
+vishvadaabhiraama vinura vema!  
+‖ 4 ‖
+
+gnyaanam.enna guruvu gnyaanahainyamu buddhi  
+r.eMTinaMdu rimmarechunapuDu  
+rimma t.elip.eneni r.eMD.oka roopuraa  
+vishvadaabhiraama vinura vema!  
+‖ 5 ‖
+
+jaaNalamani yaMdru chapalaatmulaguvaaru  
+t.elivileka tammut.eliyaleru  
+kashhTamaina yaDavi gaaseeluchunnaaru  
+vishvadaabhiraama vinura vema!  
+‖ 6 ‖
+
+janana maraNamulana svapna sushhuptulu  
+jagamulaMdu n.eMDa jagamuluMDu  
+naruDu jagamunaMTa naDubaaTu kaad.oko  
+vishvadaabhiraama vinura vema!  
+‖ 7 ‖
+
+Chaayanan.osaguch.eTlu saadhuvu bodhaTTu  
+laDagi darinijeri paDayavachchu  
+naTTuniTTu daaTanadi povunidi raama  
+vishvadaabhiraama vinura vema!  
+‖ 8 ‖
+
+naruD.eyaina leka naaraayaNuMDaina  
+tattvabaddhuDaina daraNi naraya  
+maraNamunnadanuchu madini nammagaval.e  
+vishvadaabhiraama vinura vema!  
+‖ 9 ‖
+
+dvaaraMbaMdhamunaku dalupulu gaDiyalu  
+val.en.e noTik.oppugala niyatulu  
+dharmam.erigi paluka dhanyuMDau bhuvilona  
+vishvadaabhiraama vinura vema!  
+‖ 10 ‖
+
+brahmaghaTamu menu praaNaMbu tagagaali  
+mitrachaMdra shikhulu netrachayamu  
+maRiyu brahmamanaga mahimeeda ledayaa  
+vishvadaabhiraama vinura vema!  
+‖ 11 ‖
+
+yoginanuchu g.oMta yogamugoorchaka  
+jagamun.ellabaTTa chaMpi tinuchu  
+dhanamu k.oRaku vaaDu tagavaaDuchuMDina  
+yogikaaDu vaaD.e yogu vema!  
+‖ 12 ‖
+
+ardha yaMkaNamuna kaadhaaramainaTTi  
+y.oMTimeDa guMju n.onaranilp.e  
+niMTik.oka magaMD.e yillaaMDrunedguru  
+vishvadaabhiraama vinura vema!  
+‖ 13 ‖
+
+annadaanamunaku nadhika saMpadagalgi  
+yamaraloka poojyuDagunu meeRu  
+annamagunu brahmamadi kanalerayaa  
+vishvadaabhiraama vinura vema!  
+‖ 14 ‖
+
+b.oMdi y.evari s.ommu poshhiMpabalumaaru  
+praaNa m.evari s.ommu bhaktiseya,  
+dhanamad.evaris.ommu dharmam.e tana s.ommu  
+vishvadaabhiraama vinura vema!  
+‖ 15 ‖
+
+paMDuvalana buTT.e baraga prapaMchamu  
+paMDuvalana buTT.e paramu nihamu  
+paMDu mel.eRiMg.e brahlaaduDilalona  
+vishvadaabhiraama vinura vema!  
+‖ 16 ‖
+
+tapamuvela? yaraya dhaatrijanulak.ella  
+n.onara shivuni jooDa nupama galadu  
+manasu chadaraneeka mahilona jooDaraa  
+vishvadaabhiraama vinura vema!  
+‖ 17 ‖
+
+tanaguNamu tanaku nuMDaga  
+n.enayaMgaa noruni guNamu n.eMchunu madilo  
+dana guNamu t.eliya kanyuni  
+banig.oni dooshhiMchuvaaDu vyarthuDu vema!  
+‖ 18 ‖
+
+jaalin.oMdaraadu javadaaTi kanaraadu  
+adi moolamaina aatmamaRugu  
+poricheri p.oMdi poorNamu naMduraa  
+vishvadaabhiraama vinura vema!  
+‖ 19 ‖
+
+jaati, matamu viDichi chani yogikaamelu  
+jaatito n.eyunna neetivalad.e  
+matamubaTTi jaati maanakuMTa k.oRaMta  
+vishvadaabhiraama vinura vema!  
+‖ 20 ‖
+
+neevaninanu nenaninanu  
+bhaavammuna n.eRukay.okka paddhatiyagunaa  
+bhaavaMbu d.elisi madini  
+rbhaavamugaa ninnu ganuTa paramagu vema!  
+‖ 21 ‖
+
+neeLla munugunela? nidhula m.eTTaganela  
+m.onasi velpulakunu mr.okkanela  
+kapaTa kalmashhamulu kaDupulo nuMDagaa  
+vishvadaabhiraama vinura vema!  
+‖ 22 ‖
+
+paMcha mukhamulaMdu baMchaakshhari janiMch.e  
+paMcha varNamulanu prabal.e jagamu  
+paMchamukhuni meeru prastuti cheyuMDee  
+vishvadaabhiraama vinura vema!  
+‖ 23 ‖
+
+neyi v.enna kaachi neeDane yuMchina  
+beri gaTTipaDunu p.erugureeti  
+poripori madini poneeka paTTumu  
+vishvadaabhiraama vinura vema!  
+‖ 24 ‖
+
+maMTikuMDavaMTi maaya shareeraMbu  
+chachchun.ennaDaina, chaavadaatma  
+ghaTamul.enniyaina gaganam.okkaTegadaa,  
+vishvadaabhiraama vinura vema!  
+‖ 25 ‖
+
+maMTa lohamaMdu mraakula shilalaMdu  
+paTamulaMdu goDapratimalaMdu  
+tannud.eliyu k.oRakudaguladaa paramaatma  
+vishvadaabhiraama vinura vema!  
+‖ 26 ‖
+
+nimishhamainanu madi nilchi nirmalamuga  
+liMga jeevaaveshulanu gaaMchi bhaMgapaDaka  
+pooja madiyaMdu jeruTa poorNapadavi  
+paramu gorina nidicheya baagu vema!  
+‖ 27 ‖
+
+dhoomaadula naavRRitamai  
+vyomaMbunak.egani kaliyu nupamulu tanalo  
+shreemiMchu shivuni jerunu  
+gaamaadula galiyaDataDu ghanamuga vema!  
+‖ 28 ‖
+
+pagaluDuga naasaluDugunu  
+vagapuDugaM gork.eluDugu vaDi janmaMbul  
+taguluDugu bhogamuDigina  
+triguNaMbunu naDuga mukti t.eruvagu vema!  
+‖ 29 ‖
+
+paala neeTi kalata paramahaMsa m.eRugunu  
+neeru paalu n.eTlu nerchun.emali  
+lagnyuDaina heenuDala shivu n.eRugunaa?  
+vishvadaabhiraama vinura vema!  
+‖ 30 ‖
+
+puTTu puTTalede puDamini janul.ella  
+puTTi giTTaled.e poorvul.evaru  
+puTTi giTTuT.ella vaTTi bhraaMtulu sumee,  
+vishvadaabhiraama vinura vema!  
+‖ 31 ‖
+
+parula vittamaMdu bhraaMti vaasinayaTTi  
+purushhuDavanilona puNyamoorti  
+parula vittamaraya paapasaMchitamagu  
+vishvadaabhiraama vinura vema!  
+‖ 32 ‖
+
+paradhanaMbulakunu praaNamulichchunu  
+satyamaMtaleka jaaraDagunu  
+dvijulamaMchu niMtrutejamiMchukaledu  
+vishvadaabhiraama vinura vema!  
+‖ 33 ‖
+
+noru palakavachchu nuDi vraayagaraadu  
+vraatakanna saakshhi valavadanna  
+paragaleni vraata bhaMga paaTuMd.echchu  
+vishvadaabhiraama vinura vema!  
+‖ 34 ‖
+
+nijamaakalla r.eMDu neelakaMThuD.eRuMgu  
+nijamulaaDakunna neetidappu  
+nijamulaaDunapuDu nee roopamanavachchu  
+vishvadaabhiraama vinura vema!  
+‖ 35 ‖
+
+dashagalaarin.ella dama baMdhuvu laTaMDru  
+dashayalemi n.eMtru takkuvaganu  
+dashayana gama dhana dasham.okkaTe dasha  
+vishvadaabhiraama vinura vema!  
+‖ 36 ‖
+
+taamasiMchi cheyadaga d.eTTi kaaryaMbu  
+vegiriMpa nadiyu vishhamagunu  
+pachchikaayad.echchi paDaveya phalamaune  
+vishvadaabhiraama vinura vema!  
+‖ 37 ‖
+
+tallibiDDalakunu tagavu puTTiMch.eDi  
+dhanamu sukhamu goorchunani gaDiMtru  
+kaani y.ellay.eDala ghana duHkhan^damadi  
+vishvadaabhiraama vinura vema!  
+‖ 38 ‖
+
+tallidaMDrul.ennadagu t.oli guruvulu  
+paarvateebhavu lilabaramagurulu  
+koolivaaMDra jagati gurulana drohamu  
+vishvadaabhiraama vinura vema!  
+‖ 39 ‖
+
+taamasiMchi cheyadaga d.eTTi kaaryaMbu  
+vegiriMpa nadiyu vishhamagunu  
+pachchikaayad.echchi paDaveya phalamaune  
+vishvadaabhiraama vinura vema!  
+‖ 40 ‖
+
+puTTu puTTalede puDamini janul.ella  
+puTTi giTTaled.e poorvul.evaru  
+puTTi giTTuT.ella vaTTi bhraaMtulu sumee,  
+vishvadaabhiraama vinura vema!  
+‖ 41 ‖
+
+p.eTTipoyaleni vaTTi deb.elu bhoomi  
+buTTiremi vaaru giTTaremi  
+puTTaloni ch.edalu puTTadaa giTTadaa!  
+vishvadaabhiraama vinura vema!  
+‖ 42 ‖
+
+lokamaMdubuTTi lokamaMd.e p.erigi  
+loka vibhavamorvaleka januDu  
+lokamaMdu janiki lobaDi ch.eDipovunu  
+vishvadaabhiraama vinura vema!  
+‖ 43 ‖
+
+madi galigina pooja madanaari m.echchunu  
+manasu nilsinaMta mahituDagunu  
+manasuleni pooja maTTi samaanamu  
+vishvadaabhiraama vinura vema!  
+‖ 44 ‖
+
+taamunu janulemanu k.ona  
+boonuduro daani sarasi p.oMdina jaDanee,  
+raani padhaMbuna naDichina  
+daanan.e dharmaatmuDaMDru tanniTa vema!  
+‖ 45 ‖
+
+madamu valana galugu maaTalu maRipalki  
+mruchchu saddulan.ogi mosapuchchi  
+kaasuraab.enag.eDu kashhThuMDu guruDaune?  
+vishvadaabhiraama vinura vema!  
+‖ 46 ‖
+
+manase maayaa mRRigamau  
+mananemiTi paikigaanee maNiponeekaa  
+manasuna manasunu jaMpina  
+manaMde muktigaladu mahilo vema!  
+‖ 47 ‖
+
+maMtram.okaTi ch.eppi maRi devataarchana  
+chesi tamakugaruNach.eMdinadani  
+vedapaThana chesi v.errulai poduru,  
+vishvadaabhiraama vinura vema!  
+‖ 48 ‖
+
+maThamuloniyogi maayalanniyugosi  
+ghaTamulona nunna ghanunid.elisi  
+maaTa maaTakuguru maruvaka t.elupuraa,  
+vishvadaabhiraama vinura vema!  
+‖ 49 ‖
+
+tirigi vachchuveLa maralipoy.eDi veLa  
+v.eMTa deru dhanamu vaMTaboru  
+t.on.eTaku janun.o dhanam.eMdu bovuno  
+vishvadaabhiraama vinura vema!  
+‖ 50 ‖
+
+aashayan.eDu daani gosiveyagaaleka  
+m.ohabuddi valana munuguvaaru  
+kaashivaasulaina ganaboru mokshhamu  
+vishvadaabhiraama vinura vema!  
+‖ 51 ‖
+
+chittamaneDi vere shithilamainappuDe  
+prakRRiti yan.eDi ch.eTTu paDunu pidapa  
+gorkulan.eDi p.eddak.ommal.eMDunu gadaa  
+vishvadaabhiraama vinura vema!  
+‖ 52 ‖
+
+bhogaMbula kaashiMpaka  
+raagadveshhaMbu raMguDadamalo  
+vegam.e mokshha padaMbunu  
+raaganu naataMDu yogiraayuDu vema!  
+‖ 53 ‖
+
+chanuvaar.ellanu janulaM  
+janipoyina vaari puNya satkathal.ellan  
+vinaval.e ganaval.e manaval.e  
+nani mashhulaku d.elusagooDa daMtyamu vema!  
+‖ 54 ‖
+
+aashayan.eDi traalla nakhila janaMbulu  
+kaTTupaDuchu muktigaanarairi  
+gnyaanakhaDgamunanu khaMDiMpa raad.oko  
+vishvadaabhiraama vinura vema!  
+‖ 55 ‖
+
+atithi raaka choochi yadaliMchi paDavaichi  
+kaThina chitulaguchu gaanaleru  
+karmamunaku muMdu dharmamu gaanaro  
+vishvadaabhiraama vinura vema!  
+‖ 56 ‖
+
+tanu valachina daavalachunu tanu  
+valavaka yunnan.enaDu taavalava Dilan  
+tanadu paTaaTopaMbulu tana  
+maayalu panikiraavu dharalona vema!  
+‖ 57 ‖
+
+maaTalaaDa vachchu manasu nilvagaledu  
+t.elupavachchu dannu t.eliyaledu  
+suriyabaTTavachchu shooruDu kaaleDu  
+vishvadaabhiraama vinura vema!  
+‖ 58 ‖
+
+tanakenaaDu subhikshhamu  
+tanakenaaDunu bhagaMbu tanaravayunaM  
+chunu tana dashakai y.ell.eDa  
+manasaMduna jivukuchuMDu mahilo vema!  
+‖ 59 ‖
+
+.eMDina maa n.okaTaDavini  
+maMDina naMdagni puTTi yooDchunu ch.eTlan  
+daMDigala vaMsham.ellanu  
+chaMDaaluMD.okaDu puTTi chadupunu vema!  
+‖ 60 ‖
+
+nijamu t.elisiyunna sujinuDaanijamun.e  
+palukavalayugaani parulak.oraku  
+chaavakooDa diMka nopadavyaM palka  
+vishvadaabhiraama vinura vema!  
+‖ 61 ‖
+
+taamunu janulemanu k.ona  
+boonuduro daani sarasi p.oMdina jaDanee,  
+raani padhaMbuna naDichina  
+daanan.e dharmaatmuDaMDru tanniTa vema!  
+‖ 62 ‖
+
+viniyu vinakayuMDu kaniyu ganaka yuMDu  
+talachi talapakuMDu taanu yogi  
+manujavarulacheta maNipooja g.onuchuMDu  
+vishvadaabhiraama vinura vema!  
+‖ 63 ‖
+
+v.enna chetabaTTi vivaraMbu t.eliyaka  
+ghRRitamu korunaTTi yatani bhaMDi  
+taanu daivamayyu daivaMbu dalachunu  
+vishvadaabhiraama vinura vema!  
+‖ 64 ‖
+
+roopuvaMka peru rooDhigaa niluchunu  
+peruvaMka kriyalu p.enaguchuMDu  
+naashamaunu tudaku naamaroopa kriyal  
+vishvadaabhiraama vinura vema!  
+‖ 65 ‖
+
+lobhamohamulanu praabhavamulu tappu  
+talachina panul.ella tappi chanunu  
+taan.okaTi dalachina daivam.oMDaguchuMDu  
+vishvadaabhiraama vinura vema!  
+‖ 66 ‖
+
+shaaMtame janulanu jayamun.oMdiMchunu  
+shaaMtamunan.e guruvu jaaDa t.eliyu  
+shaaMta bhaava mahima jarchiMpalemayaa  
+vishvadaabhiraama vinura vema!  
+‖ 67 ‖
+
+veshhadhaarin.epuDu vishvasiMpagaraadu  
+veshhadoshhamul.oka vidhay.e yagunu  
+raTTukaad.e munupu raavaNu veshhaMbu  
+vishvadaabhiraama vinura vema!  
+‖ 68 ‖
+
+iMgalaMbu toDa nila salputoDanu  
+paruni yaalitoDa patitutoDa  
+sarasamaaDuT.ella chaavuku moolamu  
+vishvadaabhiraama vinura vema!  
+‖ 69 ‖
+
+aikamatyam.okka TaavashyakaM b.epDu  
+daani balimi n.eMtayaina gooDu  
+gaDDi v.eMTa b.eTTi kaTTaraa yenuMgu  
+vishvadaabhiraama vinura vema!  
+‖ 70 ‖
+
+taamasiMchi cheyadagad.eTTi kaaryaMbu  
+vegiriMpa nadiyu vishhamagunu  
+pachchikaayad.echchi paDaveya phalamaunaa?  
+vishvadaabhiraama vinura vema!  
+‖ 71 ‖
+
+tallee biDDalaku tagavu puTTiMch.eDi  
+dhanamu sukhamu goorchunani gaDiMtru  
+kaaneey.ella y.eDala ghana duHkhakaramadi  
+vishvadaabhiraama vinura vema!  
+‖ 72 ‖
+
+d.oMgamaaTalaaDa d.orukun.e mokshhamu  
+chetagaani paluku cheTud.echchu  
+guruvupaddu kaadu gunahainya madiyagu  
+vishvadaabhiraama vinura vema!  
+‖ 73 ‖
+
+naluguru kala choTanu daa  
+dala choopuchu m.elaguchuMDi dhanyaata ganagaa  
+dalach.eDi yaataDu nichchalu  
+gala maaTale palukuchuMDagaa dagu vema!  
+‖ 74 ‖
+
+naDuchunichchu natani batt.emichchina vaani  
+kaDupu challajesi ghanata viDuchu  
+naDupa nera nera nataDu naali muchchegadaa  
+vishvadaabhiraama vinura vema!  
+‖ 75 ‖
+
+paduguraaDumaaTa paaDiyai dharaj.ellu  
+n.okkaDaaDumaaTa y.ekkad.eMdu  
+voorakuMDu vaani koor.ella nopadu  
+vishvadaabhiraama vinura vema!  
+‖ 76 ‖
+
+pataka maMdu n.oppu palu ratnamula p.eMpu  
+baMgaraMdu koorpa baruvu ganunu  
+gaani yitara lohamaina heenamu gaad.e  
+vishvadaabhiraama vinura vema!  
+‖ 77 ‖
+
+jannamulanu mariyu janniyala naneka  
+mula n.onarchiyunna phalamukaana  
+raaka yuMDu neeti lekunna maatraana  
+vishvadaabhiraama vinura vema!  
+‖ 78 ‖
+
+tappu paluku paliki taatoTa chesina  
+kooDiyuna lakshhmee kruMgipovu  
+noTikuMDa neellu n.onaragaa niluchunaa  
+vishvadaabhiraama vinura vema!  
+‖ 79 ‖
+
+bhoomi naadi yanina bhoomi phakkuna navvu  
+daana heenuM joochi dhanamu navvu  
+kadana bheetuM joochi kaaluMDu navvunu  
+vishvadaabhiraama vinura vema!  
+‖ 80 ‖
+
+neeti jyotileka nirmalaMbagu nedi  
+.eTlu kalagubara mad.eMtayaina  
+dhanamu galigiyunna daivaMbu galugadu  
+vishvadaabhiraama vinura vema!  
+‖ 81 ‖
+
+pagayuDagu gopamuDigina  
+pagayuDugan^^ kork.eluDugu barajanmaMpuM  
+daguluDugu bhedamuDigina  
+triguNamu luDugaMga mukti sthiramagu vema!  
+‖ 82 ‖
+
+pappuleni kooDu parulakosahyame  
+yuppuleni vaaD.e yadhika baluDu  
+muppuleni vaaDu m.odaTi sujjaaniraa  
+vishvadaabhiraama vinura vema!  
+‖ 83 ‖
+
+nikkamaina maMchi neelam.okkaTi chaalu  
+taLuku b.eLuku raalu taTT.eDela  
+chaduva padyamaraya jaaladaa y.okkaTi  
+vishvadaabhiraama vinura vema!  
+‖ 84 ‖
+
+parula dattam.oppi paalanachesina  
+nila svadattamunaku vinu maDiyagu  
+navani parula datta mahapariMpaga raadu  
+vishvadhaabiraama vinura vema!  
+‖ 85 ‖
+
+nijamulaaDu vaani niMdiMchu jagam.ella  
+nijamu balkaraadu neechulakaDa  
+nija mahaatmugooDa nijamaaDavalayuraa  
+vishvadaabhiraama vinura vema!  
+‖ 86 ‖
+
+paduguraaDumaaTa paaDiyai dharaj.ellu  
+n.okkaDaaDumaaTa y.ekkad.eMdu  
+voorakuMDu vaani koor.ella nopadu  
+vishvadaabhiraama vinura vema!  
+‖ 87 ‖
+
+parula melu choochi palugaaki val.e n.eppu  
+vaTTi maaTalaaDu vaaDadhamuDu  
+aTTi vaani bratuku Tadiyela maMTikaa  
+vishvadhaabiraama vinura vema!  
+‖ 88 ‖
+
+bhayamaMtayu dehamunak.e  
+bhaya muDigina nishchayaMbu paramaatmunake  
+layamaMtayu jeevunake  
+jayamaatmaku nanuchu jagatiM jaaTura vema!   
+‖ 89 ‖
+
+bhoomi naadi yanina bhoomi phakkuna navvu  
+daana heenuM joochi dhanamu navvu  
+kadana bheetuM joochi kaaluMDu navvunu  
+vishvadaabhiraama vinura vema!  
+‖ 90 ‖
+
+maaTaj.eppa vinani manujuDu moorkhuDu  
+maaTa vinna naruDu maanuDagunu  
+maaTa vinaga j.eppa maanuTa kooDadu  
+vishvadaabhiraama vinura vema!  
+‖ 91 ‖
+
+manasu t.elisi y.okani maaTaku bratich.eppa  
+saMtasiMchu nataDu chaalam.echchu  
+manasu d.eliyakunnaDaniyuchu nanunedo  
+vishvadaabhiraama vinura vema!  
+‖ 92 ‖
+
+aalimaaTalu vini annadammula rosi  
+verepovuvaaDu v.errivaaDu  
+kukkatoka paTTi godaareedinaa?  
+vishvadaabhiraama vinura vema!  
+‖ 93 ‖
+
+gnyaaniyainavaani maanaka poojiMchu  
+manujuD.eppuDu paramunanu mudaMbu  
+sukhamunaMduchuMDusoorulu m.echchaga  
+vishvadaabhiraama vinura vema!  
+‖ 94 ‖
+
+haani kalugabodu harimadi n.eMch.eDu  
+vaani kabdu paramu vasudhayaMdu  
+pooni nishhThameeri p.odalaka yuMDumu  
+vishvaraabhiraama vinura vema!  
+‖ 95 ‖
+
+alpuD.eppuDu paluku naaDaMbaramugaanu  
+sajjanuMDu paluku challagaanu  
+kaMchu moginaTlu kanakaMbu mogunaa  
+vishvadaabhiraama vinura vema!  
+‖ 96 ‖
+
+nyaayashaastra maraya nanyaayamuna diMchu  
+dharmashaastra m.osagu rugmataMbu  
+jyotishhamu janamula neetula dappiMchu  
+vishvadaabhiraama vinura vema!  
+‖ 97 ‖
+
+devuDanaga vere deshamuMdunnaaD.e  
+dehitoDa n.epuDu dehamaMd.e  
+vaahanamulan.ekki paDidoluchunnaaDu  
+vishvadaabhiraama vinura vema!  
+‖ 98 ‖
+
+bhoomilona buTTu bhoosaaram.ellanu  
+tanuvulona buTTu tattvam.ella  
+shramalona buTTu sarvaMbu taanaunu  
+vishvadaabhiraama vinura vema!  
+‖ 99 ‖
+
+vraatakaMT.e h.echchu parameedu daivaMbu  
+chetakaMT.e h.echchu vraata ledu  
+vraata kajuDu karta chetaku daakarta  
+vishvadaabhiraama vinura vema!  
+‖ 100 ‖
+
+chippalonabaDDa chinuku mutyaMbayy.e  
+neeTa baDDa chinuku neeTa galis.e  
+braapti galugu choTa phalamela tappuraa  
+vishvadaabhiraama vinura vema!  
+‖ 101 ‖
+
+iMTi iMTilonaneeshvaruDuMDaga  
+naMTi chooDaleka yaDavulaMdu  
+nuMTa meTaMchunuMduraa jogulai  
+vishvadaabhiraama vinura vema!  
+‖ 102 ‖
+
+chittashuddhi kaligichesina puNyaMbu  
+k.oMch.emaina nadiyu k.odavagaadu  
+vittanaMbu marri vRRikshhaMbunaku n.eMto  
+vishvadaabhiraama vinura vema!  
+‖ 103 ‖
+
+agnibaanaa mesi yaMbudhi niMkiMchu  
+raamuDavali kega raaka, nilichi  
+ch.eTlu girulu t.echchi setuvu gaTTaDaa  
+vishvadaabhiraama vinura vema!  
+‖ 104 ‖
+
+aidu veLlu balimi hastaMbu panicheyu  
+naM d.okaMDu viDDa p.oMdu ch.eDunu  
+sveeyuD.okaDu viDina j.eDukadaa panibalmi  
+vishvadaabhiraama vinura vema!  
+‖ 105 ‖
+
+aatmabuddhi valana nakhilaMba taanayy.e  
+jeevabuddhi valana jeevuDayy.e  
+mohabuddhilayamu muMdara ganug.onu  
+vishvadaabhiraama vinura vema!  
+‖ 106 ‖
+
+guNamulogalavaani kulam.eMchagaanela  
+guNamu kalig.eneni koTiseyu  
+gaNamuleka yunna guDDigavvayuledu  
+vishvadaabhiraama vinura vema!  
+‖ 107 ‖
+
+tallitaMDrulaMdu dayaleni putruMDu  
+puTTanemi? vaaDu giTTanemi?  
+puTTaloni ch.edalu puTTadaa giTTadaa  
+vishvadaabhiraama vinura vema!  
+‖ 108 ‖
+
+kopamuna ghanata k.oMch.emaipovunu  
+kopamunanu guNamu k.oratapaDunu  
+kopamaNachaneni korikaleeDeru  
+vishvadaabhiraama vinura vema!  
+‖ 109 ‖
+
+.elugu tolu t.echchi eDaadi yutikinaa  
+nalupu nalupekaani t.elupukaadu  
+k.oyyab.omma t.echchi k.oTTite guNiyon.e  
+vishvadaabhiraama vinura vema!  
+‖ 110 ‖
+
+alpabuddhivaanikadhikaaramichchina  
+d.oDDavaarin.ella t.olagag.oTTu  
+ch.eppudin.eDu kukka ch.eraku teep.erugunaa  
+vishvadaabhiraama vinura vema!  
+‖ 111 ‖
+
+paTTupaTTaraadu paTTiviDuvaraadu  
+paTT.eneni bigiya paTTavalayu  
+paTTuviDuTakannaa paDichachchuTemelu  
+vishvadaabhiraama vinura vema!  
+‖ 112 ‖
+
+tummach.eTTu muMDla toDanepuTTunu  
+vittul.onanuMDu v.eDalunaTlu  
+moorkhunakunu buddhi muMdugaa buTTanu  
+vishvadaabhiraama vinura vema!  
+‖ 113 ‖
+
+kapaTi veshhamooni kaDagaMDlu paDanela  
+vipina bhoomi tirigi visuganela  
+yupamutone mukti unnadi chooDaraa  
+vishvadaabhi raama vinura vema  
+‖ 114 ‖
+
+anuvugaani choTa adhikulamanaraadu  
+k.oMch.emuMduT.ella k.oduvakaadu  
+k.oMDa yaddamaMdu k.oMchamai uMDadaa  
+vishvadaabhiraama vinura vema!  
+‖ 115 ‖
+
+manasulonunna marmamaMta .erigi  
+sthiramu chesi aatma teTaparichi  
+ghaTamu nilpavalayu, ghanataliMkeTiki  
+vishvadaabhi raamavinura vema!  
+‖ 116 ‖
+
+kadalaneeyakuMDa gaTTigaa liMgaMbu  
+kaTTiveyanemi ghanata kalugu  
+bhaavamaMdu shivuni bhaaviMchi kaanaraa  
+vishvadaabhiraama vinura vema!  
+‖ 117 ‖
+
+meka jaMkab.eTTim.elaguchu maMdalo  
+bramani tirugu g.olla pagidigaanu  
+devun.erugaka paradavetala dalachu  
+vishvadaabhiraama vinura vema!  
+‖ 118 ‖
+
+tana kula gotramu laakRRiti  
+tana saMpada kalimi balimi tanakelanayaa?  
+tana v.eMTaraavu nijamidi  
+tana satyame toDuvachchu tanato  
+vishvadaabhiraama vinura vema!  
+‖ 119 ‖
+
+kalimigalganemi karuNa lekuMDina  
+kalimi tagun.e dushhTakarmulakunu  
+ten.egoorpaneega t.eruvuna bovadaa  
+vishvadaabhiraama vinura vema!  
+‖ 120 ‖
+
+.eMDina maan.okaTaDavini  
+maMDina naMdagni puTTi yooDchunu ch.eTlan  
+daMDigala vaMsham.ellanu  
+chaMDaaluMD.okaDu puTTi chaduvunu vema!  
+‖ 121 ‖
+
+kanulu povuvaaDu kaaLlu poyinavaaDu  
+ubhayularayugooDi yuMDinaTlu  
+peda peda gooDi p.enag.oni yuMDunu  
+vishvadaabhiraamaa vinura vema!  
+‖ 122 ‖
+
+maaTalaaDu galgu marmamul.erigina  
+pinnap.eddatanamu l.ennavaladu  
+pinnacheti divv.e p.eddagaa v.elagadaa?  
+vishvadhaabhiraama vinura vema!  
+‖ 123 ‖
+
+k.oMDamuchchu p.eMDliki koti peraMTaalu  
+m.oMDi vaani hituDu baMDavaaDu  
+duMDageeDunakunu k.oMD.eDu daLavaayi  
+vishvadaabhiraamaa vinura vema!  
+‖ 124 ‖
+
+jhushhamu neeru v.eDala jachchuTe siddhamu  
+neeTanuMDaneni nikkipaDunu  
+aMDat.olugu n.eDala naMdara pani aTle  
+vishvadaabhi raama vinura vema!  
+‖ 125 ‖
+
+talliyeDva vinaka tanayaalu vagachina  
+jaalipaD.eDu vaaDu jaDuDu summi  
+taaratamya m.eruganerani pashuvadi  
+vishvadaabhiraama vinura vema!  
+‖ 126 ‖
+
+parulamelu choosi palukaaki val.e  
+vaTTimaaTalaaDu vaaDu adhamuDu  
+aTTivaani batukuTadi ela maMTikaa?  
+vishvadaabhiraama vinura vema!  
+‖ 127 ‖
+
+gaMgi govupaalu gariTaDainanu chaalu  
+kaDav.eDainanu nemi kharamupaalu  
+bhaktikalgukooDu paTT.eDainanu chaalu  
+vishvadaabhiraama vinura vema!  
+‖ 128 ‖
+
+chikkiyunnaveLa siMhaMbunainanu  
+bakka kukkayainaa baadhaseyu  
+balimileni veLa paMtamulu ch.ellavu  
+vishvadaabhiraama vinura vema!  
+‖ 129 ‖
+
+panasat.onalakanna paMchadaaralakanna  
+juMTiten.ekanna junnukanna  
+ch.eRuku rasamukanna ch.elula maaTal.e teepi  
+vishvadaabhiraama vinura vema!  
+‖ 130 ‖
+
+niMDunadulu paaru nilachi gaMbheeramai  
+v.eRrivaagu paaRu vegab.orli  
+alpuDaaDureeti nadhikuMDu naaDunaa  
+vishvadaabhiraama vinura vema!  
+‖ 131 ‖
+
+uppulenikoora y.oppadu ruchulaku  
+pappuleni tiMDi phalamuledu  
+appulenivaaD.e yadhika saMpannuDu  
+vishvadaabhiraama vinura vema!  
+‖ 132 ‖
+
+pasula vann.e veru paal.ella .okkaTi  
+pushhpajaati veru pooja .okaTi  
+darshanaMbulaaru daivaMbu .okkaTi  
+vishvadaabhiraama vinura vema!  
+‖ 133 ‖
+
+chaMpadagina shatRRivu tanacheta  
+chikk.eneni keeDu cheyaraadu  
+p.osaga melu chesi p.ommanuTe melu  
+vishvadaabhiraama vinura vema!  
+‖ 134 ‖
+
+aapadagala veLa arasi baMdhuvu jooDu  
+bhayamu veLa jooDu baMTutanamu  
+pedaveLa jooDu p.eMDlaamu guNamu  
+vishvadaabhiraama vinura vema!  
+‖ 135 ‖
+
+uppu kappuraMbu .okka polikanuMDu  
+chooDa chooDa ruchula jaaDa veru  
+purushhulaMdu puNya purushhulu veraya  
+vishvadaabhiraama vinura vema!  
+‖ 136 ‖
+
+aatma shuddi leni yaachaaramadiyela  
+bhaaMDashuddi leni paaka mela  
+chittashuddileni shivapoojalelaraa  
+vishvadaabhiraama vinura vema!  
+‖ 137 ‖
+
+yinumu viraganeni yinumooru mummaaru  
+kaachiy.etakavachchu gramamu gaanu  
+manasu virig.eneni mari chercaraadayaa  
+vishvadaabhiraama vinura vema!  
+‖ 138 ‖
+
+kuMDa kuMbhamanna k.oMDa parvatamanna  
+nuppu lavaNamanna n.okaTi kaad.e  
+bhaashha liTT.e veru paratatvam.okaT.e  
+vishvadaabhiraama vinura vema!  
+‖ 139 ‖
+
+anaga nanaga raaga matisha yilluchunuMDu  
+dinaga dinaga vemu tiyyanuMDu  
+saadhanamuna panulu samakooru dharalona  
+vishvadaabhiraama vinura vema!  
+‖ 140 ‖
+
+ch.eppuloni raayi ch.eviloni joreega   
+kaMTiloni nalusu kaali mullu  
+iMTiloni poru niMtiMta gaadayaa  
+vishvadaabhiraama vinura vema!  
+‖ 141 ‖
+
+tappu l.ennuvaaru taMDopa taMDaMbu   
+lurvi janulak.ella nuMDu tappu  
+tappu l.ennuvaaru tama tappul.erugaru  
+vishvadaabhiraama vinura vema!  
+‖ 142 ‖
+
+mirapa giMja chooDa meeda nallaganuMDu   
+k.oriki jooDalona jurukumanunu  
+sajjanu lagu vaari saara miTluMDu  
+vishvadaabhiraama vinura vema!  
+‖ 143 ‖
+
+meDipaMDu chooDa melimai yuMDunu   
+p.oTTavichchi chooDa puruguluMDu  
+pirikivaani madini biMkameelaaguraa  
+vishvadaabhiraama vinura vema!  
+‖ 144 ‖
+
+veru purugu cheri vRRikshhaMbu j.eruchunu   
+cheeDapurugu cheri ch.eTTu j.erachu  
+kutsituMDu cheri guNavaMtu j.erachuraa  
+vishvadaabhiraama vinura vema!  
+‖ 145 ‖
+
+veshhabhaashha l.erigi kaashhayavastramul   
+gaTTagaan.e mukti galugabodu  
+talalu boDulRRina talapuloo boDoolaa  
+vishvadaabhiraama vinura vema!  
+‖ 146 ‖
+

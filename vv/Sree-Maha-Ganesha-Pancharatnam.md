@@ -458,3 +458,81 @@ samaahitaayu rashhTabhooti mabhyupaiti so.achiraat ‖
 సమాహితాయు రష్టభూతి మభ్యుపైతి సోఽచిరాత్ ‖  
 
 
+### English
+
+#### śrī mahā gaṇeśa pañcha ratnam
+
+mudā karātta modakaṃ sadā vimukti sādhakaṃ ❘  
+kaḻādharāvataṃsakaṃ vilāsiloka rakśhakam ❘  
+anāyakaika nāyakaṃ vināśitebha daityakaṃ ❘  
+natāśubhāśu nāśakaṃ namāmi taṃ vināyakam 
+‖ 1 ‖
+
+natetarāti bhīkaraṃ navoditārka bhāsvaraṃ ❘  
+namatsurāri nirjaraṃ natādhikāpadudḍharam ❘  
+sureśvaraṃ nidhīśvaraṃ gajeśvaraṃ gaṇeśvaraṃ ❘  
+maheśvaraṃ tamāśraye parātparaṃ nirantaram 
+‖ 2 ‖
+
+samasta loka śaṅkaraṃ nirasta daitya kuñjaraṃ ❘  
+daretarodaraṃ varaṃ varebha vaktramakśharam ❘  
+kṛpākaraṃ kśhamākaraṃ mudākaraṃ yaśaskaraṃ ❘  
+manaskaraṃ namaskṛtāṃ namaskaromi bhāsvaram 
+‖ 3 ‖
+
+akiñchanārti mārjanaṃ chirantanokti bhājanaṃ ❘  
+purāri pūrva nandanaṃ surāri garva charvaṇam ❘  
+prapañcha nāśa bhīśhaṇaṃ dhanañjayādi bhūśhaṇaṃ ❘  
+kapola dānavāraṇaṃ bhaje purāṇa vāraṇam 
+‖ 4 ‖
+
+nitānta kānti danta kānti manta kānti kātmajam ❘  
+achintya rūpamanta hīna mantarāya kṛntanam ❘  
+hṛdantare nirantaraṃ vasantameva yogināṃ ❘  
+tamekadantameva taṃ vichintayāmi santatam 
+‖ 5 ‖
+
+mahāgaṇeśa pañcharatnamādareṇa yoanvahaṃ ❘  
+prajalpati prabhātake hṛdi smaran gaṇeśvaram ❘  
+arogatāmadośhatāṃ susāhitīṃ suputratāṃ ❘  
+samāhitāyu raśhṭabhūti mabhyupaiti soachirāt ‖
+
+### PlainEnglish
+
+#### shree mahaa gaNesha paMcha ratnam
+
+mudaa karaatta modakaM sadaa vimukti saadhakaM ❘  
+kaLaadharaavataMsakaM vilaasiloka rakshhakam ❘  
+anaayakaika naayakaM vinaashitebha daityakaM ❘  
+nataashubhaashu naashakaM namaami taM vinaayakam 
+‖ 1 ‖
+
+natetaraati bheekaraM navoditaarka bhaasvaraM ❘  
+namatsuraari nirjaraM nataadhikaapadudDharam ❘  
+sureshvaraM nidheeshvaraM gajeshvaraM gaNeshvaraM ❘  
+maheshvaraM tamaashraye paraatparaM nirantaram 
+‖ 2 ‖
+
+samasta loka shankaraM nirasta daitya kunjaraM ❘  
+daretarodaraM varaM varebha vaktramakshharam ❘  
+kRRipaakaraM kshhamaakaraM mudaakaraM yashaskaraM ❘  
+manaskaraM namaskRRitaaM namaskaromi bhaasvaram 
+‖ 3 ‖
+
+akinchanaarti maarjanaM chirantanokti bhaajanaM ❘  
+puraari poorva nandanaM suraari garva charvaNam ❘  
+prapancha naasha bheeshhaNaM dhananjayaadi bhooshhaNaM ❘  
+kapola daanavaaraNaM bhaje puraaNa vaaraNam 
+‖ 4 ‖
+
+nitaanta kaanti danta kaanti manta kaanti kaatmajam ❘  
+achintya roopamanta heena mantaraaya kRRintanam ❘  
+hRRidantare nirantaraM vasantameva yoginaaM ❘  
+tamekadantameva taM vichintayaami santatam 
+‖ 5 ‖
+
+mahaagaNesha pancharatnamaadareNa yo.anvahaM ❘  
+prajalpati prabhaatake hRRidi smaran gaNeshvaram ❘  
+arogataamadoshhataaM susaahiteeM suputrataaM ❘  
+samaahitaayu rashhTabhooti mabhyupaiti so.achiraat ‖
+

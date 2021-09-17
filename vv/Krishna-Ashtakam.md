@@ -406,3 +406,65 @@ koTijanma kRRitaM paapaM smaraNena vinashyati ‖
 కృష్ణాష్టక మిదం పుణ్యం ప్రాతరుత్థాయ యః పఠేత్ ❘  
 కోటిజన్మ కృతం పాపం స్మరణేన వినశ్యతి ‖  
 
+### English
+
+#### kṛśhṇāśhṭakam
+
+vasudeva sutaṃ devaṃ kaṃsa chāṇūra mardanam ❘  
+devakī paramānandaṃ kṛśhṇaṃ vande jagadgurum ‖
+
+atasī puśhpa saṅkāśaṃ hāra nūpura śobhitam ❘  
+ratna kaṅkaṇa keyūraṃ kṛśhṇaṃ vande jagadgurum ‖
+
+kuṭilālaka saṃyuktaṃ pūrṇachandra nibhānanam ❘  
+vilasat kuṇḍaladharaṃ kṛśhṇaṃ vande jagadguram ‖
+
+mandāra gandha saṃyuktaṃ chāruhāsaṃ chaturbhujam ❘  
+barhi piñChāva chūḍāṅgaṃ kṛśhṇaṃ vande jagadgurum ‖
+
+utphulla padmapatrākśhaṃ nīla jīmūta sannibham ❘  
+yādavānāṃ śiroratnaṃ kṛśhṇaṃ vande jagadgurum ‖
+
+rukmiṇī keḻi saṃyuktaṃ pītāmbara suśobhitam ❘  
+avāpta tulasī gandhaṃ kṛśhṇaṃ vande jagadgurum ‖
+
+gopikānāṃ kuchadvanda kuṅkumāṅkita vakśhasam ❘  
+śrīniketaṃ maheśhvāsaṃ kṛśhṇaṃ vande jagadgurum ‖
+
+śrīvatsāṅkaṃ mahoraskaṃ vanamālā virājitam ❘  
+śaṅkhachakra dharaṃ devaṃ kṛśhṇaṃ vande jagadgurum ‖
+
+kṛśhṇāśhṭaka midaṃ puṇyaṃ prātarutthāya yaḥ paṭhet ❘  
+koṭijanma kṛtaṃ pāpaṃ smaraṇena vinaśyati ‖
+
+### PlainEnglish
+
+#### kRRishhNaashhTakam
+
+vasudeva sutaM devaM kaMsa chaaNoora mardanam ❘  
+devakee paramaanandaM kRRishhNaM vande jagadgurum ‖
+
+atasee pushhpa sankaashaM haara noopura shobhitam ❘  
+ratna kankaNa keyooraM kRRishhNaM vande jagadgurum ‖
+
+kuTilaalaka saMyuktaM poorNachaMdra nibhaananam ❘  
+vilasat kuMDaladharaM kRRishhNaM vande jagadguram ‖
+
+maMdaara gaMdha saMyuktaM chaaruhaasaM chaturbhujam ❘  
+barhi piMChaava chooDaangaM kRRishhNaM vande jagadgurum ‖
+
+utphulla padmapatraakshhaM neela jeemoota sannibham ❘  
+yaadavaanaaM shiroratnaM kRRishhNaM vande jagadgurum ‖
+
+rukmiNee keLi saMyuktaM peetaaMbara sushobhitam ❘  
+avaapta tulasee gaMdhaM kRRishhNaM vande jagadgurum ‖
+
+gopikaanaaM kuchadvaMda kuMkumaankita vakshhasam ❘  
+shreeniketaM maheshhvaasaM kRRishhNaM vande jagadgurum ‖
+
+shreevatsaankaM mahoraskaM vanamaalaa viraajitam ❘  
+shankhachakra dharaM devaM kRRishhNaM vande jagadgurum ‖
+
+kRRishhNaashhTaka midaM puNyaM praatarutthaaya yaH paThet ❘  
+koTijanma kRRitaM paapaM smaraNena vinashyati ‖
+

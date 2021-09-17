@@ -276,3 +276,33 @@ karuNiMcu bhadraacala vararaamadaasa poshha
 శరణాగతత్రాణ బిరుదాంకితుడవుకాదా  
 కరుణించు భద్రాచల వరరామదాస పోష  
 
+### English
+
+#### rāmadāsu kīrtana paluke baṅgāramāyenā
+
+paluke baṅgāramāyenā, kodaṇḍapāṇi paluke baṅgāramāyenā  
+paluke baṅgāramāye pilacinā palukavemi  
+kalalo nī nāmasmaraṇa maruva cakkani taṇḍrī  
+enta veḍinagāni suntaina dayarādu  
+pantamu seya nenentaṭivāḍanu taṇḍrī  
+iravuga isukalona poralina uḍuta bhaktiki  
+karuṇiñci brocitivani nera nammitini taṇḍrī  
+rāti nātiga cesi bhūtalamuna  
+prakhyāti cenditivani prītito nammiti taṇḍrī  
+śaraṇāgatatrāṇa birudāṅkituḍavukādā  
+karuṇiñcu bhadrācala vararāmadāsa pośha   
+### PlainEnglish
+
+#### raamadaasu keertana paluke baMgaaramaay.enaa
+
+paluke baMgaaramaay.enaa, kodaMDapaaNi paluke baMgaaramaay.enaa  
+paluke baMgaaramaay.e pilacinaa palukavemi  
+kalalo nee naamasmaraNa maruva cakkani taMDree  
+.eMta veDinagaani suMtaina dayaraadu  
+paMtamu seya nen.eMtaTivaaDanu taMDree  
+iravuga isukalona p.oralina uDuta bhaktiki  
+karuNiMci brocitivani n.era nammitini taMDree  
+raati naatiga cesi bhootalamuna  
+prakhyaati c.eMditivani preetito nammiti taMDree  
+sharaNaagatatraaNa birudaaMkituDavukaadaa  
+karuNiMcu bhadraacala vararaamadaasa poshha   

@@ -523,3 +523,115 @@ shreemacChaMkarabhagavatpaadapoojyakRRita shivashhaDakshhareestotraM saMpoorNam 
 శ్రీమచ్ఛంకరభగవత్పాదపూజ్యకృత శివషడక్షరీస్తోత్రం సంపూర్ణమ్ ❘  
 
 
+### English
+
+#### śiva śhaḍakśharī stotram
+
+
+‖oṃ oṃ‖
+
+oṅkārabindu saṃyuktaṃ nityaṃ dhyāyanti yoginaḥ ❘  
+kāmadaṃ mokśhadaṃ tasmādoṅkārāya namonamaḥ 
+‖ 1 ‖
+
+
+‖oṃ naṃ‖
+
+namanti munayaḥ sarve namantyapsarasāṃ gaṇāḥ ❘  
+narāṇāmādidevāya nakārāya namonamaḥ 
+‖ 2 ‖
+
+
+‖oṃ maṃ‖
+
+mahātatvaṃ mahādeva priyaṃ GYānapradaṃ paraṃ ❘  
+mahāpāpaharaṃ tasmānmakārāya namonamaḥ 
+‖ 3 ‖
+
+
+‖oṃ śiṃ‖
+
+śivaṃ śāntaṃ śivākāraṃ śivānugrahakāraṇaṃ ❘  
+mahāpāpaharaṃ tasmācChikārāya namonamaḥ 
+‖ 4 ‖
+
+
+‖oṃ vāṃ‖
+
+vāhanaṃ vṛśhabhoyasya vāsukiḥ kaṇṭhabhūśhaṇaṃ ❘  
+vāme śaktidharaṃ devaṃ vakārāya namonamaḥ 
+‖ 5 ‖
+
+
+‖oṃ yaṃ‖
+
+yakāre saṃsthito devo yakāraṃ paramaṃ śubhaṃ ❘  
+yaṃ nityaṃ paramānandaṃ yakārāya namonamaḥ 
+‖ 6 ‖
+
+śhaḍakśharamidaṃ stotraṃ yaḥ paṭhecChiva sannidhau ❘  
+tasya mṛtyubhayaṃ nāsti hyapamṛtyubhayaṃ kutaḥ ‖
+
+śivaśiveti śiveti śiveti vā  
+bhavabhaveti bhaveti bhaveti vā ❘  
+harahareti hareti hareti vā  
+bhujamanaśśivameva nirantaram ‖
+
+iti śrīmatparamahaṃsa parivrājakāchārya  
+śrīmacChaṅkarabhagavatpādapūjyakṛta śivaśhaḍakśharīstotraṃ sampūrṇam ❘  
+### PlainEnglish
+
+#### shiva shhaDakshharee stotram
+
+
+‖oM oM‖
+
+oMkaarabiMdu saMyuktaM nityaM dhyaayaMti yoginaH ❘  
+kaamadaM mokshhadaM tasmaadoMkaaraaya namonamaH 
+‖ 1 ‖
+
+
+‖oM naM‖
+
+namaMti munayaH sarve namaMtyapsarasaaM gaNaaH ❘  
+naraaNaamaadidevaaya nakaaraaya namonamaH 
+‖ 2 ‖
+
+
+‖oM maM‖
+
+mahaatatvaM mahaadeva priyaM gnyaanapradaM paraM ❘  
+mahaapaapaharaM tasmaanmakaaraaya namonamaH 
+‖ 3 ‖
+
+
+‖oM shiM‖
+
+shivaM shaaMtaM shivaakaaraM shivaanugrahakaaraNaM ❘  
+mahaapaapaharaM tasmaacChikaaraaya namonamaH 
+‖ 4 ‖
+
+
+‖oM vaaM‖
+
+vaahanaM vRRishhabhoyasya vaasukiH kaMThabhooshhaNaM ❘  
+vaame shaktidharaM devaM vakaaraaya namonamaH 
+‖ 5 ‖
+
+
+‖oM yaM‖
+
+yakaare saMsthito devo yakaaraM paramaM shubhaM ❘  
+yaM nityaM paramaanaMdaM yakaaraaya namonamaH 
+‖ 6 ‖
+
+shhaDakshharamidaM stotraM yaH paThecChiva sannidhau ❘  
+tasya mRRityubhayaM naasti hyapamRRityubhayaM kutaH ‖
+
+shivashiveti shiveti shiveti vaa  
+bhavabhaveti bhaveti bhaveti vaa ❘  
+harahareti hareti hareti vaa  
+bhujamanashshivameva niraMtaram ‖
+
+iti shreematparamahaMsa parivraajakaachaarya  
+shreemacChaMkarabhagavatpaadapoojyakRRita shivashhaDakshhareestotraM saMpoorNam ❘  

@@ -289,3 +289,47 @@ maRavaka naagati maRi yedi ‖
 వెఱపు దీర్చి శ్రీవేంకటేశ కావు  
 మఱవక నాగతి మఱి యేది ‖  
 
+### English
+
+#### annamayya kīrtana ati duśhṭuḍa ne nalusuḍanu
+
+atiduśhṭuḍa ne nalasuḍanu ❘  
+yitaravivekaṃ bikanela ‖
+
+ekkaḍa nenniṭa yemi sesitino   
+nikkapudappulu neramulu ❘  
+gakkana ninniṭa kaliginanīve   
+dikkugāka mari dikkedi ‖
+
+ghorapubāpamu koṭlasaṅkhyalu   
+ceruva nive nācesinivi ❘  
+nīrasunaku niṭu nīkṛpa nākika   
+kūrimi nā yeḍa guṇamedi ‖
+
+yeRigi cesinadi yeRugaka cesina-   
+koRatalu nāyeḍa goṭulive ❘  
+veRapu dīrci śrīveṅkaṭeśa kāvu   
+maRavaka nāgati maRi yedi ‖
+
+### PlainEnglish
+
+#### annamayya keertana ati dushhTuDa ne nalusuDanu
+
+atidushhTuDa ne nalasuDanu ❘  
+yitaravivekaM bikanela ‖
+
+.ekkaDa n.enniTa yemi sesitin.o   
+nikkapudappulu neramulu ❘  
+gakkana ninniTa kaliginaneeve   
+dikkugaaka mari dikkedi ‖
+
+ghorapubaapamu koTlasaMkhyalu   
+ceruva niv.e naacesinivi ❘  
+neerasunaku niTu neekRRipa naakika   
+koorimi naa y.eDa guNamedi ‖
+
+y.eRigi cesinadi y.eRugaka cesina-   
+k.oRatalu naay.eDa goTulive ❘  
+v.eRapu deerci shreeveMkaTesha kaavu   
+maRavaka naagati maRi yedi ‖
+

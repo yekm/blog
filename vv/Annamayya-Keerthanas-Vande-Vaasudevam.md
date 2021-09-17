@@ -289,3 +289,47 @@ tiru veMkaTaacalaadheeshaM bhaje ‖
 సరసీరుహాననం చక్రవిభ్రాజితం  
 తిరు వేంకటాచలాధీశం భజే ‖  
 
+### English
+
+#### annamayya kīrtana vande vāsudevaṃ
+
+vande vāsudevaṃ bṛndārakādhīśa   
+vandita padābjaṃ ‖
+
+indīvaraśyāma mindirākucataṭī-   
+candanāṅkita lasatcāru dehaṃ ❘  
+mandāra mālikāmakuṭa saṃśobhitaṃ   
+kandarpajanaka maravindanābhaṃ ‖
+
+dhagadhaga kaustubha dharaṇa vakśhasthalaṃ   
+khagarāja vāhanaṃ kamalanayanaṃ ❘  
+nigamādisevitaṃ nijarūpaśeśhapa-   
+nnagarāja śāyinaṃ ghananivāsaṃ ‖
+
+karipuranāthasaṃrakśhaṇe tatparaṃ   
+karirājavarada saṅgatakarābjaṃ ❘  
+sarasīruhānanaṃ cakravibhrājitaṃ   
+tiru veṅkaṭācalādhīśaṃ bhaje ‖
+
+### PlainEnglish
+
+#### annamayya keertana vaMde vaasudevaM
+
+vaMde vaasudevaM bRRiMdaarakaadheesha   
+vaMdita padaabjaM ‖
+
+iMdeevarashyaama miMdiraakucataTee-   
+caMdanaaMkita lasatcaaru dehaM ❘  
+maMdaara maalikaamakuTa saMshobhitaM   
+kaMdarpajanaka maraviMdanaabhaM ‖
+
+dhagadhaga kaustubha dharaNa vakshhasthalaM   
+khagaraaja vaahanaM kamalanayanaM ❘  
+nigamaadisevitaM nijaroopasheshhapa-   
+nnagaraaja shaayinaM ghananivaasaM ‖
+
+karipuranaathasaMrakshhaNe tatparaM   
+kariraajavarada saMgatakaraabjaM ❘  
+saraseeruhaananaM cakravibhraajitaM   
+tiru veMkaTaacalaadheeshaM bhaje ‖
+

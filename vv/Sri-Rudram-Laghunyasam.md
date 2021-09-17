@@ -718,3 +718,309 @@ oM shaaM _ti_ H shaaM _ti_ H shaaMti'H ‖
 ఓం శాం _తిః_ శాం _తిః_ శాంతిః' ‖  
 
 
+### English
+
+#### śrī rudraṃ laghunyāsam
+
+oṃ athātmānagṃ śivātmānag śrī rudrarūpaṃ dhyāyet ‖
+
+śuddhasphaṭika saṅkāśaṃ trinetraṃ pañcha vaktrakaṃ ❘  
+gaṅgādharaṃ daśabhujaṃ sarvābharaṇa bhūśhitam ‖
+
+nīlagrīvaṃ śaśāṅkāṅkaṃ nāga yaGYopa vītinam ❘  
+vyāghra charmottarīyaṃ cha vareṇyamabhaya pradam ‖
+
+kamaṇḍal-vakśha sūtrāṇāṃ dhāriṇaṃ śūlapāṇinaṃ ❘  
+jvalantaṃ piṅgaḻajaṭā śikhā muddyota dhāriṇam ‖
+
+vṛśha skandha samārūḍhaṃ umā dehārtha dhāriṇaṃ ❘  
+amṛtenāplutaṃ śāntaṃ divyabhoga samanvitam ‖
+
+digdevatā samāyuktaṃ surāsura namaskṛtaṃ ❘  
+nityaṃ cha śāśvataṃ śuddhaṃ dhruva-makśhara-mavyayam ❘  
+sarva vyāpina-mīśānaṃ rudraṃ vai viśvarūpiṇaṃ ❘  
+evaṃ dhyātvā dvijaḥ samyak tato yajanamārabhet ‖
+
+athāto rudra snānārchanābhiśheka vidhiṃ vyā''kśhyāsyāmaḥ ❘  
+ādita eva tīrthe snātvā udetya śuchiḥ prayato brahmachārī śuklavāsā devābhimukhaḥ sthitvā ātmani devatāḥ sthāpayet ‖
+
+prajanane brahmā tiśhṭhatu ❘  
+pādayor-viśhṇustiśhṭhatu ❘  
+hastayor-harastiśhṭhatu ❘  
+bāhvorindrastiśhṭatu ❘  
+jaṭhareaagnistiśhṭhatu ❘  
+hṛda'ye śivastiśhṭhatu ❘  
+kaṇṭhe vasavastiśhṭhantu ❘  
+vaktre sarasvatī tiśhṭhatu ❘  
+nāsikayor-vāyustiśhṭhatu ❘  
+nayanayoś-chandrādityau tiśhṭetāṃ ❘  
+karṇayoraśvinau tiśhṭetāṃ ❘  
+lalāṭe rudrāstiśhṭhantu ❘  
+mūrthnyādityāstiśhṭhantu ❘  
+śirasi mahādevastiśhṭhatu ❘  
+śikhāyāṃ vāmadevāstiśhṭhatu ❘  
+pṛśhṭhe pinākī tiśhṭhatu ❘  
+purataḥ śūlī tiśhṭhatu ❘  
+pārśyayoḥ śivāśaṅkarau tiśhṭhetāṃ ❘  
+sarvato vāyustiśhṭhatu ❘  
+tato bahiḥ sarvatoagnir-jvālāmālā-parivṛtastiśhṭhatu ❘  
+sarveśhvaṅgeśhu sarvā devatā yathāsthānaṃ tiśhṭhantu ❘  
+māgṃ rakśhantu ❘  
+agnirme' vāchi śritaḥ ❘  
+vāgdhṛda'ye ❘  
+hṛda'yaṃ mayi' ❘  
+ahamamṛte'' ❘  
+amṛtaṃ brahma'ṇi ❘  
+vāyurme'' prāṇe śritaḥ ❘  
+prāṇo hṛda'ye ❘  
+hṛda'yaṃ mayi' ❘  
+ahamamṛte'' ❘  
+amṛtaṃ brahma'ṇi ❘  
+sūryo' me chakśhuśhi śritaḥ ❘  
+chakśhur-hṛda'ye ❘  
+hṛda'yaṃ mayi' ❘  
+ahamamṛte'' ❘  
+amṛtaṃ brahma'ṇi ❘  
+chandramā' me mana'si śritaḥ ❘  
+mano hṛda'ye ❘  
+hṛda'yaṃ mayi' ❘  
+ahamamṛte'' ❘  
+amṛtaṃ brahma'ṇi ❘  
+diśo' me śrotre'' śritāḥ ❘  
+śrotragṃ hṛda'ye ❘  
+hṛda'yaṃ mayi' ❘  
+ahamamṛte'' ❘  
+amṛtaṃ brahma'ṇi ❘  
+āpome retasi śritāḥ ❘  
+reto hṛda'ye ❘  
+hṛda'yaṃ mayi' ❘  
+ahamamṛte'' ❘  
+amṛtaṃ brahma'ṇi ❘  
+pṛthivī me śarī're śritāḥ ❘  
+śarī'ragṃ hṛda'ye ❘  
+hṛda'yaṃ mayi' ❘  
+ahamamṛte'' ❘  
+amṛtaṃ brahma'ṇi ❘  
+ośhadhi vanaspatayo' me loma'su śritāḥ ❘  
+lomā'ni hṛda'ye ❘  
+hṛda'yaṃ mayi' ❘  
+ahamamṛte'' ❘  
+amṛtaṃ brahma'ṇi ❘  
+indro' me bale'' śritaḥ ❘  
+balagṃ hṛda'ye ❘  
+hṛda'yaṃ mayi' ❘  
+ahamamṛte'' ❘  
+amṛtaṃ brahma'ṇi ❘  
+parjanyo' me mūrdni śritaḥ ❘  
+mūrdhā hṛda'ye ❘  
+hṛda'yaṃ mayi' ❘  
+ahamamṛte'' ❘  
+amṛtaṃ brahma'ṇi ❘  
+īśā'no me manyau śritaḥ ❘  
+manyur-hṛda'ye ❘  
+hṛda'yaṃ mayi' ❘  
+ahamamṛte'' ❘  
+amṛtaṃ brahma'ṇi ❘  
+ātmā ma' ātmani' śritaḥ ❘  
+ātmā hṛda'ye ❘  
+hṛda'yaṃ mayi' ❘  
+ahamamṛte'' ❘  
+amṛtaṃ brahma'ṇi ❘  
+puna'rma ātmā punarāyu rāgā''t ❘  
+punaḥ' prāṇaḥ punarākū'tamāgā''t ❘  
+vaiśvānaro raśmibhi'r-vāvṛdhānaḥ ❘  
+antasti'śhṭhatvamṛta'sya gopāḥ ‖
+
+asya śrī rudrādhyāya praśna mahāmantrasya, aghora ṛśhiḥ, anuśhṭup chandaḥ, saṅkarśhaṇa mūrti svarūpo yoasāvādityaḥ paramapuruśhaḥ sa eśha rudro devatā ❘  
+namaḥ śivāyeti bījaṃ ❘  
+śivatarāyeti śaktiḥ ❘  
+mahādevāyeti kīlakaṃ ❘  
+śrī sāmba sadāśiva prasāda siddhyarthe jape viniyogaḥ ‖
+
+oṃ agnihotrātmane aṅguśhṭhābhyāṃ namaḥ ❘  
+darśapūrṇa māsātmane tarjanībhyāṃ namaḥ ❘  
+cātur-māsyātmane madhyamābhyāṃ namaḥ ❘  
+nirūḍha paśubandhātmane anāmikābhyāṃ namaḥ ❘  
+jyotiśhṭomātmane kaniśhṭhikābhyāṃ namaḥ ❘  
+sarvakratvātmane karatala karapṛśhṭhābhyāṃ namaḥ ‖
+
+agnihotrātmane hṛdayāya namaḥ ❘  
+darśapūrṇa māsātmane śirase svāhā ❘  
+cātur-māsyātmane śikhāyai vaśhaṭ ❘  
+nirūḍha paśubandhātmane kavacāya huṃ ❘  
+jyotiśhṭomātmane netratrayāya vauśhaṭ ❘  
+sarvakratvātmane astrāyaphaṭ ❘  
+bhūrbhuvassuvaromiti digbandhaḥ ‖
+
+dhyānaṃ%  
+āpātāḻa-nabhaḥsthalānta-bhuvana-brahmāṇḍa-māvisphurat-   
+jyotiḥ sphāṭika-liṅga-mauḻi-vilasat-pūrṇendu-vāntāmṛtaiḥ ❘  
+astokāpluta-meka-mīśa-maniśaṃ rudrānu-vākāñjapan   
+dhyāye-dīpsita-siddhaye dhruvapadaṃ viproabhiśhiñche-cchivam ‖
+
+brahmāṇḍa vyāptadehā bhasita himarucā bhāsamānā bhujaṅgaiḥ  
+kaṇṭhe kālāḥ kapardāḥ kalita-śaśikalā-śchaṇḍa kodaṇḍa hastāḥ ❘  
+tryakśhā rudrākśhamālāḥ prakaṭitavibhavāḥ śāmbhavā mūrtibhedāḥ  
+rudrāḥ śrīrudrasūkta-prakaṭitavibhavā naḥ prayacchantu saukhyam ‖
+
+oṃ gaṇānā''m tvā gaṇapa'tigṃ havāmahe kaviṃ ka'vīnāmu'pamaśra'vastamaṃ ❘  
+jyeśhṭharājaṃ brahma'ṇāṃ brahmaṇaspada ā na'ḥ śṛṇvannūtibhi'ssīda sāda'naṃ 
+‖ mahāgaṇapataye namaḥ ‖
+
+śaṃ cha' me maya'ścha me priyaṃ cha' meanukāmaścha' me kāma'ścha me saumanasaścha' me bhadraṃ cha' me śreya'ścha me vasya'ścha me yaśa'ścha me bhaga'ścha me dravi'ṇaṃ cha me yantā cha' me dhartā cha' me kśhema'ścha me dhṛti'ścha me viśva'ṃ cha me maha'ścha me saṃviccha' me GYātra'ṃ cha me sūścha' me prasūścha' me sīra'ṃ cha me layaścha' ma ṛtaṃ cha' me'mṛta'ṃ cha meayakśhmaṃ cha meanā'mayaccha me jīvātu'ścha me dīrghāyutvaṃ cha' meanamitraṃ cha meabha'yaṃ cha me sugaṃ cha' me śaya'naṃ cha me sūśhā cha' me sudina'ṃ cha me ‖
+
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+### PlainEnglish
+
+#### shree rudraM laghunyaasam
+
+oM athaatmaanagM shivaatmaanag shree rudraroopaM dhyaayet ‖
+
+shuddhasphaTika saMkaashaM trinetraM paMcha vaktrakaM ❘  
+gaMgaadharaM dashabhujaM sarvaabharaNa bhooshhitam ‖
+
+neelagreevaM shashaaMkaaMkaM naaga yagnyopa veetinam ❘  
+vyaaghra charmottareeyaM cha vareNyamabhaya pradam ‖
+
+kamaMDal-vakshha sootraaNaaM dhaariNaM shoolapaaNinaM ❘  
+jvalantaM piMgaLajaTaa shikhaa muddyota dhaariNam ‖
+
+vRRishha skaMdha samaarooDhaM umaa dehaartha dhaariNaM ❘  
+amRRitenaaplutaM shaantaM divyabhoga samanvitam ‖
+
+digdevataa samaayuktaM suraasura namaskRRitaM ❘  
+nityaM cha shaashvataM shuddhaM dhruva-makshhara-mavyayam ❘  
+sarva vyaapina-meeshaanaM rudraM vai vishvaroopiNaM ❘  
+evaM dhyaatvaa dvijaH samyak tato yajanamaarabhet ‖
+
+athaato rudra snaanaarchanaabhishheka vidhiM vyaa''kshhyaasyaamaH ❘  
+aadita eva teerthe snaatvaa udetya shuchiH prayato brahmachaaree shuklavaasaa devaabhimukhaH sthitvaa aatmani devataaH sthaapayet ‖
+
+prajanane brahmaa tishhThatu ❘  
+paadayor-vishhNustishhThatu ❘  
+hastayor-harastishhThatu ❘  
+baahvorindrastishhTatu ❘  
+jaThare.aagnistishhThatu ❘  
+hRRida'ye shivastishhThatu ❘  
+kaNThe vasavastishhThantu ❘  
+vaktre sarasvatee tishhThatu ❘  
+naasikayor-vaayustishhThatu ❘  
+nayanayosh-chaMdraadityau tishhTetaaM ❘  
+karNayorashvinau tishhTetaaM ❘  
+lalaaTe rudraastishhThantu ❘  
+moorthnyaadityaastishhThantu ❘  
+shirasi mahaadevastishhThatu ❘  
+shikhaayaaM vaamadevaastishhThatu ❘  
+pRRishhThe pinaakee tishhThatu ❘  
+purataH shoolee tishhThatu ❘  
+paarshyayoH shivaashaMkarau tishhThetaaM ❘  
+sarvato vaayustishhThatu ❘  
+tato bahiH sarvato.agnir-jvaalaamaalaa-parivRRitastishhThatu ❘  
+sarveshhvaMgeshhu sarvaa devataa yathaasthaanaM tishhThantu ❘  
+maagM rakshhantu ❘  
+agnirme' vaachi shritaH ❘  
+vaagdhRRida'ye ❘  
+hRRida'yaM mayi' ❘  
+ahamamRRite'' ❘  
+amRRitaM brahma'Ni ❘  
+vaayurme'' praaNe shritaH ❘  
+praaNo hRRida'ye ❘  
+hRRida'yaM mayi' ❘  
+ahamamRRite'' ❘  
+amRRitaM brahma'Ni ❘  
+sooryo' me chakshhushhi shritaH ❘  
+chakshhur-hRRida'ye ❘  
+hRRida'yaM mayi' ❘  
+ahamamRRite'' ❘  
+amRRitaM brahma'Ni ❘  
+chandramaa' me mana'si shritaH ❘  
+mano hRRida'ye ❘  
+hRRida'yaM mayi' ❘  
+ahamamRRite'' ❘  
+amRRitaM brahma'Ni ❘  
+disho' me shrotre'' shritaaH ❘  
+shrotragM hRRida'ye ❘  
+hRRida'yaM mayi' ❘  
+ahamamRRite'' ❘  
+amRRitaM brahma'Ni ❘  
+aapome retasi shritaaH ❘  
+reto hRRida'ye ❘  
+hRRida'yaM mayi' ❘  
+ahamamRRite'' ❘  
+amRRitaM brahma'Ni ❘  
+pRRithivee me sharee're shritaaH ❘  
+sharee'ragM hRRida'ye ❘  
+hRRida'yaM mayi' ❘  
+ahamamRRite'' ❘  
+amRRitaM brahma'Ni ❘  
+oshhadhi vanaspatayo' me loma'su shritaaH ❘  
+lomaa'ni hRRida'ye ❘  
+hRRida'yaM mayi' ❘  
+ahamamRRite'' ❘  
+amRRitaM brahma'Ni ❘  
+indro' me bale'' shritaH ❘  
+balagM hRRida'ye ❘  
+hRRida'yaM mayi' ❘  
+ahamamRRite'' ❘  
+amRRitaM brahma'Ni ❘  
+parjanyo' me moordni shritaH ❘  
+moordhaa hRRida'ye ❘  
+hRRida'yaM mayi' ❘  
+ahamamRRite'' ❘  
+amRRitaM brahma'Ni ❘  
+eeshaa'no me manyau shritaH ❘  
+manyur-hRRida'ye ❘  
+hRRida'yaM mayi' ❘  
+ahamamRRite'' ❘  
+amRRitaM brahma'Ni ❘  
+aatmaa ma' aatmani' shritaH ❘  
+aatmaa hRRida'ye ❘  
+hRRida'yaM mayi' ❘  
+ahamamRRite'' ❘  
+amRRitaM brahma'Ni ❘  
+puna'rma aatmaa punaraayu raagaa''t ❘  
+punaH' praaNaH punaraakoo'tamaagaa''t ❘  
+vaishvaanaro rashmibhi'r-vaavRRidhaanaH ❘  
+antasti'shhThatvamRRita'sya gopaaH ‖
+
+asya shree rudraadhyaaya prashna mahaamantrasya, aghora RRishhiH, anushhTup chandaH, sankarshhaNa moorti svaroopo yo.asaavaadityaH paramapurushhaH sa eshha rudro devataa ❘  
+namaH shivaayeti beejaM ❘  
+shivataraayeti shaktiH ❘  
+mahaadevaayeti keelakaM ❘  
+shree saaMba sadaashiva prasaada siddhyarthe jape viniyogaH ‖
+
+oM agnihotraatmane aMgushhThaabhyaaM namaH ❘  
+darshapoorNa maasaatmane tarjaneebhyaaM namaH ❘  
+caatur-maasyaatmane madhyamaabhyaaM namaH ❘  
+nirooDha pashubaMdhaatmane anaamikaabhyaaM namaH ❘  
+jyotishhTomaatmane kanishhThikaabhyaaM namaH ❘  
+sarvakratvaatmane karatala karapRRishhThaabhyaaM namaH ‖
+
+agnihotraatmane hRRidayaaya namaH ❘  
+darshapoorNa maasaatmane shirase svaahaa ❘  
+caatur-maasyaatmane shikhaayai vashhaT ❘  
+nirooDha pashubaMdhaatmane kavacaaya huM ❘  
+jyotishhTomaatmane netratrayaaya vaushhaT ❘  
+sarvakratvaatmane astraayaphaT ❘  
+bhoorbhuvassuvaromiti digbandhaH ‖
+
+dhyaanaM%  
+aapaataaLa-nabhaHsthalaanta-bhuvana-brahmaaNDa-maavisphurat-   
+jyotiH sphaaTika-liMga-mauLi-vilasat-poorNendu-vaantaamRRitaiH ❘  
+astokaapluta-meka-meesha-manishaM rudraanu-vaakaaMjapan   
+dhyaaye-deepsita-siddhaye dhruvapadaM vipro.abhishhiMche-cchivam ‖
+
+brahmaaNDa vyaaptadehaa bhasita himarucaa bhaasamaanaa bhujaMgaiH  
+kaNThe kaalaaH kapardaaH kalita-shashikalaa-shchaNDa kodaNDa hastaaH ❘  
+tryakshhaa rudraakshhamaalaaH prakaTitavibhavaaH shaaMbhavaa moortibhedaaH  
+rudraaH shreerudrasookta-prakaTitavibhavaa naH prayacchantu saukhyam ‖
+
+oM gaNaanaa''m tvaa gaNapa'tigM havaamahe kaviM ka'veenaamu'pamashra'vastamaM ❘  
+jyeshhTharaajaM brahma'NaaM brahmaNaspada aa na'H shRRiNvannootibhi'sseeda saada'naM 
+‖ mahaagaNapataye namaH ‖
+
+shaM cha' me maya'shcha me priyaM cha' me.anukaamashcha' me kaama'shcha me saumanasashcha' me bhadraM cha' me shreya'shcha me vasya'shcha me yasha'shcha me bhaga'shcha me dravi'NaM cha me yantaa cha' me dhartaa cha' me kshhema'shcha me dhRRiti'shcha me vishva'M cha me maha'shcha me saMviccha' me gnyaatra'M cha me sooshcha' me prasooshcha' me seera'M cha me layashcha' ma RRitaM cha' me.amRRita'M cha me.ayakshhmaM cha me.anaa'mayaccha me jeevaatu'shcha me deerghaayutvaM cha' me.anamitraM cha me.abha'yaM cha me sugaM cha' me shaya'naM cha me sooshhaa cha' me sudina'M cha me ‖
+
+oM shaaMtiH shaaMtiH shaaMti'H ‖
+

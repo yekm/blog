@@ -461,3 +461,77 @@ Translated by P. R. Ramachander, with Sukta text taken from from the book by RL 
 ఓం శా _ంతిః_ శా _ంతిః_ శాంతిః' ‖  
 
 
+### English
+
+#### medhā sūktam
+
+taittirīyāraṇyakam - 4, prapāṭhakaḥ - 10, anuvākaḥ - 41-44  
+oṃ yaśChanda'sāmṛśhabho viśvarū'paḥ ❘  
+Chandobhyoadhyamṛtā''thsambabhūva' ❘  
+sa mendro' medhayā'' spṛṇotu ❘  
+amṛta'sya devadhāra'ṇo bhūyāsam ❘  
+śarī'raṃ me vicha'rśhaṇam ❘  
+jihvā me madhu'mattamā ❘  
+karṇā''bhyāṃ bhūriviśru'vam ❘  
+brahma'ṇaḥ kośo''si medhayā pi'hitaḥ ❘  
+śrutaṃ me' gopāya ‖
+
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+oṃ medhādevī juśhamā'ṇā na āgā''dviśvāchī' bhadrā su'manasya mā'nā ❘  
+tvayā juśhṭā' nudamā'nā duruktā''n bṛhadva'dema vidathe' suvīrā''ḥ ❘  
+tvayā juśhṭa' ṛśhirbha'vati devi tvayā brahmā'''gataśrī'ruta tvayā'' ❘  
+tvayā juśhṭa'śchitraṃ vi'ndate vasu sā no' juśhasva dravi'ṇo na medhe ‖
+
+medhāṃ ma indro' dadātu medhāṃ devī sara'svatī ❘  
+medhāṃ me' aśvinā'vubhā-vādha'ttāṃ puśhka'rasrajā ❘  
+apsarāsu' cha yā medhā ga'ndharveśhu' cha yanmana'ḥ ❘  
+daivī''ṃ medhā sara'svatī sā mā''ṃ medhā surabhi'rjuśhatāg svāhā'' ‖
+
+āmā''ṃ medhā surabhi'rviśvarū'pā hira'ṇyavarṇā jaga'tī jagamyā ❘  
+ūrja'svatī paya'sā pinva'mānā sā mā''ṃ medhā supratī'kā juśhantām ‖
+
+mayi' medhāṃ mayi' prajāṃ mayyagnistejo' dadhātu mayi' medhāṃ mayi' prajāṃ mayīndra' indriyaṃ da'dhātu mayi' medhāṃ mayi' prajāṃ mayi sūryo bhrājo' dadhātu ‖
+
+oṃ haṃsa haṃsāya' vidmahe' paramahaṃsāya' dhīmahi ❘  
+tanno' haṃsaḥ prachodayā''t ‖
+
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+### PlainEnglish
+
+#### medhaa sooktam
+
+taittireeyaaraNyakam - 4, prapaaThakaH - 10, anuvaakaH - 41-44  
+oM yashChanda'saamRRishhabho vishvaroo'paH ❘  
+Chandobhyo.adhyamRRitaa''thsambabhoova' ❘  
+sa mendro' medhayaa'' spRRiNotu ❘  
+amRRita'sya devadhaara'No bhooyaasam ❘  
+sharee'raM me vicha'rshhaNam ❘  
+jihvaa me madhu'mattamaa ❘  
+karNaa''bhyaaM bhoorivishru'vam ❘  
+brahma'NaH kosho'.asi medhayaa pi'hitaH ❘  
+shrutaM me' gopaaya ‖
+
+oM shaantiH shaantiH shaanti'H ‖
+
+oM medhaadevee jushhamaa'Naa na aagaa''dvishvaachee' bhadraa su'manasya maa'naa ❘  
+tvayaa jushhTaa' nudamaa'naa duruktaa''n bRRihadva'dema vidathe' suveeraa''H ❘  
+tvayaa jushhTa' RRishhirbha'vati devi tvayaa brahmaa'.a.agatashree'ruta tvayaa'' ❘  
+tvayaa jushhTa'shchitraM vi'ndate vasu saa no' jushhasva dravi'No na medhe ‖
+
+medhaaM ma iMdro' dadaatu medhaaM devee sara'svatee ❘  
+medhaaM me' ashvinaa'vubhaa-vaadha'ttaaM pushhka'rasrajaa ❘  
+apsaraasu' cha yaa medhaa ga'Mdharveshhu' cha yanmana'H ❘  
+daivee''M medhaa sara'svatee saa maa''M medhaa surabhi'rjushhataag svaahaa'' ‖
+
+aamaa''M medhaa surabhi'rvishvaroo'paa hira'NyavarNaa jaga'tee jagamyaa ❘  
+oorja'svatee paya'saa pinva'maanaa saa maa''M medhaa supratee'kaa jushhantaam ‖
+
+mayi' medhaaM mayi' prajaaM mayyagnistejo' dadhaatu mayi' medhaaM mayi' prajaaM mayeeMdra' iMdriyaM da'dhaatu mayi' medhaaM mayi' prajaaM mayi sooryo bhraajo' dadhaatu ‖
+
+oM haMsa haMsaaya' vidmahe' paramahaMsaaya' dheemahi ❘  
+tanno' haMsaH prachodayaa''t ‖
+
+oM shaantiH shaantiH shaanti'H ‖
+

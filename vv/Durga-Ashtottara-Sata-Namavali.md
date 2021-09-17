@@ -1498,3 +1498,273 @@ oM sarvaabheeshhTapradaayinyai namaH ‖ 108 ‖
 ఓం సర్వగతాయై నమః  
 ఓం సర్వాభీష్టప్రదాయిన్యై నమః ‖ 108 ‖  
 
+### English
+
+#### durgā aśhṭottara śata nāmāvaḻi
+
+oṃ durgāyai namaḥ  
+oṃ śivāyai namaḥ  
+oṃ mahālakśhmyai namaḥ  
+oṃ mahāgauryai namaḥ  
+oṃ caṇḍikāyai namaḥ  
+oṃ sarvaGYāyai namaḥ  
+oṃ sarvālokeśyai namaḥ  
+oṃ sarvakarma phalapradāyai namaḥ  
+oṃ sarvatīrdha mayāyai namaḥ  
+oṃ puṇyāyai namaḥ 
+‖10‖
+
+oṃ deva yonaye namaḥ  
+oṃ ayonijāyai namaḥ   
+oṃ bhūmijāyai namaḥ  
+oṃ nirguṇāyai namaḥ  
+oṃ ādhāraśaktyai namaḥ  
+oṃ anīśvaryai namaḥ  
+oṃ nirguṇāyai namaḥ  
+oṃ nirahaṅkārāyai namaḥ  
+oṃ sarvagarvavimardinyai namaḥ  
+oṃ sarvalokapriyāyai namaḥ 
+‖20‖
+
+oṃ vāṇyai namaḥ  
+oṃ sarvavidhyādi devatāyai namaḥ  
+oṃ pārvatyai namaḥ  
+oṃ devamātre namaḥ  
+oṃ vanīśyai namaḥ  
+oṃ vindhya vāsinyai namaḥ  
+oṃ tejovatyai namaḥ  
+oṃ mahāmātre namaḥ  
+oṃ koṭisūrya samaprabhāyai namaḥ  
+oṃ devatāyai namaḥ  
+‖30‖
+
+oṃ vahnirūpāyai namaḥ  
+oṃ satejase namaḥ  
+oṃ varṇarūpiṇyai namaḥ  
+oṃ guṇāśrayāyai namaḥ  
+oṃ guṇamadhyāyai namaḥ  
+oṃ guṇatrayavivarjitāyai namaḥ  
+oṃ karmaGYāna pradāyai namaḥ  
+oṃ kāntāyai namaḥ  
+oṃ sarvasaṃhāra kāriṇyai namaḥ  
+oṃ dharmaGYānāyai namaḥ 
+‖40‖
+
+oṃ dharmaniśhṭāyai namaḥ  
+oṃ sarvakarmavivarjitāyai namaḥ  
+oṃ kāmākśhyai namaḥ  
+oṃ kāmāsaṃhantryai namaḥ  
+oṃ kāmakrodha vivarjitāyai namaḥ  
+oṃ śāṅkaryai namaḥ  
+oṃ śāmbhavyai namaḥ  
+oṃ śāntāyai namaḥ  
+oṃ candrasuryāgnilocanāyai namaḥ  
+oṃ sujayāyai namaḥ 
+‖50‖
+
+oṃ jayāyai namaḥ  
+oṃ bhūmiśhṭhāyai namaḥ  
+oṃ jāhnavyai namaḥ  
+oṃ janapūjitāyai namaḥ  
+oṃ śāstrāyai namaḥ  
+oṃ śāstramayāyai namaḥ  
+oṃ nityāyai namaḥ  
+oṃ śubhāyai namaḥ  
+oṃ candrārdhamastakāyai namaḥ  
+oṃ bhāratyai namaḥ 
+‖60‖
+
+oṃ bhrāmaryai namaḥ  
+oṃ kalpāyai namaḥ  
+oṃ karāḻyai namaḥ  
+oṃ kṛśhṇa piṅgaḻāyai namaḥ  
+oṃ brāhmyai namaḥ  
+oṃ nārāyaṇyai namaḥ  
+oṃ raudryai namaḥ  
+oṃ candrāmṛta parivṛtāyai namaḥ  
+oṃ jyeśhṭhāyai namaḥ  
+oṃ indirāyai namaḥ 
+‖70‖
+
+oṃ mahāmāyāyai namaḥ  
+oṃ jagatsṛśhṭyādhikāriṇyai namaḥ  
+oṃ brahmāṇḍa koṭi saṃsthānāyai namaḥ  
+oṃ kāminyai namaḥ  
+oṃ kamalālayāyai namaḥ  
+oṃ kātyāyanyai namaḥ  
+oṃ kalātītāyai namaḥ  
+oṃ kālasaṃhārakāriṇyai namaḥ  
+oṃ yogāniśhṭhāyai namaḥ  
+oṃ yogigamyāyai namaḥ 
+‖80‖
+
+oṃ yogadhyeyāyai namaḥ  
+oṃ tapasvinyai namaḥ  
+oṃ GYānarūpāyai namaḥ  
+oṃ nirākārāyai namaḥ  
+oṃ bhaktābhīśhṭa phalapradāyai namaḥ  
+oṃ bhūtātmikāyai namaḥ  
+oṃ bhūtamātre namaḥ  
+oṃ bhūteśyai namaḥ  
+oṃ bhūtadhāriṇyai namaḥ  
+oṃ svadhānārī madhyagatāyai namaḥ 
+‖90‖
+
+oṃ śhaḍādhārādhi vardhinyai namaḥ  
+oṃ mohitāyai namaḥ  
+oṃ aṃśubhavāyai namaḥ   
+oṃ śubhrāyai namaḥ  
+oṃ sūkśhmāyai namaḥ  
+oṃ mātrāyai namaḥ  
+oṃ nirālasāyai namaḥ  
+oṃ nimagnāyai namaḥ  
+oṃ nīlasaṅkāśāyai namaḥ  
+oṃ nityānandinyai namaḥ 
+‖100‖
+
+oṃ harāyai namaḥ  
+oṃ parāyai namaḥ  
+oṃ sarvaGYānapradāyai namaḥ  
+oṃ anantāyai namaḥ  
+oṃ satyāyai namaḥ  
+oṃ durlabha rūpiṇyai namaḥ  
+oṃ sarasvatyai namaḥ  
+oṃ sarvagatāyai namaḥ  
+oṃ sarvābhīśhṭapradāyinyai namaḥ 
+‖ 108 ‖
+
+### PlainEnglish
+
+#### durgaa ashhTottara shata naamaavaLi
+
+oM durgaayai namaH  
+oM shivaayai namaH  
+oM mahaalakshhmyai namaH  
+oM mahaagauryai namaH  
+oM caMDikaayai namaH  
+oM sarvagnyaayai namaH  
+oM sarvaalokeshyai namaH  
+oM sarvakarma phalapradaayai namaH  
+oM sarvateerdha mayaayai namaH  
+oM puNyaayai namaH 
+‖10‖
+
+oM deva yonaye namaH  
+oM ayonijaayai namaH   
+oM bhoomijaayai namaH  
+oM nirguNaayai namaH  
+oM aadhaarashaktyai namaH  
+oM aneeshvaryai namaH  
+oM nirguNaayai namaH  
+oM nirahaMkaaraayai namaH  
+oM sarvagarvavimardinyai namaH  
+oM sarvalokapriyaayai namaH 
+‖20‖
+
+oM vaaNyai namaH  
+oM sarvavidhyaadi devataayai namaH  
+oM paarvatyai namaH  
+oM devamaatre namaH  
+oM vaneeshyai namaH  
+oM viMdhya vaasinyai namaH  
+oM tejovatyai namaH  
+oM mahaamaatre namaH  
+oM koTisoorya samaprabhaayai namaH  
+oM devataayai namaH  
+‖30‖
+
+oM vahniroopaayai namaH  
+oM satejase namaH  
+oM varNaroopiNyai namaH  
+oM guNaashrayaayai namaH  
+oM guNamadhyaayai namaH  
+oM guNatrayavivarjitaayai namaH  
+oM karmagnyaana pradaayai namaH  
+oM kaaMtaayai namaH  
+oM sarvasaMhaara kaariNyai namaH  
+oM dharmagnyaanaayai namaH 
+‖40‖
+
+oM dharmanishhTaayai namaH  
+oM sarvakarmavivarjitaayai namaH  
+oM kaamaakshhyai namaH  
+oM kaamaasaMhaMtryai namaH  
+oM kaamakrodha vivarjitaayai namaH  
+oM shaaMkaryai namaH  
+oM shaaMbhavyai namaH  
+oM shaaMtaayai namaH  
+oM caMdrasuryaagnilocanaayai namaH  
+oM sujayaayai namaH 
+‖50‖
+
+oM jayaayai namaH  
+oM bhoomishhThaayai namaH  
+oM jaahnavyai namaH  
+oM janapoojitaayai namaH  
+oM shaastraayai namaH  
+oM shaastramayaayai namaH  
+oM nityaayai namaH  
+oM shubhaayai namaH  
+oM caMdraardhamastakaayai namaH  
+oM bhaaratyai namaH 
+‖60‖
+
+oM bhraamaryai namaH  
+oM kalpaayai namaH  
+oM karaaLyai namaH  
+oM kRRishhNa piMgaLaayai namaH  
+oM braahmyai namaH  
+oM naaraayaNyai namaH  
+oM raudryai namaH  
+oM caMdraamRRita parivRRitaayai namaH  
+oM jyeshhThaayai namaH  
+oM iMdiraayai namaH 
+‖70‖
+
+oM mahaamaayaayai namaH  
+oM jagatsRRishhTyaadhikaariNyai namaH  
+oM brahmaaMDa koTi saMsthaanaayai namaH  
+oM kaaminyai namaH  
+oM kamalaalayaayai namaH  
+oM kaatyaayanyai namaH  
+oM kalaateetaayai namaH  
+oM kaalasaMhaarakaariNyai namaH  
+oM yogaanishhThaayai namaH  
+oM yogigamyaayai namaH 
+‖80‖
+
+oM yogadhyeyaayai namaH  
+oM tapasvinyai namaH  
+oM gnyaanaroopaayai namaH  
+oM niraakaaraayai namaH  
+oM bhaktaabheeshhTa phalapradaayai namaH  
+oM bhootaatmikaayai namaH  
+oM bhootamaatre namaH  
+oM bhooteshyai namaH  
+oM bhootadhaariNyai namaH  
+oM svadhaanaaree madhyagataayai namaH 
+‖90‖
+
+oM shhaDaadhaaraadhi vardhinyai namaH  
+oM mohitaayai namaH  
+oM aMshubhavaayai namaH   
+oM shubhraayai namaH  
+oM sookshhmaayai namaH  
+oM maatraayai namaH  
+oM niraalasaayai namaH  
+oM nimagnaayai namaH  
+oM neelasaMkaashaayai namaH  
+oM nityaanaMdinyai namaH 
+‖100‖
+
+oM haraayai namaH  
+oM paraayai namaH  
+oM sarvagnyaanapradaayai namaH  
+oM anaMtaayai namaH  
+oM satyaayai namaH  
+oM durlabha roopiNyai namaH  
+oM sarasvatyai namaH  
+oM sarvagataayai namaH  
+oM sarvaabheeshhTapradaayinyai namaH 
+‖ 108 ‖
+

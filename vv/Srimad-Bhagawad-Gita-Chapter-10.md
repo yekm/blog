@@ -1862,3 +1862,363 @@ vibhootiyogo naama dashamo.adhyaayaH ‖10 ‖
 
 విభూతియోగో నామ దశమోఽధ్యాయః ‖10 ‖  
 
+### English
+
+#### śrīmad bhagavad gīta daśamoadhyāyaḥ
+
+atha daśamoadhyāyaḥ ❘  
+śrībhagavānuvācha ❘  
+bhūya eva mahābāho śṛṇu me paramaṃ vachaḥ ❘  
+yatteahaṃ prīyamāṇāya vakśhyāmi hitakāmyayā 
+‖ 1 ‖
+
+na me viduḥ suragaṇāḥ prabhavaṃ na maharśhayaḥ ❘  
+ahamādirhi devānāṃ maharśhīṇāṃ cha sarvaśaḥ 
+‖ 2 ‖
+
+yo māmajamanādiṃ cha vetti lokamaheśvaram ❘  
+asaṃmūḍhaḥ sa martyeśhu sarvapāpaiḥ pramuchyate 
+‖ 3 ‖
+
+buddhirGYānamasaṃmohaḥ kśhamā satyaṃ damaḥ śamaḥ ❘  
+sukhaṃ duḥkhaṃ bhavoabhāvo bhayaṃ chābhayameva cha 
+‖ 4 ‖
+
+ahiṃsā samatā tuśhṭistapo dānaṃ yaśoayaśaḥ ❘  
+bhavanti bhāvā bhūtānāṃ matta eva pṛthagvidhāḥ 
+‖ 5 ‖
+
+maharśhayaḥ sapta pūrve chatvāro manavastathā ❘  
+madbhāvā mānasā jātā yeśhāṃ loka imāḥ prajāḥ 
+‖ 6 ‖
+
+etāṃ vibhūtiṃ yogaṃ cha mama yo vetti tattvataḥ ❘  
+soavikampena yogena yujyate nātra saṃśayaḥ 
+‖ 7 ‖
+
+ahaṃ sarvasya prabhavo mattaḥ sarvaṃ pravartate ❘  
+iti matvā bhajante māṃ budhā bhāvasamanvitāḥ 
+‖ 8 ‖
+
+machchittā madgataprāṇā bodhayantaḥ parasparam ❘  
+kathayantaścha māṃ nityaṃ tuśhyanti cha ramanti cha 
+‖ 9 ‖
+
+teśhāṃ satatayuktānāṃ bhajatāṃ prītipūrvakam ❘  
+dadāmi buddhiyogaṃ taṃ yena māmupayānti te 
+‖ 10 ‖
+
+teśhāmevānukampārthamahamaGYānajaṃ tamaḥ ❘  
+nāśayāmyātmabhāvastho GYānadīpena bhāsvatā 
+‖ 11 ‖
+
+arjuna uvācha ❘  
+paraṃ brahma paraṃ dhāma pavitraṃ paramaṃ bhavān ❘  
+puruśhaṃ śāśvataṃ divyamādidevamajaṃ vibhum 
+‖ 12 ‖
+
+āhustvāmṛśhayaḥ sarve devarśhirnāradastathā ❘  
+asito devalo vyāsaḥ svayaṃ chaiva bravīśhi me 
+‖ 13 ‖
+
+sarvametadṛtaṃ manye yanmāṃ vadasi keśava ❘  
+na hi te bhagavanvyaktiṃ vidurdevā na dānavāḥ 
+‖ 14 ‖
+
+svayamevātmanātmānaṃ vettha tvaṃ puruśhottama ❘  
+bhūtabhāvana bhūteśa devadeva jagatpate 
+‖ 15 ‖
+
+vaktumarhasyaśeśheṇa divyā hyātmavibhūtayaḥ ❘  
+yābhirvibhūtibhirlokānimāṃstvaṃ vyāpya tiśhṭhasi 
+‖ 16 ‖
+
+kathaṃ vidyāmahaṃ yogiṃstvāṃ sadā parichintayan ❘  
+keśhu keśhu cha bhāveśhu chintyoasi bhagavanmayā 
+‖ 17 ‖
+
+vistareṇātmano yogaṃ vibhūtiṃ cha janārdana ❘  
+bhūyaḥ kathaya tṛptirhi śṛṇvato nāsti meamṛtam 
+‖ 18 ‖
+
+śrībhagavānuvācha ❘  
+hanta te kathayiśhyāmi divyā hyātmavibhūtayaḥ ❘  
+prādhānyataḥ kuruśreśhṭha nāstyanto vistarasya me 
+‖ 19 ‖
+
+ahamātmā guḍākeśa sarvabhūtāśayasthitaḥ ❘  
+ahamādiścha madhyaṃ cha bhūtānāmanta eva cha 
+‖ 20 ‖
+
+ādityānāmahaṃ viśhṇurjyotiśhāṃ raviraṃśumān ❘  
+marīchirmarutāmasmi nakśhatrāṇāmahaṃ śaśī 
+‖ 21 ‖
+
+vedānāṃ sāmavedoasmi devānāmasmi vāsavaḥ ❘  
+indriyāṇāṃ manaśchāsmi bhūtānāmasmi chetanā 
+‖ 22 ‖
+
+rudrāṇāṃ śaṅkaraśchāsmi vitteśo yakśharakśhasām ❘  
+vasūnāṃ pāvakaśchāsmi meruḥ śikhariṇāmaham 
+‖ 23 ‖
+
+purodhasāṃ cha mukhyaṃ māṃ viddhi pārtha bṛhaspatim ❘  
+senānīnāmahaṃ skandaḥ sarasāmasmi sāgaraḥ 
+‖ 24 ‖
+
+maharśhīṇāṃ bhṛgurahaṃ girāmasmyekamakśharam ❘  
+yaGYānāṃ japayaGYoasmi sthāvarāṇāṃ himālayaḥ 
+‖ 25 ‖
+
+aśvatthaḥ sarvavṛkśhāṇāṃ devarśhīṇāṃ cha nāradaḥ ❘  
+gandharvāṇāṃ chitrarathaḥ siddhānāṃ kapilo muniḥ 
+‖ 26 ‖
+
+uchchaiḥśravasamaśvānāṃ viddhi māmamṛtodbhavam ❘  
+airāvataṃ gajendrāṇāṃ narāṇāṃ cha narādhipam 
+‖ 27 ‖
+
+āyudhānāmahaṃ vajraṃ dhenūnāmasmi kāmadhuk ❘  
+prajanaśchāsmi kandarpaḥ sarpāṇāmasmi vāsukiḥ 
+‖ 28 ‖
+
+anantaśchāsmi nāgānāṃ varuṇo yādasāmaham ❘  
+pitRRīṇāmaryamā chāsmi yamaḥ saṃyamatāmaham 
+‖ 29 ‖
+
+prahlādaśchāsmi daityānāṃ kālaḥ kalayatāmaham ❘  
+mṛgāṇāṃ cha mṛgendroahaṃ vainateyaścha pakśhiṇām 
+‖ 30 ‖
+
+pavanaḥ pavatāmasmi rāmaḥ śastrabhṛtāmaham ❘  
+jhaśhāṇāṃ makaraśchāsmi srotasāmasmi jāhnavī 
+‖ 31 ‖
+
+sargāṇāmādirantaścha madhyaṃ chaivāhamarjuna ❘  
+adhyātmavidyā vidyānāṃ vādaḥ pravadatāmaham 
+‖ 32 ‖
+
+akśharāṇāmakāroasmi dvandvaḥ sāmāsikasya cha ❘  
+ahamevākśhayaḥ kālo dhātāhaṃ viśvatomukhaḥ 
+‖ 33 ‖
+
+mṛtyuḥ sarvaharaśchāhamudbhavaścha bhaviśhyatām ❘  
+kīrtiḥ śrīrvākcha nārīṇāṃ smṛtirmedhā dhṛtiḥ kśhamā 
+‖ 34 ‖
+
+bṛhatsāma tathā sāmnāṃ gāyatrī Chandasāmaham ❘  
+māsānāṃ mārgaśīrśhoahamṛtūnāṃ kusumākaraḥ 
+‖ 35 ‖
+
+dyūtaṃ Chalayatāmasmi tejastejasvināmaham ❘  
+jayoasmi vyavasāyoasmi sattvaṃ sattvavatāmaham 
+‖ 36 ‖
+
+vṛśhṇīnāṃ vāsudevoasmi pāṇḍavānāṃ dhanañjayaḥ ❘  
+munīnāmapyahaṃ vyāsaḥ kavīnāmuśanā kaviḥ 
+‖ 37 ‖
+
+daṇḍo damayatāmasmi nītirasmi jigīśhatām ❘  
+maunaṃ chaivāsmi guhyānāṃ GYānaṃ GYānavatāmaham 
+‖ 38 ‖
+
+yachchāpi sarvabhūtānāṃ bījaṃ tadahamarjuna ❘  
+na tadasti vinā yatsyānmayā bhūtaṃ charācharam 
+‖ 39 ‖
+
+nāntoasti mama divyānāṃ vibhūtīnāṃ parantapa ❘  
+eśha tūddeśataḥ prokto vibhūtervistaro mayā 
+‖ 40 ‖
+
+yadyadvibhūtimatsattvaṃ śrīmadūrjitameva vā ❘  
+tattadevāvagachCha tvaṃ mama tejoṃ'śasambhavam 
+‖ 41 ‖
+
+athavā bahunaitena kiṃ GYātena tavārjuna ❘  
+viśhṭabhyāhamidaṃ kṛtsnamekāṃśena sthito jagat 
+‖ 42 ‖
+
+oṃ tatsaditi śrīmadbhagavadgītāsūpaniśhatsu brahmavidyāyāṃ yogaśāstre śrīkṛśhṇārjunasaṃvāde   
+vibhūtiyogo nāma daśamoadhyāyaḥ 
+‖10 ‖
+
+### PlainEnglish
+
+#### shreemad bhagavad geeta dashamo.adhyaayaH
+
+atha dashamo.adhyaayaH ❘  
+shreebhagavaanuvaacha ❘  
+bhooya eva mahaabaaho shRRiNu me paramaM vachaH ❘  
+yatte.ahaM preeyamaaNaaya vakshhyaami hitakaamyayaa 
+‖ 1 ‖
+
+na me viduH suragaNaaH prabhavaM na maharshhayaH ❘  
+ahamaadirhi devaanaaM maharshheeNaaM cha sarvashaH 
+‖ 2 ‖
+
+yo maamajamanaadiM cha vetti lokamaheshvaram ❘  
+asaMmooDhaH sa martyeshhu sarvapaapaiH pramuchyate 
+‖ 3 ‖
+
+buddhirgnyaanamasaMmohaH kshhamaa satyaM damaH shamaH ❘  
+sukhaM duHkhaM bhavo.abhaavo bhayaM chaabhayameva cha 
+‖ 4 ‖
+
+ahiMsaa samataa tushhTistapo daanaM yasho.ayashaH ❘  
+bhavanti bhaavaa bhootaanaaM matta eva pRRithagvidhaaH 
+‖ 5 ‖
+
+maharshhayaH sapta poorve chatvaaro manavastathaa ❘  
+madbhaavaa maanasaa jaataa yeshhaaM loka imaaH prajaaH 
+‖ 6 ‖
+
+etaaM vibhootiM yogaM cha mama yo vetti tattvataH ❘  
+so.avikampena yogena yujyate naatra saMshayaH 
+‖ 7 ‖
+
+ahaM sarvasya prabhavo mattaH sarvaM pravartate ❘  
+iti matvaa bhajante maaM budhaa bhaavasamanvitaaH 
+‖ 8 ‖
+
+machchittaa madgatapraaNaa bodhayantaH parasparam ❘  
+kathayantashcha maaM nityaM tushhyanti cha ramanti cha 
+‖ 9 ‖
+
+teshhaaM satatayuktaanaaM bhajataaM preetipoorvakam ❘  
+dadaami buddhiyogaM taM yena maamupayaanti te 
+‖ 10 ‖
+
+teshhaamevaanukampaarthamahamagnyaanajaM tamaH ❘  
+naashayaamyaatmabhaavastho gnyaanadeepena bhaasvataa 
+‖ 11 ‖
+
+arjuna uvaacha ❘  
+paraM brahma paraM dhaama pavitraM paramaM bhavaan ❘  
+purushhaM shaashvataM divyamaadidevamajaM vibhum 
+‖ 12 ‖
+
+aahustvaamRRishhayaH sarve devarshhirnaaradastathaa ❘  
+asito devalo vyaasaH svayaM chaiva braveeshhi me 
+‖ 13 ‖
+
+sarvametadRRitaM manye yanmaaM vadasi keshava ❘  
+na hi te bhagavanvyaktiM vidurdevaa na daanavaaH 
+‖ 14 ‖
+
+svayamevaatmanaatmaanaM vettha tvaM purushhottama ❘  
+bhootabhaavana bhootesha devadeva jagatpate 
+‖ 15 ‖
+
+vaktumarhasyasheshheNa divyaa hyaatmavibhootayaH ❘  
+yaabhirvibhootibhirlokaanimaaMstvaM vyaapya tishhThasi 
+‖ 16 ‖
+
+kathaM vidyaamahaM yogiMstvaaM sadaa parichintayan ❘  
+keshhu keshhu cha bhaaveshhu chintyo.asi bhagavanmayaa 
+‖ 17 ‖
+
+vistareNaatmano yogaM vibhootiM cha janaardana ❘  
+bhooyaH kathaya tRRiptirhi shRRiNvato naasti me.amRRitam 
+‖ 18 ‖
+
+shreebhagavaanuvaacha ❘  
+hanta te kathayishhyaami divyaa hyaatmavibhootayaH ❘  
+praadhaanyataH kurushreshhTha naastyanto vistarasya me 
+‖ 19 ‖
+
+ahamaatmaa guDaakesha sarvabhootaashayasthitaH ❘  
+ahamaadishcha madhyaM cha bhootaanaamanta eva cha 
+‖ 20 ‖
+
+aadityaanaamahaM vishhNurjyotishhaaM raviraMshumaan ❘  
+mareechirmarutaamasmi nakshhatraaNaamahaM shashee 
+‖ 21 ‖
+
+vedaanaaM saamavedo.asmi devaanaamasmi vaasavaH ❘  
+indriyaaNaaM manashchaasmi bhootaanaamasmi chetanaa 
+‖ 22 ‖
+
+rudraaNaaM shaMkarashchaasmi vittesho yakshharakshhasaam ❘  
+vasoonaaM paavakashchaasmi meruH shikhariNaamaham 
+‖ 23 ‖
+
+purodhasaaM cha mukhyaM maaM viddhi paartha bRRihaspatim ❘  
+senaaneenaamahaM skandaH sarasaamasmi saagaraH 
+‖ 24 ‖
+
+maharshheeNaaM bhRRigurahaM giraamasmyekamakshharam ❘  
+yagnyaanaaM japayagnyo.asmi sthaavaraaNaaM himaalayaH 
+‖ 25 ‖
+
+ashvatthaH sarvavRRikshhaaNaaM devarshheeNaaM cha naaradaH ❘  
+gandharvaaNaaM chitrarathaH siddhaanaaM kapilo muniH 
+‖ 26 ‖
+
+uchchaiHshravasamashvaanaaM viddhi maamamRRitodbhavam ❘  
+airaavataM gajendraaNaaM naraaNaaM cha naraadhipam 
+‖ 27 ‖
+
+aayudhaanaamahaM vajraM dhenoonaamasmi kaamadhuk ❘  
+prajanashchaasmi kandarpaH sarpaaNaamasmi vaasukiH 
+‖ 28 ‖
+
+anantashchaasmi naagaanaaM varuNo yaadasaamaham ❘  
+pitRReeNaamaryamaa chaasmi yamaH saMyamataamaham 
+‖ 29 ‖
+
+prahlaadashchaasmi daityaanaaM kaalaH kalayataamaham ❘  
+mRRigaaNaaM cha mRRigendro.ahaM vainateyashcha pakshhiNaam 
+‖ 30 ‖
+
+pavanaH pavataamasmi raamaH shastrabhRRitaamaham ❘  
+jhashhaaNaaM makarashchaasmi srotasaamasmi jaahnavee 
+‖ 31 ‖
+
+sargaaNaamaadirantashcha madhyaM chaivaahamarjuna ❘  
+adhyaatmavidyaa vidyaanaaM vaadaH pravadataamaham 
+‖ 32 ‖
+
+akshharaaNaamakaaro.asmi dvandvaH saamaasikasya cha ❘  
+ahamevaakshhayaH kaalo dhaataahaM vishvatomukhaH 
+‖ 33 ‖
+
+mRRityuH sarvaharashchaahamudbhavashcha bhavishhyataam ❘  
+keertiH shreervaakcha naareeNaaM smRRitirmedhaa dhRRitiH kshhamaa 
+‖ 34 ‖
+
+bRRihatsaama tathaa saamnaaM gaayatree Chandasaamaham ❘  
+maasaanaaM maargasheershho.ahamRRitoonaaM kusumaakaraH 
+‖ 35 ‖
+
+dyootaM Chalayataamasmi tejastejasvinaamaham ❘  
+jayo.asmi vyavasaayo.asmi sattvaM sattvavataamaham 
+‖ 36 ‖
+
+vRRishhNeenaaM vaasudevo.asmi paaMDavaanaaM dhanaMjayaH ❘  
+muneenaamapyahaM vyaasaH kaveenaamushanaa kaviH 
+‖ 37 ‖
+
+daNDo damayataamasmi neetirasmi jigeeshhataam ❘  
+maunaM chaivaasmi guhyaanaaM gnyaanaM gnyaanavataamaham 
+‖ 38 ‖
+
+yachchaapi sarvabhootaanaaM beejaM tadahamarjuna ❘  
+na tadasti vinaa yatsyaanmayaa bhootaM charaacharam 
+‖ 39 ‖
+
+naanto.asti mama divyaanaaM vibhooteenaaM paraMtapa ❘  
+eshha tooddeshataH prokto vibhootervistaro mayaa 
+‖ 40 ‖
+
+yadyadvibhootimatsattvaM shreemadoorjitameva vaa ❘  
+tattadevaavagachCha tvaM mama tejoM.ashasaMbhavam 
+‖ 41 ‖
+
+athavaa bahunaitena kiM gnyaatena tavaarjuna ❘  
+vishhTabhyaahamidaM kRRitsnamekaaMshena sthito jagat 
+‖ 42 ‖
+
+oM tatsaditi shreemadbhagavadgeetaasoopanishhatsu brahmavidyaayaaM yogashaastre shreekRRishhNaarjunasaMvaade   
+vibhootiyogo naama dashamo.adhyaayaH 
+‖10 ‖
+

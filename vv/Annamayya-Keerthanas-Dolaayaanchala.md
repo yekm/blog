@@ -224,3 +224,37 @@ sheerapaaNe gosamaaNe shree veMkaTagirikooTanilaya ‖ 2 ‖
 దారుణ బుద్ద కలికి దశవిధ^^అవతారా ❘  
 శీరపాణే గోసమాణే శ్రీ వేంకటగిరికూటనిలయ ‖ 2 ‖  
 
+### English
+
+#### annamayya kīrtana ḍolāyāñchala
+
+rāgaṃ: varāḻi  
+ḍolāyāṃ cala ḍolāyāṃ hare ḍolāyāṃ ‖
+
+mīnakūrma varāhā mṛgapati^^avatārā ❘  
+dānavāre guṇaśaure dharaṇidhara marujanaka ‖
+
+vāmana rāma rāma varakṛśhṇa avatārā ❘  
+śyāmalāṅgā raṅga raṅgā sāmajavarada muraharaṇa ‖
+
+dāruṇa budda kaliki daśavidha^^avatārā ❘  
+śīrapāṇe gosamāṇe śrī veṅkaṭagirikūṭanilaya 
+‖ 2 ‖
+
+### PlainEnglish
+
+#### annamayya keertana DolaayaaMchala
+
+raagaM: varaaLi  
+DolaayaaM cala DolaayaaM hare DolaayaaM ‖
+
+meenakoorma varaahaa mRRigapati^^avataaraa ❘  
+daanavaare guNashaure dharaNidhara marujanaka ‖
+
+vaamana raama raama varakRRishhNa avataaraa ❘  
+shyaamalaaMgaa raMga raMgaa saamajavarada muraharaNa ‖
+
+daaruNa budda kaliki dashavidha^^avataaraa ❘  
+sheerapaaNe gosamaaNe shree veMkaTagirikooTanilaya 
+‖ 2 ‖
+

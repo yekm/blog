@@ -1160,3 +1160,123 @@ shree deveebhaagavataaMtargata gaayattree kavacam saMpoorNaM
 శ్రీ దేవీభాగవతాంతర్గత గాయత్త్రీ కవచమ్ సంపూర్ణం  
 
 
+### English
+
+#### gāyatrī kavacham
+
+nārada uvāca  
+svāmin sarvajagannādha saṃśayoasti mama prabho  
+catuśhaśhṭi kaḻābhiGYa pātakā dyogavidvara  
+mucyate kena puṇyena brahmarūpaḥ kathaṃ bhavet  
+dehaśca devatārūpo mantra rūpo viśeśhataḥ  
+karmata cChrotu micChāmi nyāsaṃ ca vidhipūrvakam  
+ṛśhi śChandoadhi daivañca dhyānaṃ ca vidhiva tprabho  
+nārāyaṇa uvāca  
+asytekaṃ paramaṃ guhyaṃ gāyatrī kavacaṃ tathā  
+paṭhanā ddhāraṇā nmartya ssarvapāpaiḥ pramucyate  
+sarvāṅkāmānavāpnoti devī rūpaśca jāyate  
+gāyattrī kavacasyāsya brahmaviśhṇumaheśvarāḥ  
+ṛśhayo ṛgyajussāmātharva cChandāṃsi nārada  
+brahmarūpā devatoktā gāyatrī paramā kaḻā  
+tadbījaṃ bharga ityeśhā śakti ruktā manīśhibhiḥ  
+kīlakañca dhiyaḥ proktaṃ mokśhārdhe viniyojanam  
+caturbhirhṛdayaṃ proktaṃ tribhi rvarṇai śśira ssmṛtam  
+caturbhissyācChikhā paścāttribhistu kavacaṃ ssmutam  
+caturbhi rnetra muddhiśhṭaṃ caturbhissyāttadasrtakam  
+atha dhyānaṃ pravakśhyāmi sādhakābhīśhṭadāyakam  
+muktā vidruma hemanīla dhavaḻa cChāyairmukhai strīkśhaṇaiḥ  
+yuktāmindu nibaddha ratna makuṭāṃ tatvārdha varṇātmikām ❘  
+gāyattrīṃ varadābhayāṃ kuśakaśāśśubhraṃ kapālaṃ gadāṃ  
+śaṅkhaṃ cakra mathāravinda yugaḻaṃ hastairvahantīṃ bhaje ‖
+
+gāyattrī pūrvataḥ pātu sāvitrī pātu dakśhiṇe  
+brahma sandhyātu me paścāduttarāyāṃ sarasvatī  
+pārvatī me diśaṃ rākśhe tpāvakīṃ jalaśāyinī  
+yātūdhānīṃ diśaṃ rakśhe dyātudhānabhayaṅkarī  
+pāvamānīṃ diśaṃ rakśhetpavamāna vilāsinī  
+diśaṃ raudrīñca me pātu rudrāṇī rudra rūpiṇī  
+ūrdhvaṃ brahmāṇī me rakśhe dadhastā dvaiśhṇavī tathā  
+evaṃ daśa diśo rakśhe tsarvāṅgaṃ bhuvaneśvarī  
+tatpadaṃ pātu me pādau jaṅghe me savituḥpadam  
+vareṇyaṃ kaṭi deśetu nābhiṃ bharga stathaivaca  
+devasya me taddhṛdayaṃ dhīmahīti ca gallayoḥ  
+dhiyaḥ padaṃ ca me netre yaḥ padaṃ me lalāṭakam  
+naḥ padaṃ pātu me mūrdhni śikhāyāṃ me pracodayāt  
+tatpadaṃ pātu mūrdhānaṃ sakāraḥ pātu phālakam  
+cakśhuśhītu vikārārṇo tukārastu kapolayoḥ  
+nāsāpuṭaṃ vakārārṇo rakārastu mukhe tathā   
+ṇikāra ūrdhva mośhṭhantu yakārastvadharośhṭhakam  
+āsyamadhye bhakārārṇo gokāra ścubuke tathā   
+dekāraḥ kaṇṭha deśetu vakāra sskandha deśakam  
+syakāro dakśhiṇaṃ hastaṃ dhīkāro vāma hastakam  
+makāro hṛdayaṃ rakśheddhikāra udare tathā  
+dhikāro nābhi deśetu yokārastu kaṭiṃ tathā  
+guhyaṃ rakśhatu yokāra ūrū dvau naḥ padākśharam  
+prakāro jānunī rakśhe cChokāro jaṅgha deśakam  
+dakāraṃ gulpha deśetu yākāraḥ padayugmakam  
+takāra vyañjanaṃ caiva sarvāṅge me sadāvatu   
+idantu kavacaṃ divyaṃ bādhā śata vināśanam  
+catuśhśhaśhṭi kaḻā vidyādāyakaṃ mokśhakārakam  
+mucyate sarva pāpebhyaḥ paraṃ brahmādhigacChati   
+paṭhanā cChravaṇā dvāpi go sahasra phalaṃ labhet    
+śrī devībhāgavatāntargata gāyattrī kavacam sampūrṇaṃ   
+### PlainEnglish
+
+#### gaayatree kavacham
+
+naarada uvaaca  
+svaamin sarvajagannaadha saMshayo.asti mama prabho  
+catushhashhTi kaLaabhignya paatakaa dyogavidvara  
+mucyate kena puNyena brahmaroopaH kathaM bhavet  
+dehashca devataaroopo maMtra roopo visheshhataH  
+karmata cChrotu micChaami nyaasaM ca vidhipoorvakam  
+RRishhi shChaMdo.adhi daivaMca dhyaanaM ca vidhiva tprabho  
+naaraayaNa uvaaca  
+asytekaM paramaM guhyaM gaayatree kavacaM tathaa  
+paThanaa ddhaaraNaa nmartya ssarvapaapaiH pramucyate  
+sarvaaMkaamaanavaapnoti devee roopashca jaayate  
+gaayattree kavacasyaasya brahmavishhNumaheshvaraaH  
+RRishhayo RRigyajussaamaatharva cChaMdaaMsi naarada  
+brahmaroopaa devatoktaa gaayatree paramaa kaLaa  
+tadbeejaM bharga ityeshhaa shakti ruktaa maneeshhibhiH  
+keelakaMca dhiyaH proktaM mokshhaardhe viniyojanam  
+caturbhirhRRidayaM proktaM tribhi rvarNai shshira ssmRRitam  
+caturbhissyaacChikhaa pashcaattribhistu kavacaM ssmutam  
+caturbhi rnetra muddhishhTaM caturbhissyaattadasrtakam  
+atha dhyaanaM pravakshhyaami saadhakaabheeshhTadaayakam  
+muktaa vidruma hemaneela dhavaLa cChaayairmukhai streekshhaNaiH  
+yuktaamiMdu nibaddha ratna makuTaaM tatvaardha varNaatmikaam ❘  
+gaayattreeM varadaabhayaaM kushakashaashshubhraM kapaalaM gadaaM  
+shaMkhaM cakra mathaaraviMda yugaLaM hastairvahaMteeM bhaje ‖
+
+gaayattree poorvataH paatu saavitree paatu dakshhiNe  
+brahma saMdhyaatu me pashcaaduttaraayaaM sarasvatee  
+paarvatee me dishaM raakshhe tpaavakeeM jalashaayinee  
+yaatoodhaaneeM dishaM rakshhe dyaatudhaanabhayaMkaree  
+paavamaaneeM dishaM rakshhetpavamaana vilaasinee  
+dishaM raudreeMca me paatu rudraaNee rudra roopiNee  
+oordhvaM brahmaaNee me rakshhe dadhastaa dvaishhNavee tathaa  
+evaM dasha disho rakshhe tsarvaaMgaM bhuvaneshvaree  
+tatpadaM paatu me paadau jaMghe me savituHpadam  
+vareNyaM kaTi deshetu naabhiM bharga stathaivaca  
+devasya me taddhRRidayaM dheemaheeti ca gallayoH  
+dhiyaH padaM ca me netre yaH padaM me lalaaTakam  
+naH padaM paatu me moordhni shikhaayaaM me pracodayaat  
+tatpadaM paatu moordhaanaM sakaaraH paatu phaalakam  
+cakshhushheetu vikaaraarNo tukaarastu kapolayoH  
+naasaapuTaM vakaaraarNo rakaarastu mukhe tathaa   
+Nikaara oordhva moshhThaMtu yakaarastvadharoshhThakam  
+aasyamadhye bhakaaraarNo gokaara shcubuke tathaa   
+dekaaraH kaMTha deshetu vakaara sskaMdha deshakam  
+syakaaro dakshhiNaM hastaM dheekaaro vaama hastakam  
+makaaro hRRidayaM rakshheddhikaara udare tathaa  
+dhikaaro naabhi deshetu yokaarastu kaTiM tathaa  
+guhyaM rakshhatu yokaara ooroo dvau naH padaakshharam  
+prakaaro jaanunee rakshhe cChokaaro jaMgha deshakam  
+dakaaraM gulpha deshetu yaakaaraH padayugmakam  
+takaara vyaMjanaM caiva sarvaaMge me sadaavatu   
+idaMtu kavacaM divyaM baadhaa shata vinaashanam  
+catushhshhashhTi kaLaa vidyaadaayakaM mokshhakaarakam  
+mucyate sarva paapebhyaH paraM brahmaadhigacChati   
+paThanaa cChravaNaa dvaapi go sahasra phalaM labhet    
+shree deveebhaagavataaMtargata gaayattree kavacam saMpoorNaM   

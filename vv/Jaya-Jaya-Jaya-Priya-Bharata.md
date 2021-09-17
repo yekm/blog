@@ -211,3 +211,35 @@ jaya madeeya madhurageya cuMbita suMdara caraNaa! ‖ jaya‖
 జయ మదీయ మధురగేయ చుంబిత సుందర చరణా! ‖ జయ‖  
 
 
+### English
+
+#### jaya jaya jaya priya bhārata
+
+jaya jaya jaya priya bhārata janayitrī divya dhātri  
+jaya jaya jaya śata sahasra naranārī hṛdaya netri  
+jaya jaya jaya suśyāmala sasya chalacchelāñchala  
+jaya vasanta kusuma latā calita lalita cūrṇakuntala  
+jaya madīya hṛdayāśaya lākśhāruṇa pada yugaḻā! 
+‖ jaya ‖
+
+jaya diśānta gata śakunta divyagāna paritośhaṇa  
+jaya gāyaka vaitāḻika gaḻa viśāla pada viharaṇa  
+jaya madīya madhurageya cumbita sundara caraṇā! 
+‖ jaya‖
+
+### PlainEnglish
+
+#### jaya jaya jaya priya bhaarata
+
+jaya jaya jaya priya bhaarata janayitree divya dhaatri  
+jaya jaya jaya shata sahasra naranaaree hRRidaya netri  
+jaya jaya jaya sushyaamala sasya chalacchelaaMchala  
+jaya vasaMta kusuma lataa calita lalita coorNakuMtala  
+jaya madeeya hRRidayaashaya laakshhaaruNa pada yugaLaa! 
+‖ jaya ‖
+
+jaya dishaaMta gata shakuMta divyagaana paritoshhaNa  
+jaya gaayaka vaitaaLika gaLa vishaala pada viharaNa  
+jaya madeeya madhurageya cuMbita suMdara caraNaa! 
+‖ jaya‖
+

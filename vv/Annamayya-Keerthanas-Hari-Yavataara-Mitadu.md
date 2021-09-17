@@ -302,3 +302,45 @@ aareetula taallapaaka annamayya ‖
 ఆరీతుల తాల్లపాక అన్నమయ్య ‖  
 
 
+### English
+
+#### annamayya kīrtana hari yavatāra mitaḍu
+
+hari yavatāra mītaḍu annamayya ❘  
+araya mā guruḍītaḍu annamayya ❘  
+vaikuṇṭha nāthuni vadda vaḍi paḍu chunna vāḍu   
+ākaramai tāllapāka annamayya ❘  
+ākasapu viśhṇu pādamandu nityamai unna vāḍu    
+ākaḍīkaḍa tāllapāka annamayya ‖
+
+īvala saṃsāra līla indireśuto nunna vāḍu   
+āvaṭiñchi tāllapāka annamayya ❘  
+bhāvimpa śrī veṅkaṭeśu padamulande yunnavāḍu   
+hāva bhāvamai tāllapāka annamayya ‖
+
+kśhīrābdhiśāyi baṭṭi sevimpuchu nunnavāḍu   
+āriteri tāllapāka annamayya ❘  
+dhīruḍai sūryamaṇḍala tejamu vadda nunnavāḍu   
+ārītula tāllapāka annamayya ‖
+
+### PlainEnglish
+
+#### annamayya keertana hari yavataara mitaDu
+
+hari yavataara meetaDu annamayya ❘  
+araya maa guruDeetaDu annamayya ❘  
+vaikuMTha naathuni vadda vaDi paDu chunna vaaDu   
+aakaramai taallapaaka annamayya ❘  
+aakasapu vishhNu paadamaMdu nityamai unna vaaDu    
+aakaDeekaDa taallapaaka annamayya ‖
+
+eevala saMsaara leela iMdireshuto nunna vaaDu   
+aavaTiMchi taallapaaka annamayya ❘  
+bhaaviMpa shree veMkaTeshu padamulaMde yunnavaaDu   
+haava bhaavamai taallapaaka annamayya ‖
+
+kshheeraabdhishaayi baTTi seviMpuchu nunnavaaDu   
+aariteri taallapaaka annamayya ❘  
+dheeruDai sooryamaNDala tejamu vadda nunnavaaDu   
+aareetula taallapaaka annamayya ‖
+

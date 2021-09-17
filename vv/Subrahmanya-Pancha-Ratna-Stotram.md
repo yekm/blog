@@ -328,3 +328,61 @@ aMte sa gacChati mudaa guhasaamyameva ‖
 అంతే స గచ్ఛతి ముదా గుహసామ్యమేవ ‖  
 
 
+### English
+
+#### subrahmaṇya pañcha ratna stotram
+
+śhaḍānanaṃ candanalepitāṅgaṃ mahorasaṃ divyamayūravāhanam ❘  
+rudrasyasūnuṃ suralokanāthaṃ brahmaṇyadevaṃ śaraṇaṃ prapadye 
+‖ 1 ‖
+
+jājvalyamānaṃ suravṛndavandyaṃ kumāra dhārātaṭa mandirastham ❘  
+kandarparūpaṃ kamanīyagātraṃ brahmaṇyadevaṃ śaraṇaṃ prapadye 
+‖ 2 ‖
+
+dviśhaḍbhujaṃ dvādaśadivyanetraṃ trayītanuṃ śūlamasī dadhānam ❘  
+śeśhāvatāraṃ kamanīyarūpaṃ brahmaṇyadevaṃ śaraṇaṃ prapadye 
+‖ 3 ‖
+
+surārighorāhavaśobhamānaṃ surottamaṃ śaktidharaṃ kumāram ❘  
+sudhāra śaktyāyudha śobhihastaṃ brahmaṇyadevaṃ śaraṇaṃ prapadye 
+‖ 4 ‖
+
+iśhṭārthasiddhipradamīśaputraṃ iśhṭānnadaṃ bhūsurakāmadhenum ❘  
+gaṅgodbhavaṃ sarvajanānukūlaṃ brahmaṇyadevaṃ śaraṇaṃ prapadye 
+‖ 5 ‖
+
+yaḥ ślokapañcamidaṃ paṭhatīha bhaktyā  
+brahmaṇyadeva viniveśita mānasaḥ san ❘  
+prāpnoti bhogamakhilaṃ bhuvi yadyadiśhṭam  
+ante sa gacChati mudā guhasāmyameva ‖
+
+### PlainEnglish
+
+#### subrahmaNya paMcha ratna stotram
+
+shhaDaananaM caMdanalepitaaMgaM mahorasaM divyamayooravaahanam ❘  
+rudrasyasoonuM suralokanaathaM brahmaNyadevaM sharaNaM prapadye 
+‖ 1 ‖
+
+jaajvalyamaanaM suravRRiMdavaMdyaM kumaara dhaaraataTa maMdirastham ❘  
+kaMdarparoopaM kamaneeyagaatraM brahmaNyadevaM sharaNaM prapadye 
+‖ 2 ‖
+
+dvishhaDbhujaM dvaadashadivyanetraM trayeetanuM shoolamasee dadhaanam ❘  
+sheshhaavataaraM kamaneeyaroopaM brahmaNyadevaM sharaNaM prapadye 
+‖ 3 ‖
+
+suraarighoraahavashobhamaanaM surottamaM shaktidharaM kumaaram ❘  
+sudhaara shaktyaayudha shobhihastaM brahmaNyadevaM sharaNaM prapadye 
+‖ 4 ‖
+
+ishhTaarthasiddhipradameeshaputraM ishhTaannadaM bhoosurakaamadhenum ❘  
+gaMgodbhavaM sarvajanaanukoolaM brahmaNyadevaM sharaNaM prapadye 
+‖ 5 ‖
+
+yaH shlokapaMcamidaM paThateeha bhaktyaa  
+brahmaNyadeva viniveshita maanasaH san ❘  
+praapnoti bhogamakhilaM bhuvi yadyadishhTam  
+aMte sa gacChati mudaa guhasaamyameva ‖
+

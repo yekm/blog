@@ -328,3 +328,49 @@ gaDiyiMchinaTTi shree veMkaTanaathuDaa ‖
 గడియించినట్టి శ్రీ వేంకటనాథుడా ‖  
 
 
+### English
+
+#### annamayya kīrtana poḍagaṇṭimayya
+
+rāgaṃ:aṭṭatāḻaṃ  
+poḍagaṇṭimayya mimmu puruśhottamā mammu  
+neḍayakavayya koneṭi rāyaḍā ‖
+
+korimammu nelinaṭṭi kuladaivamā, chāla  
+nerichi peddalichchina nidhānamā ❘  
+gāraviñchi dappidīrchu kālameghamā, māku  
+cheruvajittamuloni śrīnivāsuḍā ‖
+
+bhāvimpa gaivasamaina pārijātamā, mammu  
+chevadera gāchinaṭṭi chintāmaṇī ❘  
+kāviñchi korikalichche kāmadhenuvā, mammu  
+tāvai rakśhiñcheṭi dharaṇīdharā ‖
+
+cheḍanīka bratikiñche siddhamantramā, rogā  
+laḍachi rakśhiñche divyauśhadhamā ❘  
+baḍibāyaka tirige prāṇabandhuḍā, mammu  
+gaḍiyiñchinaṭṭi śrī veṅkaṭanāthuḍā ‖
+
+### PlainEnglish
+
+#### annamayya keertana p.oDagaMTimayya
+
+raagaM:aTTataaLaM  
+p.oDagaMTimayya mimmu purushhottamaa mammu  
+n.eDayakavayya koneTi raayaDaa ‖
+
+korimammu nelinaTTi kuladaivamaa, chaala  
+nerichi p.eddalichchina nidhaanamaa ❘  
+gaaraviMchi dappideerchu kaalameghamaa, maaku  
+cheruvajittamuloni shreenivaasuDaa ‖
+
+bhaaviMpa gaivasamaina paarijaatamaa, mammu  
+chevadera gaachinaTTi chiMtaamaNee ❘  
+kaaviMchi korikalichche kaamadhenuvaa, mammu  
+taavai rakshhiMcheTi dharaNeedharaa ‖
+
+ch.eDaneeka bratikiMche siddhamaMtramaa, rogaa  
+laDachi rakshhiMche divyaushhadhamaa ❘  
+baDibaayaka tirige praaNabaMdhuDaa, mammu  
+gaDiyiMchinaTTi shree veMkaTanaathuDaa ‖
+

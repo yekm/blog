@@ -289,3 +289,47 @@ tamito pradakshhiNaalu daMDamulu nivigo ‖
 అమరిన శ్రీవేంకటాద్రి మీది దేవునికి  
 తమితో ప్రదక్షిణాలు దండములు నివిగో ‖  
 
+### English
+
+#### annamayya kīrtana śhoḍaśa kaḻānidhiki
+
+śhoḍasakaḻānidhiki śhoḍaśopachāramulu  
+jāḍatoḍa nichchalunu samarpayāmi ‖
+
+alaru viśvātmakuna kāvāhana mide sarva  
+nilayuna kāsanamu nemminide ❘  
+alagaṅgā janakuna karghyapādyāchamanālu  
+jaladhi śāyikini majjanamide ‖
+
+varapītāmbarunaku vastrālaṅkāramide  
+sari śrīmantunaku bhūśhaṇamu live ❘  
+dharaṇīdharunaku gandhapuśhpa dhūpamulu  
+tiramide koṭisūryatejunaku dīpamu ‖
+
+amṛtamathanunaku nadivo naivedyamu  
+gami(ravi)jandrunetrunaku kappuraviḍemu ❘  
+amarina śrīveṅkaṭādri mīdi devuniki  
+tamito pradakśhiṇālu daṇḍamulu nivigo ‖
+
+### PlainEnglish
+
+#### annamayya keertana shhoDasha kaLaanidhiki
+
+shhoDasakaLaanidhiki shhoDashopachaaramulu  
+jaaDatoDa nichchalunu samarpayaami ‖
+
+alaru vishvaatmakuna kaavaahana mid.e sarva  
+nilayuna kaasanamu n.emminide ❘  
+alagaMgaa janakuna karghyapaadyaachamanaalu  
+jaladhi shaayikini majjanamide ‖
+
+varapeetaaMbarunaku vastraalaMkaaramid.e  
+sari shreemaMtunaku bhooshhaNamu live ❘  
+dharaNeedharunaku gaMdhapushhpa dhoopamulu  
+tiramid.e koTisooryatejunaku deepamu ‖
+
+amRRitamathanunaku nadivo naivedyamu  
+gami(ravi)jaMdrunetrunaku kappuraviD.emu ❘  
+amarina shreeveMkaTaadri meedi devuniki  
+tamito pradakshhiNaalu daMDamulu nivigo ‖
+

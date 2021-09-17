@@ -843,3 +843,117 @@ Of previous births will vanish in a second.
 సుబ్రహ్మణ్య కరావలంబమిదం ప్రాతరుత్థాయ యః పఠేత్ ❘  
 కోటిజన్మకృతం పాపం తత్^క్షణాదేవ నశ్యతి ‖  
 
+### English
+
+#### subrahmaṇya aśhṭakam karāvalamba stotram
+
+he svāminātha karuṇākara dīnabandho,  
+śrīpārvatīśamukhapaṅkaja padmabandho ❘  
+śrīśādidevagaṇapūjitapādapadma,  
+vallīsanātha mama dehi karāvalambam 
+‖ 1 ‖
+
+devādidevanuta devagaṇādhinātha,  
+devendravandya mṛdupaṅkajamañjupāda ❘  
+devarśhināradamunīndrasugītakīrte,  
+vallīsanātha mama dehi karāvalambam 
+‖ 2 ‖
+
+nityānnadāna niratākhila rogahārin,  
+tasmātpradāna paripūritabhaktakāma ❘  
+śṛtyāgamapraṇavavācyanijasvarūpa,  
+vallīsanātha mama dehi karāvalambam 
+‖ 3 ‖
+
+krauñcāsurendra parikhaṇḍana śaktiśūla,  
+pāśādiśastraparimaṇḍitadivyapāṇe ❘  
+śrīkuṇḍalīśa dhṛtatuṇḍa śikhīndravāha,  
+vallīsanātha mama dehi karāvalambam 
+‖ 4 ‖
+
+devādideva rathamaṇḍala madhya vedya,  
+devendra pīṭhanagaraṃ dṛḍhacāpahastam ❘  
+śūraṃ nihatya surakoṭibhirīḍyamāna,  
+vallīsanātha mama dehi karāvalambam 
+‖ 5 ‖
+
+hārādiratnamaṇiyuktakirīṭahāra,  
+keyūrakuṇḍalalasatkavacābhirāma ❘  
+he vīra tāraka jayāzmarabṛndavandya,  
+vallīsanātha mama dehi karāvalambam 
+‖ 6 ‖
+
+pañcākśharādimanumantrita gāṅgatoyaiḥ,  
+pañcāmṛtaiḥ pramuditendramukhairmunīndraiḥ ❘  
+paṭṭābhiśhikta hariyukta parāsanātha,  
+vallīsanātha mama dehi karāvalambam 
+‖ 7 ‖
+
+śrīkārtikeya karuṇāmṛtapūrṇadṛśhṭyā,  
+kāmādirogakaluśhīkṛtaduśhṭacittam ❘  
+bhaktvā tu māmavakaḻādhara kāntikāntyā,  
+vallīsanātha mama dehi karāvalambam 
+‖ 8 ‖
+
+subrahmaṇya karāvalambaṃ puṇyaṃ ye paṭhanti dvijottamāḥ ❘  
+te sarve mukti māyānti subrahmaṇya prasādataḥ ❘  
+subrahmaṇya karāvalambamidaṃ prātarutthāya yaḥ paṭhet ❘  
+koṭijanmakṛtaṃ pāpaṃ tat^kśhaṇādeva naśyati ‖
+
+### PlainEnglish
+
+#### subrahmaNya ashhTakam karaavalaMba stotram
+
+he svaaminaatha karuNaakara deenabaMdho,  
+shreepaarvateeshamukhapaMkaja padmabaMdho ❘  
+shreeshaadidevagaNapoojitapaadapadma,  
+valleesanaatha mama dehi karaavalaMbam 
+‖ 1 ‖
+
+devaadidevanuta devagaNaadhinaatha,  
+deveMdravaMdya mRRidupaMkajamaMjupaada ❘  
+devarshhinaaradamuneeMdrasugeetakeerte,  
+valleesanaatha mama dehi karaavalaMbam 
+‖ 2 ‖
+
+nityaannadaana nirataakhila rogahaarin,  
+tasmaatpradaana paripooritabhaktakaama ❘  
+shRRityaagamapraNavavaacyanijasvaroopa,  
+valleesanaatha mama dehi karaavalaMbam 
+‖ 3 ‖
+
+krauMcaasureMdra parikhaMDana shaktishoola,  
+paashaadishastraparimaMDitadivyapaaNe ❘  
+shreekuMDaleesha dhRRitatuMDa shikheeMdravaaha,  
+valleesanaatha mama dehi karaavalaMbam 
+‖ 4 ‖
+
+devaadideva rathamaMDala madhya vedya,  
+deveMdra peeThanagaraM dRRiDhacaapahastam ❘  
+shooraM nihatya surakoTibhireeDyamaana,  
+valleesanaatha mama dehi karaavalaMbam 
+‖ 5 ‖
+
+haaraadiratnamaNiyuktakireeTahaara,  
+keyoorakuMDalalasatkavacaabhiraama ❘  
+he veera taaraka jayaazmarabRRiMdavaMdya,  
+valleesanaatha mama dehi karaavalaMbam 
+‖ 6 ‖
+
+paMcaakshharaadimanumantrita gaangatoyaiH,  
+paMcaamRRitaiH pramuditeMdramukhairmuneeMdraiH ❘  
+paTTaabhishhikta hariyukta paraasanaatha,  
+valleesanaatha mama dehi karaavalaMbam 
+‖ 7 ‖
+
+shreekaartikeya karuNaamRRitapoorNadRRishhTyaa,  
+kaamaadirogakalushheekRRitadushhTacittam ❘  
+bhaktvaa tu maamavakaLaadhara kaaMtikaantyaa,  
+valleesanaatha mama dehi karaavalaMbam 
+‖ 8 ‖
+
+subrahmaNya karaavalaMbaM puNyaM ye paThanti dvijottamaaH ❘  
+te sarve mukti maayaanti subrahmaNya prasaadataH ❘  
+subrahmaNya karaavalaMbamidaM praatarutthaaya yaH paThet ❘  
+koTijanmakRRitaM paapaM tat^kshhaNaadeva nashyati ‖
+

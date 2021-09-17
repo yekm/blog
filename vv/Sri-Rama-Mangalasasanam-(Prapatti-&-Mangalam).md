@@ -705,3 +705,137 @@ trailokyaadhipatiH shreemaan karotu maMgaLaM sadaa ‖
 త్రైలోక్యాధిపతిః శ్రీమాన్ కరోతు మంగళం సదా ‖  
 
 
+### English
+
+#### śrī rāma maṅgaḻāśasanam (prapatti ' maṅgaḻam)
+
+maṅgaḻaṃ kausalendrāya mahanīya guṇātmane ❘  
+cakravarti tanūjāya sārvabhaumāya maṅgaḻaṃ 
+‖ 1 ‖
+
+vedavedānta vedyāya meghaśyāmala mūrtaye ❘  
+puṃsāṃ mohana rūpāya puṇyaślokāya maṅgaḻaṃ 
+‖ 2 ‖
+
+viśvāmitrāntaraṅgāya mithilā nagarī pate ❘  
+bhāgyānāṃ paripākāya bhavyarūpāya maṅgaḻaṃ 
+‖ 3 ‖
+
+pitṛbhaktāya satataṃ bhātṛbhiḥ saha sītayā ❘  
+nanditākhila lokāya rāmabhadrāya maṅgaḻaṃ 
+‖ 4 ‖
+
+tyakta sāketa vāsāya citrakūṭa vihāriṇe ❘  
+sevyāya sarvayamināṃ dhīrodāttāya maṅgaḻaṃ 
+‖ 5 ‖
+
+saumitriṇāca jānakyācāpa bāṇāsi dhāriṇe ❘  
+saṃsevyāya sadā bhaktyā svāmine mama maṅgaḻaṃ 
+‖ 6 ‖
+
+daṇḍakāraṇya vāsāya kharadūśhaṇa śatrave ❘  
+gṛdhrarājāya bhaktāya mukti dāyāstu maṅgaḻaṃ 
+‖ 7 ‖
+
+sādaraṃ śabarī datta phalamūla bhilāśhiṇe ❘  
+saulabhya paripūrṇāya satyodriktāya maṅgaḻaṃ 
+‖ 8 ‖
+
+hanuntsamavetāya harīśābhīśhṭa dāyine ❘  
+vāli pramadhanāyāstu mahādhīrāya maṅgaḻaṃ 
+‖ 9 ‖
+
+śrīmate raghuvīrāya setūllaṅghita sindhave ❘  
+jitarākśhasa rājāya raṇadhīrāya maṅgaḻaṃ 
+‖ 10 ‖
+
+vibhīśhaṇakṛte prītyā laṅkābhīśhṭa pradāyine ❘  
+sarvaloka śaraṇyāya śrīrāghavāya maṅgaḻaṃ 
+‖ 11 ‖
+
+āgatyanagarīṃ divyāmabhiśhiktāya sītayā ❘  
+rājādhirājarājāya rāmabhadrāya maṅgaḻaṃ 
+‖ 12 ‖
+
+bhrahmādi devasevyāya bhrahmaṇyāya mahātmane ❘  
+jānakī prāṇanāthāya raghunāthāya maṅgaḻaṃ 
+‖ 13 ‖
+
+śrīsaumya jāmātṛmuneḥ kṛpayāsmānu peyuśhe ❘  
+mahate mama nāthāya raghunāthāya maṅgaḻaṃ 
+‖ 14 ‖
+
+maṅgaḻāśāsana parairmadācārya purogamaiḥ ❘  
+sarvaiśca pūrvairācārryaiḥ satkṛtāyāstu maṅgaḻaṃ 
+‖ 15 ‖
+
+ramyajā mātṛ muninā maṅgaḻāśāsanaṃ kṛtaṃ ❘  
+trailokyādhipatiḥ śrīmān karotu maṅgaḻaṃ sadā ‖
+
+### PlainEnglish
+
+#### shree raama maMgaLaashasanam (prapatti .a maMgaLam)
+
+maMgaLaM kausaleMdraaya mahaneeya guNaatmane ❘  
+cakravarti tanoojaaya saarvabhaumaaya maMgaLaM 
+‖ 1 ‖
+
+vedavedaaMta vedyaaya meghashyaamala moortaye ❘  
+puMsaaM mohana roopaaya puNyashlokaaya maMgaLaM 
+‖ 2 ‖
+
+vishvaamitraaMtaraMgaaya mithilaa nagaree pate ❘  
+bhaagyaanaaM paripaakaaya bhavyaroopaaya maMgaLaM 
+‖ 3 ‖
+
+pitRRibhaktaaya satataM bhaatRRibhiH saha seetayaa ❘  
+naMditaakhila lokaaya raamabhadraaya maMgaLaM 
+‖ 4 ‖
+
+tyakta saaketa vaasaaya citrakooTa vihaariNe ❘  
+sevyaaya sarvayaminaaM dheerodaattaaya maMgaLaM 
+‖ 5 ‖
+
+saumitriNaaca jaanakyaacaapa baaNaasi dhaariNe ❘  
+saMsevyaaya sadaa bhaktyaa svaamine mama maMgaLaM 
+‖ 6 ‖
+
+daMDakaaraNya vaasaaya kharadooshhaNa shatrave ❘  
+gRRidhraraajaaya bhaktaaya mukti daayaastu maMgaLaM 
+‖ 7 ‖
+
+saadaraM shabaree datta phalamoola bhilaashhiNe ❘  
+saulabhya paripoorNaaya satyodriktaaya maMgaLaM 
+‖ 8 ‖
+
+hanuMtsamavetaaya hareeshaabheeshhTa daayine ❘  
+vaali pramadhanaayaastu mahaadheeraaya maMgaLaM 
+‖ 9 ‖
+
+shreemate raghuveeraaya setoollaMghita siMdhave ❘  
+jitaraakshhasa raajaaya raNadheeraaya maMgaLaM 
+‖ 10 ‖
+
+vibheeshhaNakRRite preetyaa laMkaabheeshhTa pradaayine ❘  
+sarvaloka sharaNyaaya shreeraaghavaaya maMgaLaM 
+‖ 11 ‖
+
+aagatyanagareeM divyaamabhishhiktaaya seetayaa ❘  
+raajaadhiraajaraajaaya raamabhadraaya maMgaLaM 
+‖ 12 ‖
+
+bhrahmaadi devasevyaaya bhrahmaNyaaya mahaatmane ❘  
+jaanakee praaNanaathaaya raghunaathaaya maMgaLaM 
+‖ 13 ‖
+
+shreesaumya jaamaatRRimuneH kRRipayaasmaanu peyushhe ❘  
+mahate mama naathaaya raghunaathaaya maMgaLaM 
+‖ 14 ‖
+
+maMgaLaashaasana parairmadaacaarya purogamaiH ❘  
+sarvaishca poorvairaacaarryaiH satkRRitaayaastu maMgaLaM 
+‖ 15 ‖
+
+ramyajaa maatRRi muninaa maMgaLaashaasanaM kRRitaM ❘  
+trailokyaadhipatiH shreemaan karotu maMgaLaM sadaa ‖
+

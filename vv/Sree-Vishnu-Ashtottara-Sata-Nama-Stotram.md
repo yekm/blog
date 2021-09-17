@@ -692,3 +692,143 @@ ashvamedhaayutaM puNyaM phalaM praapnoti maanavaH ‖ 15 ‖
 
 ‖ ఇతి శ్రీవిష్ణుపురాణే శ్రీ విష్ణు అష్టోత్తర శతనాస్తోత్రమ్ ‖  
 
+### English
+
+#### śrī viśhṇu aśhṭottara śata nāma stotram
+
+
+‖ śrī viśhṇu aśhṭottara śatanāmastotram ‖
+
+vāsudevaṃ hṛśhīkeśaṃ vāmanaṃ jalaśāyinam ❘  
+janārdanaṃ hariṃ kṛśhṇaṃ śrīvakśhaṃ garuḍadhvajam 
+‖ 1 ‖
+
+vārāhaṃ puṇḍarīkākśhaṃ nṛsiṃhaṃ narakāntakam ❘  
+avyaktaṃ śāśvataṃ viśhṇumanantamajamavyayam 
+‖ 2 ‖
+
+nārāyaṇaṃ gadādhyakśhaṃ govindaṃ kīrtibhājanam ❘  
+govardhanoddharaṃ devaṃ bhūdharaṃ bhuvaneśvaram 
+‖ 3 ‖
+
+vettāraṃ yaGYapuruśhaṃ yaGYeśaṃ yaGYavāhanam ❘  
+chakrapāṇiṃ gadāpāṇiṃ śaṅkhapāṇiṃ narottamam 
+‖ 4 ‖
+
+vaikuṇṭhaṃ duśhṭadamanaṃ bhūgarbhaṃ pītavāsasam ❘  
+trivikramaṃ trikālaGYaṃ trimūrtiṃ nandakeśvaram 
+‖ 5 ‖
+
+rāmaṃ rāmaṃ hayagrīvaṃ bhīmaṃ roudraṃ bhavodbhavam ❘  
+śrīpatiṃ śrīdharaṃ śrīśaṃ maṅgalaṃ maṅgalāyudham 
+‖ 6 ‖
+
+dāmodaraṃ damopetaṃ keśavaṃ keśisūdanam ❘  
+vareṇyaṃ varadaṃ viśhṇumānandaṃ vāsudevajam 
+‖ 7 ‖
+
+hiraṇyaretasaṃ dīptaṃ purāṇaṃ puruśhottamam ❘  
+sakalaṃ niśhkalaṃ śuddhaṃ nirguṇaṃ guṇaśāśvatam 
+‖ 8 ‖
+
+hiraṇyatanusaṅkāśaṃ sūryāyutasamaprabham ❘  
+meghaśyāmaṃ chaturbāhuṃ kuśalaṃ kamalekśhaṇam 
+‖ 9 ‖
+
+jyotīrūpamarūpaṃ cha svarūpaṃ rūpasaṃsthitam ❘  
+sarvaGYaṃ sarvarūpasthaṃ sarveśaṃ sarvatomukham 
+‖ 10 ‖
+
+GYānaṃ kūṭasthamachalaṃ GYhānadaṃ paramaṃ prabhum ❘  
+yogīśaṃ yoganiśhṇātaṃ yogisaṃyogarūpiṇam 
+‖ 11 ‖
+
+īśvaraṃ sarvabhūtānāṃ vande bhūtamayaṃ prabhum ❘  
+iti nāmaśataṃ divyaṃ vaiśhṇavaṃ khalu pāpaham 
+‖ 12 ‖
+
+vyāsena kathitaṃ pūrvaṃ sarvapāpapraṇāśanam ❘  
+yaḥ paṭhet prātarutthāya sa bhaved vaiśhṇavo naraḥ 
+‖ 13 ‖
+
+sarvapāpaviśuddhātmā viśhṇusāyujyamāpnuyāt ❘  
+chāndrāyaṇasahasrāṇi kanyādānaśatāni cha 
+‖ 14 ‖
+
+gavāṃ lakśhasahasrāṇi muktibhāgī bhavennaraḥ ❘  
+aśvamedhāyutaṃ puṇyaṃ phalaṃ prāpnoti mānavaḥ 
+‖ 15 ‖
+
+
+‖ iti śrīviśhṇupurāṇe śrī viśhṇu aśhṭottara śatanāstotram ‖
+
+### PlainEnglish
+
+#### shree vishhNu ashhTottara shata naama stotram
+
+
+‖ shree vishhNu ashhTottara shatanaamastotram ‖
+
+vaasudevaM hRRishheekeshaM vaamanaM jalashaayinam ❘  
+janaardanaM hariM kRRishhNaM shreevakshhaM garuDadhvajam 
+‖ 1 ‖
+
+vaaraahaM puMDareekaakshhaM nRRisiMhaM narakaaMtakam ❘  
+avyaktaM shaashvataM vishhNumanaMtamajamavyayam 
+‖ 2 ‖
+
+naaraayaNaM gadaadhyakshhaM goviMdaM keertibhaajanam ❘  
+govardhanoddharaM devaM bhoodharaM bhuvaneshvaram 
+‖ 3 ‖
+
+vettaaraM yagnyapurushhaM yagnyeshaM yagnyavaahanam ❘  
+chakrapaaNiM gadaapaaNiM shaMkhapaaNiM narottamam 
+‖ 4 ‖
+
+vaikuMThaM dushhTadamanaM bhoogarbhaM peetavaasasam ❘  
+trivikramaM trikaalagnyaM trimoortiM naMdakeshvaram 
+‖ 5 ‖
+
+raamaM raamaM hayagreevaM bheemaM r.oudraM bhavodbhavam ❘  
+shreepatiM shreedharaM shreeshaM maMgalaM maMgalaayudham 
+‖ 6 ‖
+
+daamodaraM damopetaM keshavaM keshisoodanam ❘  
+vareNyaM varadaM vishhNumaanaMdaM vaasudevajam 
+‖ 7 ‖
+
+hiraNyaretasaM deeptaM puraaNaM purushhottamam ❘  
+sakalaM nishhkalaM shuddhaM nirguNaM guNashaashvatam 
+‖ 8 ‖
+
+hiraNyatanusaMkaashaM sooryaayutasamaprabham ❘  
+meghashyaamaM chaturbaahuM kushalaM kamalekshhaNam 
+‖ 9 ‖
+
+jyoteeroopamaroopaM cha svaroopaM roopasaMsthitam ❘  
+sarvagnyaM sarvaroopasthaM sarveshaM sarvatomukham 
+‖ 10 ‖
+
+gnyaanaM kooTasthamachalaM gnyhaanadaM paramaM prabhum ❘  
+yogeeshaM yoganishhNaataM yogisaMyogaroopiNam 
+‖ 11 ‖
+
+eeshvaraM sarvabhootaanaaM vaMde bhootamayaM prabhum ❘  
+iti naamashataM divyaM vaishhNavaM khalu paapaham 
+‖ 12 ‖
+
+vyaasena kathitaM poorvaM sarvapaapapraNaashanam ❘  
+yaH paThet praatarutthaaya sa bhaved vaishhNavo naraH 
+‖ 13 ‖
+
+sarvapaapavishuddhaatmaa vishhNusaayujyamaapnuyaat ❘  
+chaaMdraayaNasahasraaNi kanyaadaanashataani cha 
+‖ 14 ‖
+
+gavaaM lakshhasahasraaNi muktibhaagee bhavennaraH ❘  
+ashvamedhaayutaM puNyaM phalaM praapnoti maanavaH 
+‖ 15 ‖
+
+
+‖ iti shreevishhNupuraaNe shree vishhNu ashhTottara shatanaastotram ‖
+

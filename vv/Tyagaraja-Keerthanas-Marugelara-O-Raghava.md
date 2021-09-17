@@ -185,3 +185,25 @@ nannu brovavayya tyaaga raajanuta
 నెన్నె గాని మదిని ఎన్నజాల నొరుల  
 నన్ను బ్రోవవయ్య త్యాగ రాజనుత  
 
+### English
+
+#### tyāgarāja kīrtana marugelarā o rāghavā
+
+marugelarā o rāghavā!  
+marugela - carā cara rūpa  
+parātpara sūrya sudhākara locana  
+anni nī vanucu antaraṅgamuna   
+tinnagā vedaki telusukoṇṭi nayya  
+nenne gāni madini ennajāla norula  
+nannu brovavayya tyāga rājanuta   
+### PlainEnglish
+
+#### tyaagaraaja keertana marugelaraa o raaghavaa
+
+marugelaraa o raaghavaa!  
+marugela - caraa cara roopa  
+paraatpara soorya sudhaakara locana  
+anni nee vanucu aMtaraMgamuna   
+tinnagaa v.edaki t.elusuk.oMTi nayya  
+n.enn.e gaani madini .ennajaala n.orula  
+nannu brovavayya tyaaga raajanuta   

@@ -1329,3 +1329,257 @@ karmasaMnyaasayogo naama panchamo.adhyaayaH ‖5 ‖
 
 కర్మసంన్యాసయోగో నామ పంచమోఽధ్యాయః ‖5 ‖  
 
+### English
+
+#### śrīmad bhagavad gīta pañchamoadhyāyaḥ
+
+atha pañchamoadhyāyaḥ ❘  
+arjuna uvācha ❘  
+saṃnyāsaṃ karmaṇāṃ kṛśhṇa punaryogaṃ cha śaṃsasi ❘  
+yachChreya etayorekaṃ tanme brūhi suniśchitam 
+‖ 1 ‖
+
+śrībhagavānuvācha ❘  
+saṃnyāsaḥ karmayogaścha niḥśreyasakarāvubhau ❘  
+tayostu karmasaṃnyāsātkarmayogo viśiśhyate 
+‖ 2 ‖
+
+GYeyaḥ sa nityasaṃnyāsī yo na dveśhṭi na kāṅkśhati ❘  
+nirdvandvo hi mahābāho sukhaṃ bandhātpramuchyate 
+‖ 3 ‖
+
+sāṅkhyayogau pṛthagbālāḥ pravadanti na paṇḍitāḥ ❘  
+ekamapyāsthitaḥ samyagubhayorvindate phalam 
+‖ 4 ‖
+
+yatsāṅkhyaiḥ prāpyate sthānaṃ tadyogairapi gamyate ❘  
+ekaṃ sāṅkhyaṃ cha yogaṃ cha yaḥ paśyati sa paśyati 
+‖ 5 ‖
+
+saṃnyāsastu mahābāho duḥkhamāptumayogataḥ ❘  
+yogayukto munirbrahma nachireṇādhigachChati 
+‖ 6 ‖
+
+yogayukto viśuddhātmā vijitātmā jitendriyaḥ ❘  
+sarvabhūtātmabhūtātmā kurvannapi na lipyate 
+‖ 7 ‖
+
+naiva kiñchitkaromīti yukto manyeta tattvavit ❘  
+paśyañśṛṇvanspṛśañjighrannaśnangachChansvapañśvasan 
+‖ 8 ‖
+
+pralapanvisṛjangṛhṇannunmiśhannimiśhannapi ❘  
+indriyāṇīndriyārtheśhu vartanta iti dhārayan 
+‖ 9 ‖
+
+brahmaṇyādhāya karmāṇi saṅgaṃ tyaktvā karoti yaḥ ❘  
+lipyate na sa pāpena padmapatramivāmbhasā 
+‖ 10 ‖
+
+kāyena manasā buddhyā kevalairindriyairapi ❘  
+yoginaḥ karma kurvanti saṅgaṃ tyaktvātmaśuddhaye 
+‖ 11 ‖
+
+yuktaḥ karmaphalaṃ tyaktvā śāntimāpnoti naiśhṭhikīm ❘  
+ayuktaḥ kāmakāreṇa phale sakto nibadhyate 
+‖ 12 ‖
+
+sarvakarmāṇi manasā saṃnyasyāste sukhaṃ vaśī ❘  
+navadvāre pure dehī naiva kurvanna kārayan 
+‖ 13 ‖
+
+na kartṛtvaṃ na karmāṇi lokasya sṛjati prabhuḥ ❘  
+na karmaphalasaṃyogaṃ svabhāvastu pravartate 
+‖ 14 ‖
+
+nādatte kasyachitpāpaṃ na chaiva sukṛtaṃ vibhuḥ ❘  
+aGYānenāvṛtaṃ GYānaṃ tena muhyanti jantavaḥ 
+‖ 15 ‖
+
+GYānena tu tadaGYānaṃ yeśhāṃ nāśitamātmanaḥ ❘  
+teśhāmādityavajGYānaṃ prakāśayati tatparam 
+‖ 16 ‖
+
+tadbuddhayastadātmānastanniśhṭhāstatparāyaṇāḥ ❘  
+gachChantyapunarāvṛttiṃ GYānanirdhūtakalmaśhāḥ 
+‖ 17 ‖
+
+vidyāvinayasampanne brāhmaṇe gavi hastini ❘  
+śuni chaiva śvapāke cha paṇḍitāḥ samadarśinaḥ 
+‖ 18 ‖
+
+ihaiva tairjitaḥ sargo yeśhāṃ sāmye sthitaṃ manaḥ ❘  
+nirdośhaṃ hi samaṃ brahma tasmādbrahmaṇi te sthitāḥ 
+‖ 19 ‖
+
+na prahṛśhyetpriyaṃ prāpya nodvijetprāpya chāpriyam ❘  
+sthirabuddhirasaṃmūḍho brahmavidbrahmaṇi sthitaḥ 
+‖ 20 ‖
+
+bāhyasparśeśhvasaktātmā vindatyātmani yatsukham ❘  
+sa brahmayogayuktātmā sukhamakśhayamaśnute 
+‖ 21 ‖
+
+ye hi saṃsparśajā bhogā duḥkhayonaya eva te ❘  
+ādyantavantaḥ kaunteya na teśhu ramate budhaḥ 
+‖ 22 ‖
+
+śaknotīhaiva yaḥ soḍhuṃ prākśarīravimokśhaṇāt ❘  
+kāmakrodhodbhavaṃ vegaṃ sa yuktaḥ sa sukhī naraḥ 
+‖ 23 ‖
+
+yoantaḥsukhoantarārāmastathāntarjyotireva yaḥ ❘  
+sa yogī brahmanirvāṇaṃ brahmabhūtoadhigachChati 
+‖ 24 ‖
+
+labhante brahmanirvāṇamṛśhayaḥ kśhīṇakalmaśhāḥ ❘  
+Chinnadvaidhā yatātmānaḥ sarvabhūtahite ratāḥ 
+‖ 25 ‖
+
+kāmakrodhaviyuktānāṃ yatīnāṃ yatachetasām ❘  
+abhito brahmanirvāṇaṃ vartate viditātmanām 
+‖ 26 ‖
+
+sparśānkṛtvā bahirbāhyāṃśchakśhuśchaivāntare bhruvoḥ ❘  
+prāṇāpānau samau kṛtvā nāsābhyantarachāriṇau 
+‖ 27 ‖
+
+yatendriyamanobuddhirmunirmokśhaparāyaṇaḥ ❘  
+vigatechChābhayakrodho yaḥ sadā mukta eva saḥ 
+‖ 28 ‖
+
+bhoktāraṃ yaGYatapasāṃ sarvalokamaheśvaram ❘  
+suhṛdaṃ sarvabhūtānāṃ GYātvā māṃ śāntimṛchChati 
+‖ 29 ‖
+
+oṃ tatsaditi śrīmadbhagavadgītāsūpaniśhatsu brahmavidyāyāṃ yogaśāstre śrīkṛśhṇārjunasaṃvāde   
+karmasaṃnyāsayogo nāma pañchamoadhyāyaḥ 
+‖5 ‖
+
+### PlainEnglish
+
+#### shreemad bhagavad geeta paMchamo.adhyaayaH
+
+atha panchamo.adhyaayaH ❘  
+arjuna uvaacha ❘  
+saMnyaasaM karmaNaaM kRRishhNa punaryogaM cha shaMsasi ❘  
+yachChreya etayorekaM tanme broohi sunishchitam 
+‖ 1 ‖
+
+shreebhagavaanuvaacha ❘  
+saMnyaasaH karmayogashcha niHshreyasakaraavubhau ❘  
+tayostu karmasaMnyaasaatkarmayogo vishishhyate 
+‖ 2 ‖
+
+gnyeyaH sa nityasaMnyaasee yo na dveshhTi na kaankshhati ❘  
+nirdvandvo hi mahaabaaho sukhaM bandhaatpramuchyate 
+‖ 3 ‖
+
+saaMkhyayogau pRRithagbaalaaH pravadanti na paNDitaaH ❘  
+ekamapyaasthitaH samyagubhayorvindate phalam 
+‖ 4 ‖
+
+yatsaaMkhyaiH praapyate sthaanaM tadyogairapi gamyate ❘  
+ekaM saaMkhyaM cha yogaM cha yaH pashyati sa pashyati 
+‖ 5 ‖
+
+saMnyaasastu mahaabaaho duHkhamaaptumayogataH ❘  
+yogayukto munirbrahma nachireNaadhigachChati 
+‖ 6 ‖
+
+yogayukto vishuddhaatmaa vijitaatmaa jitendriyaH ❘  
+sarvabhootaatmabhootaatmaa kurvannapi na lipyate 
+‖ 7 ‖
+
+naiva kiMchitkaromeeti yukto manyeta tattvavit ❘  
+pashyanshRRiNvanspRRishanjighrannashnangachChansvapanshvasan 
+‖ 8 ‖
+
+pralapanvisRRijangRRihNannunmishhannimishhannapi ❘  
+indriyaaNeendriyaartheshhu vartanta iti dhaarayan 
+‖ 9 ‖
+
+brahmaNyaadhaaya karmaaNi sangaM tyaktvaa karoti yaH ❘  
+lipyate na sa paapena padmapatramivaambhasaa 
+‖ 10 ‖
+
+kaayena manasaa buddhyaa kevalairindriyairapi ❘  
+yoginaH karma kurvanti sangaM tyaktvaatmashuddhaye 
+‖ 11 ‖
+
+yuktaH karmaphalaM tyaktvaa shaantimaapnoti naishhThikeem ❘  
+ayuktaH kaamakaareNa phale sakto nibadhyate 
+‖ 12 ‖
+
+sarvakarmaaNi manasaa saMnyasyaaste sukhaM vashee ❘  
+navadvaare pure dehee naiva kurvanna kaarayan 
+‖ 13 ‖
+
+na kartRRitvaM na karmaaNi lokasya sRRijati prabhuH ❘  
+na karmaphalasaMyogaM svabhaavastu pravartate 
+‖ 14 ‖
+
+naadatte kasyachitpaapaM na chaiva sukRRitaM vibhuH ❘  
+agnyaanenaavRRitaM gnyaanaM tena muhyanti jantavaH 
+‖ 15 ‖
+
+gnyaanena tu tadagnyaanaM yeshhaaM naashitamaatmanaH ❘  
+teshhaamaadityavajgnyaanaM prakaashayati tatparam 
+‖ 16 ‖
+
+tadbuddhayastadaatmaanastannishhThaastatparaayaNaaH ❘  
+gachChantyapunaraavRRittiM gnyaananirdhootakalmashhaaH 
+‖ 17 ‖
+
+vidyaavinayasaMpanne braahmaNe gavi hastini ❘  
+shuni chaiva shvapaake cha paNDitaaH samadarshinaH 
+‖ 18 ‖
+
+ihaiva tairjitaH sargo yeshhaaM saamye sthitaM manaH ❘  
+nirdoshhaM hi samaM brahma tasmaadbrahmaNi te sthitaaH 
+‖ 19 ‖
+
+na prahRRishhyetpriyaM praapya nodvijetpraapya chaapriyam ❘  
+sthirabuddhirasaMmooDho brahmavidbrahmaNi sthitaH 
+‖ 20 ‖
+
+baahyasparsheshhvasaktaatmaa vindatyaatmani yatsukham ❘  
+sa brahmayogayuktaatmaa sukhamakshhayamashnute 
+‖ 21 ‖
+
+ye hi saMsparshajaa bhogaa duHkhayonaya eva te ❘  
+aadyantavantaH kaunteya na teshhu ramate budhaH 
+‖ 22 ‖
+
+shaknoteehaiva yaH soDhuM praakshareeravimokshhaNaat ❘  
+kaamakrodhodbhavaM vegaM sa yuktaH sa sukhee naraH 
+‖ 23 ‖
+
+yo.antaHsukho.antaraaraamastathaantarjyotireva yaH ❘  
+sa yogee brahmanirvaaNaM brahmabhooto.adhigachChati 
+‖ 24 ‖
+
+labhante brahmanirvaaNamRRishhayaH kshheeNakalmashhaaH ❘  
+Chinnadvaidhaa yataatmaanaH sarvabhootahite rataaH 
+‖ 25 ‖
+
+kaamakrodhaviyuktaanaaM yateenaaM yatachetasaam ❘  
+abhito brahmanirvaaNaM vartate viditaatmanaam 
+‖ 26 ‖
+
+sparshaankRRitvaa bahirbaahyaaMshchakshhushchaivaantare bhruvoH ❘  
+praaNaapaanau samau kRRitvaa naasaabhyantarachaariNau 
+‖ 27 ‖
+
+yatendriyamanobuddhirmunirmokshhaparaayaNaH ❘  
+vigatechChaabhayakrodho yaH sadaa mukta eva saH 
+‖ 28 ‖
+
+bhoktaaraM yagnyatapasaaM sarvalokamaheshvaram ❘  
+suhRRidaM sarvabhootaanaaM gnyaatvaa maaM shaantimRRichChati 
+‖ 29 ‖
+
+oM tatsaditi shreemadbhagavadgeetaasoopanishhatsu brahmavidyaayaaM yogashaastre shreekRRishhNaarjunasaMvaade   
+karmasaMnyaasayogo naama panchamo.adhyaayaH 
+‖5 ‖
+

@@ -432,3 +432,91 @@ prasaadaM kuru me devi durgedevi namo.astute ‖10‖
 
 ‖ఇతి అపరాధ క్షమాపణ స్తోత్రం సమాప్తం‖  
 
+### English
+
+#### devī mahātmyam aparādha kśhamāpaṇā stotram
+
+aparādhaśataṃ kṛtvā jagadambeti coccaret❘  
+yāṃ gatiṃ samavāpnoti na tāṃ brahmādayaḥ surāḥ  
+‖1‖
+
+sāparādhoasmi śaraṇāṃ prāptastvāṃ jagadambike❘  
+idānīmanukampyoahaṃ yathecChasi tathā kuru                         
+‖2‖
+
+aGYānādvismṛtebhrāntyā yannyūnamadhikaṃ kṛtaṃ❘  
+tatsarva kśhamyatāṃ devi prasīda parameśvarī  
+‖3‖
+
+kāmeśvarī jaganmātāḥ saccidānandavigrahe❘  
+gṛhāṇārcāmimāṃ prītyā prasīda parameśvarī   
+‖4‖
+
+sarvarūpamayī devī sarvaṃ devīmayaṃ jagat❘  
+atoahaṃ viśvarūpāṃ tvāṃ namāmi parameśvarīṃ  
+‖5‖
+
+pūrṇaṃ bhavatu tat sarvaṃ tvatprasādānmaheśvarī                
+yadatra pāṭhe jagadambike mayā visargabindvakśharahīnamīritam❘  
+
+‖6‖
+
+tadastu sampūrṇataṃ prasādataḥ saṅkalpasiddhiśca sadaiva jāyatāṃ
+‖7‖
+
+bhaktyābhaktyānupūrvaṃ prasabhakṛtivaśāt vyaktamavyaktamamba  
+‖8‖
+
+tat sarvaṃ sāṅgamāstāṃ bhagavati tvatprasādāt prasīda  
+‖9‖
+
+prasādaṃ kuru me devi durgedevi namoastute   
+‖10‖
+
+
+‖iti aparādha kśhamāpaṇa stotraṃ samāptaṃ‖
+
+### PlainEnglish
+
+#### devee mahaatmyam aparaadha kshhamaapaNaa stotram
+
+aparaadhashataM kRRitvaa jagadaMbeti coccaret❘  
+yaaM gatiM samavaapnoti na taaM brahmaadayaH suraaH  
+‖1‖
+
+saaparaadho.asmi sharaNaaM praaptastvaaM jagadambike❘  
+idaaneemanukampyo.ahaM yathecChasi tathaa kuru                         
+‖2‖
+
+agnyaanaadvismRRitebhraantyaa yannyoonamadhikaM kRRitaM❘  
+tatsarva kshhamyataaM devi praseeda parameshvaree  
+‖3‖
+
+kaameshvaree jaganmaataaH saccidaanandavigrahe❘  
+gRRihaaNaarcaamimaaM preetyaa praseeda parameshvaree   
+‖4‖
+
+sarvaroopamayee devee sarvaM deveemayaM jagat❘  
+ato.ahaM vishvaroopaaM tvaaM namaami parameshvareeM  
+‖5‖
+
+poorNaM bhavatu tat sarvaM tvatprasaadaanmaheshvaree                
+yadatra paaThe jagadambike mayaa visargabiMdvakshharaheenameeritam❘  
+
+‖6‖
+
+tadastu saMpoorNataM prasaadataH saMkalpasiddhishca sadaiva jaayataaM
+‖7‖
+
+bhaktyaabhaktyaanupoorvaM prasabhakRRitivashaat vyaktamavyaktamaMba  
+‖8‖
+
+tat sarvaM saangamaastaaM bhagavati tvatprasaadaat praseeda  
+‖9‖
+
+prasaadaM kuru me devi durgedevi namo.astute   
+‖10‖
+
+
+‖iti aparaadha kshhamaapaNa stotraM samaaptaM‖
+

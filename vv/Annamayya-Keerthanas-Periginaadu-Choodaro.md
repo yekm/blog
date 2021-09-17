@@ -289,3 +289,47 @@ saavadhaanuDu sarvasharaNyuDu ‖
 శ్రీవేంకటేశ్వర సేవాగ్రగణ్యుడు  
 సావధానుడు సర్వశరణ్యుడు ‖  
 
+### English
+
+#### annamayya kīrtana perigināḍu chūḍaroi
+
+perigināḍu cūḍaro pedda hanumantuḍu ❘  
+paragi nānā vidyala balavantuḍu ‖
+
+rakkasula pāliki raṇaraṅga śūruḍu  
+vekkasapu ekāṅga vīruḍu ❘  
+dikkulaku sañjīvi teccina dhīruḍu  
+akkajamainaṭṭi ākāruḍu ‖
+
+lalimīrina yaṭṭi lāvula bhīmuḍu  
+balu kapikula sārvabhaumuḍu ❘  
+nelakonna laṅkā nirthūmadhāmuḍu  
+talapuna śrīrāmu nātmārāmuḍu ‖
+
+devakāryamula dikkuvareṇyuḍu  
+bhāvimpagala tapaḥ phala puṇyuḍu ❘  
+śrīveṅkaṭeśvara sevāgragaṇyuḍu  
+sāvadhānuḍu sarvaśaraṇyuḍu ‖
+
+### PlainEnglish
+
+#### annamayya keertana p.eriginaaDu chooDaroi
+
+p.eriginaaDu cooDaro p.edda hanumaMtuDu ❘  
+paragi naanaa vidyala balavaMtuDu ‖
+
+rakkasula paaliki raNaraMga shooruDu  
+v.ekkasapu ekaaMga veeruDu ❘  
+dikkulaku saMjeevi t.eccina dheeruDu  
+akkajamainaTTi aakaaruDu ‖
+
+lalimeerina yaTTi laavula bheemuDu  
+balu kapikula saarvabhaumuDu ❘  
+n.elak.onna laMkaa nirthoomadhaamuDu  
+talapuna shreeraamu naatmaaraamuDu ‖
+
+devakaaryamula dikkuvareNyuDu  
+bhaaviMpagala tapaH phala puNyuDu ❘  
+shreeveMkaTeshvara sevaagragaNyuDu  
+saavadhaanuDu sarvasharaNyuDu ‖
+

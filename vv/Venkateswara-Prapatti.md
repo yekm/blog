@@ -1121,3 +1121,203 @@ iti shreeveMkaTesha prapattiH
 
 ఇతి శ్రీవేంకటేశ ప్రపత్తిః  
 
+### English
+
+#### śrī veṅkaṭeśvara prapatti
+
+īśānāṃ jagatoasya veṅkaṭapate rviśhṇoḥ parāṃ preyasīṃ  
+tadvakśhaḥsthala nityavāsarasikāṃ tat-kśhānti saṃvardhinīm ❘  
+padmālaṅkṛta pāṇipallavayugāṃ padmāsanasthāṃ śriyaṃ  
+vātsalyādi guṇojjvalāṃ bhagavatīṃ vande jaganmātaram ‖
+
+śrīman kṛpājalanidhe kṛtasarvaloka  
+sarvaGYa śakta natavatsala sarvaśeśhin ❘  
+svāmin suśīla sula bhāśrita pārijāta  
+śrīveṅkaṭeśacharaṇau śaraṇaṃ prapadye 
+‖ 2 ‖
+
+ānūpurārchita sujāta sugandhi puśhpa  
+saurabhya saurabhakarau samasanniveśau ❘  
+saumyau sadānubhaneapi navānubhāvyau  
+śrīveṅkaṭeśa charaṇau śaraṇaṃ prapadye 
+‖ 3 ‖
+
+sadyovikāsi samudittvara sāndrarāga  
+saurabhyanirbhara saroruha sāmyavārtām ❘  
+samyakśhu sāhasapadeśhu vilekhayantau  
+śrīveṅkaṭeśa charaṇau śaraṇaṃ prapadye 
+‖ 4 ‖
+
+rekhāmaya dhvaja sudhākalaśātapatra  
+vajrāṅkuśāmburuha kalpaka śaṅkhachakraiḥ ❘  
+bhavyairalaṅkṛtatalau paratattva chihnaiḥ  
+śrīveṅkaṭeśa charaṇau śaraṇaṃ prapadye 
+‖ 5 ‖
+
+tāmrodaradyuti parājita padmarāgau  
+bāhyair-mahobhi rabhibhūta mahendranīlau ❘  
+udya nnakhāṃśubhi rudasta śaśāṅka bhāsau  
+śrīveṅkaṭeśa charaṇau śaraṇaṃ prapadye 
+‖ 6 ‖
+
+sa premabhīti kamalākara pallavābhyāṃ   
+saṃvāhaneapi sapadi klama mādhadhānau ❘  
+kāntā navāṅmānasa gochara saukumāryau  
+śrīveṅkaṭeśa charaṇau śaraṇaṃ prapadye 
+‖ 7 ‖
+
+lakśhmī mahī tadanurūpa nijānubhāva  
+nīkādi divya mahiśhī karapallavānām ❘  
+āruṇya saṅkramaṇataḥ kila sāndrarāgau  
+śrīveṅkaṭeśa charaṇau śaraṇaṃ prapadye 
+‖ 8 ‖
+
+nityānamadvidhi śivādi kirīṭakoṭi   
+pratyupta dīpta navaratnamahaḥ prarohaiḥ ❘  
+nīrājanāvidhi mudāra mupādadhānau  
+śrīveṅkaṭeśa charaṇau śaraṇaṃ prapadye 
+‖ 9 ‖
+
+"viśhṇoḥ pade parama" ityudita praśaṃsau  
+yau "madhva utsa" iti bhogya tayā'pyupāttau ❘  
+bhūyastatheti tava pāṇitala pradiśhṭau  
+śrīveṅkaṭeśa charaṇau śaraṇaṃ prapadye 
+‖ 10 ‖
+
+pārthāya tat-sadṛśa sāradhinā tvayaiva  
+yau darśitau svacharaṇau śaraṇaṃ vrajeti ❘  
+bhūyoapi mahya miha tau karadarśitau te  
+śrīveṅkaṭeśa charaṇau śaraṇaṃ prapadye 
+‖ 11 ‖
+
+manmūrthni kāḻiyaphane vikaṭāṭavīśhu  
+śrīveṅkaṭādri śikhare śirasi śrutīnām ❘  
+chitteapyananya manasāṃ samamāhitau te  
+śrīveṅkaṭeśa charaṇau śaraṇaṃ prapadye 
+‖ 12 ‖
+
+amlāna hṛśhya davanītala kīrṇapuśhpau  
+śrīveṅkaṭādri śikharābharaṇāya-mānau ❘  
+ānanditākhila mano nayanau tavai tau  
+śrīveṅkaṭeśa charaṇau śaraṇaṃ prapadye 
+‖ 13 ‖
+
+prāyaḥ prapanna janatā prathamāvagāhyau  
+mātuḥ stanāviva śiśo ramṛtāyamāṇau ❘  
+prāptau paraspara tulā matulāntarau te  
+śrīveṅkaṭeśa charaṇau śaraṇaṃ prapadye 
+‖ 14 ‖
+
+sattvottaraiḥ satata sevyapadāmbujena  
+saṃsāra tāraka dayārdra dṛgañchalena ❘  
+saumyopayantṛ muninā mama darśitau te  
+śrīveṅkaṭeśa charaṇau śaraṇaṃ prapadye 
+‖ 15 ‖
+
+śrīśa śriyā ghaṭikayā tvadupāya bhāve  
+prāpyetvayi svayamupeya tayā sphurantyā ❘  
+nityāśritāya niravadya guṇāya tubhyaṃ  
+syāṃ kiṅkaro vṛśhagirīśa na jātu mahyam 
+‖ 16 ‖
+
+iti śrīveṅkaṭeśa prapattiḥ  
+### PlainEnglish
+
+#### shree veMkaTeshvara prapatti
+
+eeshaanaaM jagato.asya veMkaTapate rvishhNoH paraaM preyaseeM  
+tadvakshhaHsthala nityavaasarasikaaM tat-kshhaaMti saMvardhineem ❘  
+padmaalaMkRRita paaNipallavayugaaM padmaasanasthaaM shriyaM  
+vaatsalyaadi guNojjvalaaM bhagavateeM vaMde jaganmaataram ‖
+
+shreeman kRRipaajalanidhe kRRitasarvaloka  
+sarvagnya shakta natavatsala sarvasheshhin ❘  
+svaamin susheela sula bhaashrita paarijaata  
+shreeveMkaTeshacharaNau sharaNaM prapadye 
+‖ 2 ‖
+
+aanoopuraarchita sujaata sugaMdhi pushhpa  
+saurabhya saurabhakarau samasanniveshau ❘  
+saumyau sadaanubhane.api navaanubhaavyau  
+shreeveMkaTesha charaNau sharaNaM prapadye 
+‖ 3 ‖
+
+sadyovikaasi samudittvara saaMdraraaga  
+saurabhyanirbhara saroruha saamyavaartaam ❘  
+samyakshhu saahasapadeshhu vilekhayaMtau  
+shreeveMkaTesha charaNau sharaNaM prapadye 
+‖ 4 ‖
+
+rekhaamaya dhvaja sudhaakalashaatapatra  
+vajraaMkushaaMburuha kalpaka shaMkhachakraiH ❘  
+bhavyairalaMkRRitatalau paratattva chihnaiH  
+shreeveMkaTesha charaNau sharaNaM prapadye 
+‖ 5 ‖
+
+taamrodaradyuti paraajita padmaraagau  
+baahyair-mahobhi rabhibhoota maheMdraneelau ❘  
+udya nnakhaaMshubhi rudasta shashaaMka bhaasau  
+shreeveMkaTesha charaNau sharaNaM prapadye 
+‖ 6 ‖
+
+sa premabheeti kamalaakara pallavaabhyaaM   
+saMvaahane.api sapadi klama maadhadhaanau ❘  
+kaaMtaa navaanmaanasa gochara saukumaaryau  
+shreeveMkaTesha charaNau sharaNaM prapadye 
+‖ 7 ‖
+
+lakshhmee mahee tadanuroopa nijaanubhaava  
+neekaadi divya mahishhee karapallavaanaam ❘  
+aaruNya saMkramaNataH kila saaMdraraagau  
+shreeveMkaTesha charaNau sharaNaM prapadye 
+‖ 8 ‖
+
+nityaanamadvidhi shivaadi kireeTakoTi   
+pratyupta deepta navaratnamahaH prarohaiH ❘  
+neeraajanaavidhi mudaara mupaadadhaanau  
+shreeveMkaTesha charaNau sharaNaM prapadye 
+‖ 9 ‖
+
+"vishhNoH pade parama" ityudita prashaMsau  
+yau "madhva utsa" iti bhogya tayaa.apyupaattau ❘  
+bhooyastatheti tava paaNitala pradishhTau  
+shreeveMkaTesha charaNau sharaNaM prapadye 
+‖ 10 ‖
+
+paarthaaya tat-sadRRisha saaradhinaa tvayaiva  
+yau darshitau svacharaNau sharaNaM vrajeti ❘  
+bhooyo.api mahya miha tau karadarshitau te  
+shreeveMkaTesha charaNau sharaNaM prapadye 
+‖ 11 ‖
+
+manmoorthni kaaLiyaphane vikaTaaTaveeshhu  
+shreeveMkaTaadri shikhare shirasi shruteenaam ❘  
+chitte.apyananya manasaaM samamaahitau te  
+shreeveMkaTesha charaNau sharaNaM prapadye 
+‖ 12 ‖
+
+amlaana hRRishhya davaneetala keerNapushhpau  
+shreeveMkaTaadri shikharaabharaNaaya-maanau ❘  
+aanaMditaakhila mano nayanau tavai tau  
+shreeveMkaTesha charaNau sharaNaM prapadye 
+‖ 13 ‖
+
+praayaH prapanna janataa prathamaavagaahyau  
+maatuH stanaaviva shisho ramRRitaayamaaNau ❘  
+praaptau paraspara tulaa matulaaMtarau te  
+shreeveMkaTesha charaNau sharaNaM prapadye 
+‖ 14 ‖
+
+sattvottaraiH satata sevyapadaaMbujena  
+saMsaara taaraka dayaardra dRRigaMchalena ❘  
+saumyopayaMtRRi muninaa mama darshitau te  
+shreeveMkaTesha charaNau sharaNaM prapadye 
+‖ 15 ‖
+
+shreesha shriyaa ghaTikayaa tvadupaaya bhaave  
+praapyetvayi svayamupeya tayaa sphuraMtyaa ❘  
+nityaashritaaya niravadya guNaaya tubhyaM  
+syaaM kiMkaro vRRishhagireesha na jaatu mahyam 
+‖ 16 ‖
+
+iti shreeveMkaTesha prapattiH  

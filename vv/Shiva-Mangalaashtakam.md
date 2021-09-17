@@ -419,3 +419,83 @@ sarvaartha siddhi maapnoti sa saayujyaM tataH param ‖ 9 ‖
 సర్వార్థ సిద్ధి మాప్నోతి స సాయుజ్యం తతః పరమ్ ‖ 9 ‖  
 
 
+### English
+
+#### śiva mangaḻāśhṭakam
+
+bhavāya candracūḍāya nirguṇāya guṇātmane ❘  
+kālakālāya rudrāya nīlagrīvāya maṅgaḻam 
+‖ 1 ‖
+
+vṛśhārūḍhāya bhīmāya vyāghracarmāmbarāya ca ❘  
+paśūnāmpataye tubhyaṃ gaurīkāntāya maṅgaḻam 
+‖ 2 ‖
+
+bhasmoddhūḻitadehāya nāgayaGYopavītine ❘  
+rudrākśhamālābhūśhāya vyomakeśāya maṅgaḻam 
+‖ 3 ‖
+
+sūryacandrāgninetrāya namaḥ kailāsavāsine ❘  
+saccidānandarūpāya pramatheśāya maṅgaḻam 
+‖ 4 ‖
+
+mṛtyuñjayāya sāmbāya sṛśhṭisthityantakāriṇe ❘  
+trayambakāya śāntāya trilokeśāya maṅgaḻam 
+‖ 5 ‖
+
+gaṅgādharāya somāya namo hariharātmane ❘  
+ugrāya tripuraghnāya vāmadevāya maṅgaḻam 
+‖ 6 ‖
+
+sadyojātāya śarvāya bhavya GYānapradāyine ❘  
+īśānāya namastubhyaṃ pañcavakrāya maṅgaḻam 
+‖ 7 ‖
+
+sadāśiva svarūpāya namastatpuruśhāya ca ❘  
+aghorāya ca ghorāya mahādevāya maṅgaḻam 
+‖ 8 ‖
+
+mahādevasya devasya yaḥ paṭhenmaṅgaḻāśhṭakam ❘  
+sarvārtha siddhi māpnoti sa sāyujyaṃ tataḥ param 
+‖ 9 ‖
+
+### PlainEnglish
+
+#### shiva mangaLaashhTakam
+
+bhavaaya caMdracooDaaya nirguNaaya guNaatmane ❘  
+kaalakaalaaya rudraaya neelagreevaaya maMgaLam 
+‖ 1 ‖
+
+vRRishhaarooDhaaya bheemaaya vyaaghracarmaaMbaraaya ca ❘  
+pashoonaaMpataye tubhyaM gaureekaaMtaaya maMgaLam 
+‖ 2 ‖
+
+bhasmoddhooLitadehaaya naagayagnyopaveetine ❘  
+rudraakshhamaalaabhooshhaaya vyomakeshaaya maMgaLam 
+‖ 3 ‖
+
+sooryacaMdraagninetraaya namaH kailaasavaasine ❘  
+saccidaanaMdaroopaaya pramatheshaaya maMgaLam 
+‖ 4 ‖
+
+mRRityuMjayaaya saaMbaaya sRRishhTisthityaMtakaariNe ❘  
+trayaMbakaaya shaaMtaaya trilokeshaaya maMgaLam 
+‖ 5 ‖
+
+gaMgaadharaaya somaaya namo hariharaatmane ❘  
+ugraaya tripuraghnaaya vaamadevaaya maMgaLam 
+‖ 6 ‖
+
+sadyojaataaya sharvaaya bhavya gnyaanapradaayine ❘  
+eeshaanaaya namastubhyaM paMcavakraaya maMgaLam 
+‖ 7 ‖
+
+sadaashiva svaroopaaya namastatpurushhaaya ca ❘  
+aghoraaya ca ghoraaya mahaadevaaya maMgaLam 
+‖ 8 ‖
+
+mahaadevasya devasya yaH paThenmaMgaLaashhTakam ❘  
+sarvaartha siddhi maapnoti sa saayujyaM tataH param 
+‖ 9 ‖
+

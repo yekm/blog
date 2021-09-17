@@ -224,3 +224,37 @@ maraNabhavadehaabhimaanaM vahaami‖
 పరమపురుషం కృపాభరణం న భజామి  
 మరణభవదేహాభిమానం వహామి‖  
 
+### English
+
+#### annamayya kīrtana kiṃ kariśhyāmi
+
+kiṃ kariśhyāmi kiṃ karomi bahuḻa-    
+śaṅkāsamādhānajāḍyaṃ vahāmi ‖
+
+nārāyāṇaṃ jagannāthaṃ trilokaika-   
+pārāyaṇaṃ bhaktapāvanaṃ ❘  
+dūrīkaromyahaṃ duritadūreṇa saṃ-   
+sārasāgaramagnachañchalatvena ‖
+
+tiruveṅkaṭāchalādhīśvaraṃ karirāja- ❘  
+varadaṃ śaraṇāgatavatsalaṃ ❘  
+paramapuruśhaṃ kṛpābharaṇaṃ na bhajāmi   
+maraṇabhavadehābhimānaṃ vahāmi‖
+
+### PlainEnglish
+
+#### annamayya keertana kiM karishhyaami
+
+kiM karishhyaami kiM karomi bahuLa-    
+shaMkaasamaadhaanajaaDyaM vahaami ‖
+
+naaraayaaNaM jagannaathaM trilokaika-   
+paaraayaNaM bhaktapaavanaM ❘  
+dooreekaromyahaM duritadooreNa saM-   
+saarasaagaramagnachaMchalatvena ‖
+
+tiruveMkaTaachalaadheeshvaraM kariraaja- ❘  
+varadaM sharaNaagatavatsalaM ❘  
+paramapurushhaM kRRipaabharaNaM na bhajaami   
+maraNabhavadehaabhimaanaM vahaami‖
+

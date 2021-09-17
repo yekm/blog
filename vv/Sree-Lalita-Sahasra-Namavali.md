@@ -13406,3 +13406,2275 @@ oM lalitaambikaayai namaH ❘ 1000
 ‖ఇతి శ్రీలలితసహస్రనామావలిః సంపూర్ణా ‖  
 
 
+### English
+
+#### śrī lalitā sahasra nāmāvaḻi
+
+
+‖ dhyānam ‖
+
+sindūrāruṇavigrahāṃ trinayanāṃ māṇikyamaulisphurat  
+tārānāyakaśekharāṃ smitamukhīmāpīnavakśhoruhām ❘  
+pāṇibhyāmalipūrṇaratnacaśhakaṃ raktotpalaṃ bibhratīṃ  
+saumyāṃ ratnaghaṭastharaktacaraṇāṃ dhyāyetparāmambikām ‖
+
+aruṇāṃ karuṇātaraṅgitākśhīṃ dhṛtapāśāṅkuśapuśhpabāṇacāpām ❘  
+aṇimādibhirāvṛtāṃ mayūkhairahamityeva vibhāvaye bhavānīm ‖
+
+dhyāyet padmāsanasthāṃ vikasitavadanāṃ padmapatrāyatākśhīṃ  
+hemābhāṃ pītavastrāṃ karakalitalasaddhemapadmāṃ varāṅgīm ❘  
+sarvālaṅkārayuktāṃ satatamabhayadāṃ bhaktanamrāṃ bhavānīṃ  
+śrīvidyāṃ śāntamūrtiṃ sakalasuranutāṃ sarvasampatpradātrīm ‖
+
+sakuṅkumavilepanāmalikacumbikastūrikāṃ  
+samandahasitekśhaṇāṃ saśaracāpapāśāṅkuśām ❘  
+aśeśhajanamohinīmaruṇamālyabhūśhāmbarāṃ  
+japākusumabhāsurāṃ japavidhau smaredambikām ‖
+
+
+‖atha śrī lalitā sahasranāmāvalī ‖
+
+oṃ oṃ aiṃ hrīṃ śrīṃ śrīmātre namaḥ ❘  
+oṃ śrīmahārāGYai namaḥ ❘  
+oṃ śrīmatsiṃhāsaneśvaryai namaḥ ❘  
+oṃ cidagnikuṇḍasambhūtāyai namaḥ ❘  
+oṃ devakāryasamudyatāyai namaḥ ❘  
+oṃ oṃ udyadbhānusahasrābhāyai namaḥ ❘  
+oṃ caturbāhusamanvitāyai namaḥ ❘  
+oṃ rāgasvarūpapāśāḍhyāyai namaḥ ❘  
+oṃ krodhākārāṅkuśojjvalāyai namaḥ ❘  
+oṃ manorūpekśhukodaṇḍāyai namaḥ ❘  
+10  
+oṃ pañcatanmātrasāyakāyai namaḥ ❘  
+oṃ nijāruṇaprabhāpūramajjad brahmāṇḍamaṇḍalāyai namaḥ ❘  
+oṃ campakāśokapunnāgasaugandhika-lasatkacāyai namaḥ ❘  
+oṃ kuruvindamaṇiśreṇīkanatkoṭīramaṇḍitāyai namaḥ ❘  
+oṃ oṃ aśhṭamīcandravibhrājadalikasthalaśobhitāyai namaḥ ❘  
+oṃ mukhacandrakalaṅkābhamṛganābhiviśeśhakāyai namaḥ ❘  
+oṃ vadanasmaramāṅgalyagṛhatoraṇacillikāyai namaḥ ❘  
+oṃ vaktralakśhmīparīvāhacalanmīnābhalocanāyai namaḥ ❘  
+oṃ navacampakapuśhpābhanāsādaṇḍavirājitāyai namaḥ ❘  
+oṃ tārākāntitiraskārināsābharaṇabhāsurāyai namaḥ ❘  
+20  
+oṃ kadambamañjarīk~luptakarṇapūramanoharāyai namaḥ ❘  
+oṃ tāṭaṅkayugalībhūtatapanoḍupamaṇḍalāyai namaḥ ❘  
+oṃ padmarāgaśilādarśaparibhāvikapolabhuve namaḥ ❘  
+oṃ navavidrumabimbaśrīnyakkāriradanacChadāyai namaḥ ❘  
+oṃ śuddhavidyāṅkurākāradvijapaṅktidvayojjvalāyai namaḥ ❘  
+oṃ karpūravīṭikāmodasamākarśhi digantarāyai namaḥ ❘  
+oṃ nijasallāpamādhurya vinirbhatsitakacChapyai namaḥ ❘  
+oṃ mandasmitaprabhāpūramajjatkāmeśamānasāyai namaḥ ❘  
+oṃ anākalitasādṛśyacibukaśrīvirājitāyai namaḥ ❘  
+oṃ kāmeśabaddhamāṅgalyasūtraśobhitakandharāyai namaḥ ❘  
+30  
+oṃ kanakāṅgadakeyūrakamanīyamujānvitāyai namaḥ ❘  
+oṃ ratnagraiveya cintākalolamuktāphalānvitāyai namaḥ ❘  
+oṃ kāmeśvārapremaratnamaṇipratipaṇastanyai namaḥ ❘  
+oṃ nābhyālavālaromālilatāphalakucadvayyai namaḥ ❘  
+oṃ lakśhyaromalatādhāratāsamunneyamadhyamāyai namaḥ ❘  
+oṃ stanabhāradalanmadhyapaṭṭabandhavalitrayāyai namaḥ ❘  
+oṃ oṃ aruṇāruṇakausumbhavastrabhāsvatkaṭītaṭyai namaḥ ❘  
+oṃ ratnakiṅkiṇikāramyaraśanādāmabhūśhitāyai namaḥ ❘  
+oṃ kāmeśaGYātasaubhāgyamārdavorudvayānvitāyai namaḥ ❘  
+oṃ māṇikyamukuṭākārajānudvayavirājitāyai namaḥ ❘  
+40  
+oṃ indragopaparikśhiptasmaratūṇābhajaṅghikāyai namaḥ ❘  
+oṃ gūḍhagūlphāyai namaḥ ❘  
+oṃ kūrma pṛśhṭhajayiśhṇuprapadānvitāyai namaḥ ❘  
+oṃ nakhadīdhitisañChannanamajjanatamoguṇāyai namaḥ ❘  
+oṃ padadvayaprabhājālaparākṛtasaroruhāyai namaḥ ❘  
+oṃ śiñjānamaṇimañjīramaṇḍitaśrīpadāmbujāyai namaḥ ❘  
+oṃ marālīmandagamanāyai namaḥ ❘  
+oṃ mahālāvaṇyaśevadhaye namaḥ ❘  
+oṃ sarvāruṇāyai namaḥ ❘  
+oṃ anavadyāṅgyai namaḥ ❘  
+50  
+oṃ sarvābharaṇabhūśhitāyai namaḥ ❘  
+oṃ śivakāmeśvarāṅkasthāyai namaḥ ❘  
+oṃ śivāyai namaḥ ❘  
+oṃ svādhīnavallabhāyai namaḥ ❘  
+oṃ sumerumadhyaśṛṅgasthāyai namaḥ ❘  
+oṃ śrīmannagaranāyikāyai namaḥ ❘  
+oṃ cintāmaṇigṛhāntasthāyai namaḥ ❘  
+oṃ pañcabrahmāsanasthitāyai namaḥ ❘  
+oṃ mahāpadmāṭavīsaṃsthāyai namaḥ ❘  
+oṃ kadambavanavāsinyai namaḥ ❘  
+60  
+oṃ sudhāsāgaramadhyasthāyai namaḥ ❘  
+oṃ kāmākśhyai namaḥ ❘  
+oṃ kāmadāyinyai namaḥ ❘  
+oṃ devarśhigaṇasaṅghātastūyamānātmavaibhāyai namaḥ ❘  
+oṃ bhaṇḍāsuravadhodyuktaśaktisenāsamanvitāyai namaḥ ❘  
+oṃ sampatkarīsamārūḍhasinduravrajasevitāyai namaḥ ❘  
+oṃ oṃ aśvārūḍhādhiśhṭhitāśvakoṭikoṭibhirāvṛtāyai namaḥ ❘  
+oṃ cakrarājarathārūḍhasarvāyudhapariśhkṛtāyai namaḥ ❘  
+oṃ geyacakrarathārūḍhamantriṇīparisevitāyai namaḥ ❘  
+oṃ kiricakrarathārūḍhadaṇḍanāthāpuraskṛtāyai namaḥ ❘  
+70  
+oṃ jvālāmālinikākśhiptavahniprākāramadhyagāyai namaḥ ❘  
+oṃ bhaṇḍasainyavadhodyuktaśaktivikramaharśhitāyai namaḥ ❘  
+oṃ nityāparākramāṭopanirīkśhaṇasamutsukāyai namaḥ ❘  
+oṃ bhaṇḍaputravadhodyuktabālāvikramananditāyai namaḥ ❘  
+oṃ mantriṇyambāviracitaviśhaṅgavadhatośhitāyai namaḥ ❘  
+oṃ viśukraprāṇaharaṇavārāhīvīryananditāyai namaḥ ❘  
+oṃ kāmeśvaramukhālokakalpitaśrīgaṇeśvarāyai namaḥ ❘  
+oṃ mahāgaṇeśanirbhinnavighnayantrapraharśhitāyai namaḥ ❘  
+oṃ bhaṇḍāsurendranirmuktaśastrapratyastravarśhiṇyai namaḥ ❘  
+oṃ karāṅgulinakhotpannanārāyaṇadaśākṛtyai namaḥ ❘  
+80  
+oṃ mahāpāśupatāstrāgninirdagdhāsurasainikāyai namaḥ ❘  
+oṃ kāmeśvarāstranirdagdhasabhāṇḍāsuraśūnyakāyai namaḥ ❘  
+oṃ brahmopendramahendrādidevasaṃstutavaibhavāyai namaḥ ❘  
+oṃ haranetrāgnisandagdhakāmasañjīvanauśhadhyai namaḥ ❘  
+oṃ śrīmadvāgbhavakūṭaikasvarūpamukhapaṅkajāyai namaḥ ❘  
+oṃ kaṇṭhādhaḥ kaṭiparyantamadhyakūṭasvarūpiṇyai namaḥ ❘  
+oṃ śaktikūṭaikatāpannakaṭyadhobhāgadhāriṇyai namaḥ ❘  
+oṃ oṃ mūlamantrātmikāyai namaḥ ❘  
+oṃ mūlakūṭatrayakalebarāyai namaḥ ❘  
+oṃ kulāmṛtaikarasikāyai namaḥ ❘  
+90  
+oṃ kulasaṅketapālinyai namaḥ ❘  
+oṃ kulāṅganāyai namaḥ ❘  
+oṃ kulāntaḥsthāyai namaḥ ❘  
+oṃ kaulinyai namaḥ ❘  
+oṃ kulayoginyai namaḥ ❘  
+oṃ akulāyai namaḥ ❘  
+oṃ samayāntasthāyai namaḥ ❘  
+oṃ samayācāratatparāyai namaḥ ❘  
+oṃ mūlādhāraikanilayāyai namaḥ ❘  
+oṃ brahmagranthivibhedinyai namaḥ ❘  
+100  
+oṃ maṇipūrāntaruditāyai namaḥ ❘  
+oṃ viśhṇugranthivibhedinyai namaḥ ❘  
+oṃ āGYācakrāntarālasthāyai namaḥ ❘  
+oṃ rudragranthivibhedinyai namaḥ ❘  
+oṃ sahasrārāmbujārūḍhāyai namaḥ ❘  
+oṃ sudhāsārābhivarśhiṇyai namaḥ ❘  
+oṃ taṭillatāsamarucyai namaḥ ❘  
+oṃ śhaṭcakroparisaṃsthitāyai namaḥ ❘  
+oṃ mahāsaktyai namaḥ ❘  
+oṃ oṃ kuṇḍalinyai namaḥ ❘  
+110  
+oṃ bisatantutanīyasyai namaḥ ❘  
+oṃ bhavānyai namaḥ ❘  
+oṃ bhāvanāgamyāyai namaḥ ❘  
+oṃ bhavāraṇyakuṭhārikāyai namaḥ ❘  
+oṃ bhadrapriyāyai namaḥ ❘  
+oṃ bhadramūrtyai namaḥ ❘  
+oṃ bhaktasaubhāgyadāyinyai namaḥ ❘  
+oṃ bhaktipriyāyai namaḥ ❘  
+oṃ bhaktigamyāyai namaḥ ❘  
+oṃ bhaktivaśyāyai namaḥ ❘  
+120  
+oṃ bhayāpahāyai namaḥ ❘  
+oṃ śāmbhavyai namaḥ ❘  
+oṃ śāradārādhyāyai namaḥ ❘  
+oṃ śarvāṇyai namaḥ ❘  
+oṃ śarmadāyinyai namaḥ ❘  
+oṃ śāṅkaryai namaḥ ❘  
+oṃ śrīkaryai namaḥ ❘  
+oṃ sādhvyai namaḥ ❘  
+oṃ śaraccandranibhānanāyai namaḥ ❘  
+oṃ śātodaryai namaḥ ❘  
+130  
+oṃ śāntimatyai namaḥ ❘  
+oṃ oṃ nirādhārāyai namaḥ ❘  
+oṃ nirañjanāyai namaḥ ❘  
+oṃ nirlepāyai namaḥ ❘  
+oṃ nirmalāyai namaḥ ❘  
+oṃ nityāyai namaḥ ❘  
+oṃ nirākārāyai namaḥ ❘  
+oṃ nirākulāyai namaḥ ❘  
+oṃ nirguṇāyai namaḥ ❘  
+oṃ niśhkalāyai namaḥ ❘  
+140  
+oṃ śāntāyai namaḥ ❘  
+oṃ niśhkāmāyai namaḥ ❘  
+oṃ nirupaplavāyai namaḥ ❘  
+oṃ nityamuktāyai namaḥ ❘  
+oṃ nirvikārāyai namaḥ ❘  
+oṃ niśhprapañcāyai namaḥ ❘  
+oṃ nirāśrayāyai namaḥ ❘  
+oṃ nityaśuddhāyai namaḥ ❘  
+oṃ nityabuddhāyai namaḥ ❘  
+oṃ niravadyāyai namaḥ ❘  
+150  
+oṃ nirantarāyai namaḥ ❘  
+oṃ niśhkāraṇāyai namaḥ ❘  
+oṃ niśhkalaṅkāyai namaḥ ❘  
+oṃ oṃ nirupādhaye namaḥ ❘  
+oṃ nirīśvarāyai namaḥ ❘  
+oṃ nīrāgayai namaḥ ❘  
+oṃ rāgamathanyai namaḥ ❘  
+oṃ nirmadāyai namaḥ ❘  
+oṃ madanāśinyai namaḥ ❘  
+oṃ niścintāyai namaḥ ❘  
+160  
+oṃ nirahaṅkārāyai namaḥ ❘  
+oṃ nirmohāyai namaḥ ❘  
+oṃ mohanāśinyai namaḥ ❘  
+oṃ nirmamāyai namaḥ ❘  
+oṃ mamatāhantryai namaḥ ❘  
+oṃ niśhpāpāyai namaḥ ❘  
+oṃ pāpanāśinyai namaḥ ❘  
+oṃ niśhkrodhāyai namaḥ ❘  
+oṃ krodhaśamanyai namaḥ ❘  
+oṃ nirlobhāyai namaḥ ❘  
+170  
+oṃ lobhanāśinyai namaḥ ❘  
+oṃ niḥsaṃśayāyai namaḥ ❘  
+oṃ saṃśayaghnyai namaḥ ❘  
+oṃ nirbhavāyai namaḥ ❘  
+oṃ bhavanāśinyai namaḥ ❘  
+oṃ oṃ nirvikalpāyai namaḥ ❘  
+oṃ nirābādhāyai namaḥ ❘  
+oṃ nirbhedāyai namaḥ ❘  
+oṃ bhedanāśinyai namaḥ ❘  
+oṃ nirnāśāyai namaḥ ❘  
+180  
+oṃ mṛtyumathanyai namaḥ ❘  
+oṃ niśhkriyāyai namaḥ ❘  
+oṃ niśhparigrahāyai namaḥ ❘  
+oṃ nistulāyai namaḥ ❘  
+oṃ nīlacikurāyai namaḥ ❘  
+oṃ nirapāyāyai namaḥ ❘  
+oṃ niratyayāyai namaḥ ❘  
+oṃ durlabhāyai namaḥ ❘  
+oṃ durgamāyai namaḥ ❘  
+oṃ durgāyai namaḥ ❘  
+190  
+oṃ duḥkhahantryai namaḥ ❘  
+oṃ sukhapradāyai namaḥ ❘  
+oṃ duśhṭadūrāyai namaḥ ❘  
+oṃ durācāraśamanyai namaḥ ❘  
+oṃ dośhavarjitāyai namaḥ ❘  
+oṃ sarvaGYāyai namaḥ ❘  
+oṃ sāndrakaruṇāyai namaḥ ❘  
+oṃ oṃ samānādhikavarjitāyai namaḥ ❘  
+oṃ sarvaśaktimayyai namaḥ ❘  
+oṃ sarvamaṅgalāyai namaḥ ❘  
+200  
+oṃ sadgatipradāyai namaḥ ❘  
+oṃ sarveśvayai namaḥ ❘  
+oṃ sarvamayyai namaḥ ❘  
+oṃ sarvamantrasvarūpiṇyai namaḥ ❘  
+oṃ sarvayantrātmikāyai namaḥ ❘  
+oṃ sarvatantrarūpāyai namaḥ ❘  
+oṃ manonmanyai namaḥ ❘  
+oṃ māheśvaryai namaḥ ❘  
+oṃ mahādevyai namaḥ ❘  
+oṃ mahālakśhmyai namaḥ ❘  
+210  
+oṃ mṛḍapriyāyai namaḥ ❘  
+oṃ mahārūpāyai namaḥ ❘  
+oṃ mahāpūjyāyai namaḥ ❘  
+oṃ mahāpātakanāśinyai namaḥ ❘  
+oṃ mahāmāyāyai namaḥ ❘  
+oṃ mahāsatvāyai namaḥ ❘  
+oṃ mahāśaktyai namaḥ ❘  
+oṃ mahāratyai namaḥ ❘  
+oṃ mahābhogāyai namaḥ ❘  
+oṃ oṃ mahaiśvaryāyai namaḥ ❘  
+220  
+oṃ mahāvīryāyai namaḥ ❘  
+oṃ mahābalāyai namaḥ ❘  
+oṃ mahābuddhyai namaḥ ❘  
+oṃ mahāsiddhyai namaḥ ❘  
+oṃ mahāyogeśvareśvaryai namaḥ ❘  
+oṃ mahātantrāyai namaḥ ❘  
+oṃ mahāmantrāyai namaḥ ❘  
+oṃ mahāyantrāyai namaḥ ❘  
+oṃ mahāsanāyai namaḥ ❘  
+oṃ mahāyāgakramārādhyāyai namaḥ ❘  
+230  
+oṃ mahābhairavapūjitāyai namaḥ ❘  
+oṃ maheśvaramahākalpamahā tāṇḍavasākśhiṇyai namaḥ ❘  
+oṃ mahākāmeśamahiśhyai namaḥ ❘  
+oṃ mahātripurasundaryai namaḥ ❘  
+oṃ catuḥśhaśhṭyupacārāḍhyāyai namaḥ ❘  
+oṃ catuḥśhaśhṭikalāmayyai namaḥ ❘  
+oṃ mahācatuḥśhaśhṭikoṭi yoginīgaṇasevitāyai namaḥ ❘  
+oṃ manuvidyāyai namaḥ ❘  
+oṃ candravidyāyai namaḥ ❘  
+oṃ oṃ candramaṇḍalamadhyagāyai namaḥ ❘  
+240  
+oṃ cārurūpāyai namaḥ ❘  
+oṃ cāruhāsāyai namaḥ ❘  
+oṃ cārucandrakalādharāyai namaḥ ❘  
+oṃ carācarajagannāthāyai namaḥ ❘  
+oṃ cakrarājaniketanāyai namaḥ ❘  
+oṃ pārvatyai namaḥ ❘  
+oṃ padmanayanāyai namaḥ ❘  
+oṃ padmarāgasamaprabhāyai namaḥ ❘  
+oṃ pañcapretāsanāsīnāyai namaḥ ❘  
+oṃ pañcabrahmasparūpiṇyai namaḥ ❘  
+250  
+oṃ cinmayyai namaḥ ❘  
+oṃ paramānandāyai namaḥ ❘  
+oṃ viGYānaghanarūpiṇyai namaḥ ❘  
+oṃ dhyānadhyātṛdhyeyarūpāyai namaḥ ❘  
+oṃ rdhmādharmavivarjitāyai namaḥ ❘  
+oṃ viśvarūpāyai namaḥ ❘  
+oṃ jāgariṇyai namaḥ ❘  
+oṃ svapatnyai namaḥ ❘  
+oṃ taijasātmikāyai namaḥ ❘  
+oṃ suptāyai namaḥ ❘  
+260  
+oṃ prāGYātmikāyai namaḥ ❘  
+oṃ oṃ turyāyai namaḥ ❘  
+oṃ sarvāvasthāvivarjitāyai namaḥ ❘  
+oṃ sṛśhṭhikartryai namaḥ ❘  
+oṃ brahmarūpāyai namaḥ ❘  
+oṃ goptryai namaḥ ❘  
+oṃ govindarūpiṇyai namaḥ ❘  
+oṃ saṃhāriṇyai namaḥ ❘  
+oṃ rudrarūpāyai namaḥ ❘  
+oṃ tirodhānakaryai namaḥ ❘  
+270  
+oṃ īśvaryai namaḥ ❘  
+oṃ sadāśivāyai namaḥ ❘  
+oṃ anugrahadāyai namaḥ ❘  
+oṃ pañcakṛtyaparāyaṇāyai namaḥ ❘  
+oṃ bhānumaṇḍalamadhyasthāyai namaḥ ❘  
+oṃ bhairavyai namaḥ ❘  
+oṃ bhagamālinyai namaḥ ❘  
+oṃ padmāsanāyai namaḥ ❘  
+oṃ bhagavatyai namaḥ ❘  
+oṃ padmanābhasahodaryai namaḥ ❘  
+280  
+oṃ unmeśhanimiśhotpannavipannabhuvanāvalyai namaḥ ❘  
+oṃ sahasraśīrśhavadanāyai namaḥ ❘  
+oṃ oṃ sahasrākśhyai namaḥ ❘  
+oṃ sahasrapade namaḥ ❘  
+oṃ ābrahmakīṭajananyai namaḥ ❘  
+oṃ varṇāśramavidhāyinyai namaḥ ❘  
+oṃ nijāGYārūpanigamāyai namaḥ ❘  
+oṃ puṇyāpuṇyaphalapradāyai namaḥ ❘  
+oṃ śrutisīmantasindūrīkṛta pādābjadhūlikāyai namaḥ ❘  
+oṃ sakalāgamasandohaśuktisampuṭamauktikāyai namaḥ ❘  
+290  
+oṃ puruśhārthapradāyai namaḥ ❘  
+oṃ pūrṇāyai namaḥ ❘  
+oṃ bhoginyai namaḥ ❘  
+oṃ bhuvaneśvaryai namaḥ ❘  
+oṃ ambikāyai namaḥ ❘  
+oṃ anādinidhanāyai namaḥ ❘  
+oṃ haribrahmendrasevitāyai namaḥ ❘  
+oṃ nārāyaṇyai namaḥ ❘  
+oṃ nādarūpāyai namaḥ ❘  
+oṃ nāmarūpavivarjitāyai namaḥ ❘  
+300  
+oṃ hrīṅkāryai namaḥ ❘  
+oṃ hrīmatyai namaḥ ❘  
+oṃ oṃ hṛdyāyai namaḥ ❘  
+oṃ heyopādeyavarjitāyai namaḥ ❘  
+oṃ rājarājārcitāyai namaḥ ❘  
+oṃ rāGYai namaḥ ❘  
+oṃ ramyāyai namaḥ ❘  
+oṃ rājīvalocanāyai namaḥ ❘  
+oṃ rañjanyai namaḥ ❘  
+oṃ ramaṇyai namaḥ ❘  
+310  
+oṃ rasyāyai namaḥ ❘  
+oṃ raṇatkiṅkiṇimekhalāyai namaḥ ❘  
+oṃ ramāyai namaḥ ❘  
+oṃ rākenduvadanāyai namaḥ ❘  
+oṃ ratirūpāyai namaḥ ❘  
+oṃ ratipriyāyai namaḥ ❘  
+oṃ rakśhākaryai namaḥ ❘  
+oṃ rākśhasaghnyai namaḥ ❘  
+oṃ rāmāyai namaḥ ❘  
+oṃ ramaṇalampaṭāyai namaḥ ❘  
+320  
+oṃ kāmyāyai namaḥ ❘  
+oṃ kāmakalārūpāyai namaḥ ❘  
+oṃ kadambakusumapriyāyai namaḥ ❘  
+oṃ kalyāṇyai namaḥ ❘  
+oṃ oṃ jagatīkandāyai namaḥ ❘  
+oṃ karuṇārasasāgarāyai namaḥ ❘  
+oṃ kalāvatyai namaḥ ❘  
+oṃ kalālāpāyai namaḥ ❘  
+oṃ kāntāyai namaḥ ❘  
+oṃ kādambarīpriyāyai namaḥ ❘  
+330  
+oṃ varadāyai namaḥ ❘  
+oṃ vāmanayanāyai namaḥ ❘  
+oṃ vāruṇīmadavihvalāyai namaḥ ❘  
+oṃ viśvādhikāyai namaḥ ❘  
+oṃ vedavedyāyai namaḥ ❘  
+oṃ vindhyācalanivāsinyai namaḥ ❘  
+oṃ vidhātryai namaḥ ❘  
+oṃ vedajananyai namaḥ ❘  
+oṃ viśhṇumāyāyai namaḥ ❘  
+oṃ vilāsinyai namaḥ ❘  
+340  
+oṃ kśhetrasvarūpāyai namaḥ ❘  
+oṃ kśhetreśyai namaḥ ❘  
+oṃ kśhetrakśhetraGYapālinyai namaḥ ❘  
+oṃ kśhayavṛddhivinirmuktāyai namaḥ ❘  
+oṃ kśhetrapālasamarcitāyai namaḥ ❘  
+oṃ vijayāyai namaḥ ❘  
+oṃ oṃ vimalāyai namaḥ ❘  
+oṃ vandyāyai namaḥ ❘  
+oṃ vandārujanavatsalāyai namaḥ ❘  
+oṃ vāgvādinyai namaḥ ❘  
+350  
+oṃ vāmakeśyai namaḥ ❘  
+oṃ vahnimaṇḍalavāsinyai namaḥ ❘  
+oṃ bhaktimatkalpalatikāyai namaḥ ❘  
+oṃ paśupāśavimocinyai namaḥ ❘  
+oṃ saṃhṛtāśeśhapāśhaṇḍāyai namaḥ ❘  
+oṃ sadācārapravartikāyai namaḥ ❘  
+oṃ tāpatrayāgnisantaptasamāhlādanacandrikāyai namaḥ ❘  
+oṃ taruṇyai namaḥ ❘  
+oṃ tāpasārādhyāyai namaḥ ❘  
+oṃ tanumadhyāyai namaḥ ❘  
+360  
+oṃ tamopahāyai namaḥ ❘  
+oṃ cityai namaḥ ❘  
+oṃ tatpadalakśhyārthāyai namaḥ ❘  
+oṃ cidekarasarūpiṇyai namaḥ ❘  
+oṃ svātmānandalavībhūta-brahmādyānandasantatyai namaḥ ❘  
+oṃ parāyai namaḥ ❘  
+oṃ oṃ pratyak citīrūpāyai namaḥ ❘  
+oṃ paśyantyai namaḥ ❘  
+oṃ paradevatāyai namaḥ ❘  
+oṃ madhyamāyai namaḥ ❘  
+370  
+oṃ vaikharīrūpāyai namaḥ ❘  
+oṃ bhaktamānasahaṃsikāyai namaḥ ❘  
+oṃ kāmeśvaraprāṇanāḍyai namaḥ ❘  
+oṃ kṛtaGYāyai namaḥ ❘  
+oṃ kāmapūjitāyai namaḥ ❘  
+oṃ śrṛṅgārarasasampūrṇāyai namaḥ ❘  
+oṃ jayāyai namaḥ ❘  
+oṃ jālandharasthitāyai namaḥ ❘  
+oṃ oḍyāṇapīṭhanilayāyai namaḥ ❘  
+oṃ bindumaṇḍalavāsinyai namaḥ ❘  
+380  
+oṃ rahoyāgakramārādhyāyai namaḥ ❘  
+oṃ rahastarpaṇatarpitāyai namaḥ ❘  
+oṃ sadyaḥ prasādinyai namaḥ ❘  
+oṃ viśvasākśhiṇyai namaḥ ❘  
+oṃ sākśhivarjitāyai namaḥ ❘  
+oṃ śhaḍaṅgadevatāyuktāyai namaḥ ❘  
+oṃ śhāḍguṇyaparipūritāyai namaḥ ❘  
+oṃ nityaklinnāyai namaḥ ❘  
+oṃ oṃ nirupamāyai namaḥ ❘  
+oṃ nirvāṇasukhadāyinyai namaḥ ❘  
+390  
+oṃ nityāśhoḍaśikārūpāyai namaḥ ❘  
+oṃ śrīkaṇṭhārdhaśarīriṇyai namaḥ ❘  
+oṃ prabhāvatyai namaḥ ❘  
+oṃ prabhārūpāyai namaḥ ❘  
+oṃ prasiddhāyai namaḥ ❘  
+oṃ parameśvaryai namaḥ ❘  
+oṃ mūlaprakṛtyai namaḥ ❘  
+oṃ avyaktāyai namaḥ ❘  
+oṃ vktāvyaktasvarūpiṇyai namaḥ ❘  
+oṃ vyāpinyai namaḥ ❘  
+400  
+oṃ vividhākārāyai namaḥ ❘  
+oṃ vidyāvidyāsvarūpiṇyai namaḥ ❘  
+oṃ mahākāmeśanayanakumudāhlādakaumudyai namaḥ ❘  
+oṃ bhaktāhārdatamobhedabhānumadbhānusantatyai namaḥ ❘  
+oṃ śivadūtyai namaḥ ❘  
+oṃ śivārādhyāyai namaḥ ❘  
+oṃ śivamūrtyai namaḥ ❘  
+oṃ śivaṅkaryai namaḥ ❘  
+oṃ oṃ śivapriyāyai namaḥ ❘  
+oṃ śivaparāyai namaḥ ❘  
+410  
+oṃ śiśhṭeśhṭāyai namaḥ ❘  
+oṃ śiśhṭapūjitāyai namaḥ ❘  
+oṃ aprameyāyai namaḥ ❘  
+oṃ svaprakāśāyai namaḥ ❘  
+oṃ manovācāmagocarāyai namaḥ ❘  
+oṃ cicChaktyai namaḥ ❘  
+oṃ cetanārūpāyai namaḥ ❘  
+oṃ jaḍaśaktyai namaḥ ❘  
+oṃ jaḍātmikāyai namaḥ ❘  
+oṃ gāyatryai namaḥ ❘  
+420  
+oṃ vyāhṛtyai namaḥ ❘  
+oṃ sandhyāyai namaḥ ❘  
+oṃ dvijavṛndaniśhevitāyai namaḥ ❘  
+oṃ tattvāsanāyai namaḥ ❘  
+oṃ tasmai namaḥ ❘  
+oṃ tubhyaṃ namaḥ ❘  
+oṃ ayyai namaḥ ❘  
+oṃ pañcakośāntarasthitāyai namaḥ ❘  
+oṃ niḥsīmamahimne namaḥ ❘  
+oṃ nityayauvanāyai namaḥ ❘  
+430  
+oṃ oṃ madaśālinyai namaḥ ❘  
+oṃ madaghūrṇitaraktākśhyai namaḥ ❘  
+oṃ madapāṭalagaṇḍabhuve namaḥ ❘  
+oṃ candanadravadigdhāṅgyai namaḥ ❘  
+oṃ cāmpeyakusumapriyāyai namaḥ ❘  
+oṃ kuśalāyai namaḥ ❘  
+oṃ komalākārāyai namaḥ ❘  
+oṃ kurukullāyai namaḥ ❘  
+oṃ kuleśvaryai namaḥ ❘  
+oṃ kulakuṇḍālayāyai namaḥ ❘  
+440  
+oṃ kaulamārgatatparasevitāyai namaḥ ❘  
+oṃ kumāragaṇanāthāmbāyai namaḥ ❘  
+oṃ tuśhṭyai namaḥ ❘  
+oṃ puśhṭyai namaḥ ❘  
+oṃ matyai namaḥ ❘  
+oṃ dhṛtyai namaḥ ❘  
+oṃ śāntyai namaḥ ❘  
+oṃ svastimatyai namaḥ ❘  
+oṃ kāntyai namaḥ ❘  
+oṃ nandinyai namaḥ ❘  
+450  
+oṃ vighnanāśinyai namaḥ ❘  
+oṃ tejovatyai namaḥ ❘  
+oṃ oṃ trinayanāyai namaḥ ❘  
+oṃ lolākśhīkāmarūpiṇyai namaḥ ❘  
+oṃ mālinyai namaḥ ❘  
+oṃ haṃsinyai namaḥ ❘  
+oṃ mātre namaḥ ❘  
+oṃ malayācalavāsinyai namaḥ ❘  
+oṃ sumukhyai namaḥ ❘  
+oṃ nalinyai namaḥ ❘  
+460  
+oṃ subhruve namaḥ ❘  
+oṃ śobhanāyai namaḥ ❘  
+oṃ suranāyikāyai namaḥ ❘  
+oṃ kālakaṇṭhyai namaḥ ❘  
+oṃ kāntimatyai namaḥ ❘  
+oṃ kśhobhiṇyai namaḥ ❘  
+oṃ sūkśhmarūpiṇyai namaḥ ❘  
+oṃ vajreśvaryai namaḥ ❘  
+oṃ vāmadevyai namaḥ ❘  
+oṃ vayoavasthāvivarjitāyai namaḥ ❘  
+470  
+oṃ siddheśvaryai namaḥ ❘  
+oṃ siddhavidyāyai namaḥ ❘  
+oṃ siddhamātre namaḥ ❘  
+oṃ yaśasvinyai namaḥ ❘  
+oṃ oṃ viśuddhicakranilayāyai namaḥ ❘  
+oṃ āraktavarṇāyai namaḥ ❘  
+oṃ trilocanāyai namaḥ ❘  
+oṃ khaṭvāṅgādipraharaṇāyai namaḥ ❘  
+oṃ vadanaikasamanvitāyai namaḥ ❘  
+oṃ pāyasānnapriyāyai namaḥ ❘  
+480  
+oṃ tvaksthāyai namaḥ ❘  
+oṃ paśulokabhayaṅkaryai namaḥ ❘  
+oṃ amṛtādimahāśaktisaṃvṛtāyai namaḥ ❘  
+oṃ ḍākinīśvaryai namaḥ ❘  
+oṃ anāhatābjanilayāyai namaḥ ❘  
+oṃ śyāmābhāyai namaḥ ❘  
+oṃ vadanadvayāyai namaḥ ❘  
+oṃ daṃśhṭrojvalāyai namaḥ ❘  
+oṃ akśhamālādidharāyai namaḥ ❘  
+oṃ rudhirasaṃsthitāyai namaḥ ❘  
+490  
+oṃ kālarātryādiśaktyaughavṛtāyai namaḥ ❘  
+oṃ snigdhaudanapriyāyai namaḥ ❘  
+oṃ mahāvīrendravaradāyai namaḥ ❘  
+oṃ rākiṇyambāsvarūpiṇyai namaḥ ❘  
+oṃ maṇipūrābjanilayāyai namaḥ ❘  
+oṃ oṃ vadanatrayasaṃyutāyai namaḥ ❘  
+oṃ vajrādhikāyudhopetāyai namaḥ ❘  
+oṃ ḍāmaryādibhirāvṛtāyai namaḥ ❘  
+oṃ raktavarṇāyai namaḥ ❘  
+oṃ māṃsaniśhṭhāyai namaḥ ❘  
+500  
+501. guḍānnaprītamānasāyai namaḥ ❘  
+oṃ samastabhaktasukhadāyai namaḥ ❘  
+oṃ lākinyambāsvarūpiṇyai namaḥ ❘  
+oṃ svādhiśhṭānāmbujagatāyai namaḥ ❘  
+oṃ caturvaktramanoharāyai namaḥ ❘  
+oṃ śūlādyāyudhasampannāyai namaḥ ❘  
+oṃ pītavarṇāyai namaḥ ❘  
+oṃ atigarvitāyai namaḥ ❘  
+oṃ medoniśhṭhāyai namaḥ ❘  
+oṃ madhuprītāyai namaḥ ❘  
+510  
+oṃ bandinyādisamanvitāyai namaḥ ❘  
+oṃ dadhyannāsaktahṛdayāyai namaḥ ❘  
+oṃ kākinīrūpadhāriṇyai namaḥ ❘  
+oṃ mūlādhārāmbujārūḍhāyai namaḥ ❘  
+oṃ pañcavaktrāyai namaḥ ❘  
+oṃ asthisaṃsthitāyai namaḥ ❘  
+oṃ aṅkuśādipraharaṇāyai namaḥ ❘  
+oṃ oṃ varadādi niśhevitāyai namaḥ ❘  
+oṃ mudgaudanāsaktacittāyai namaḥ ❘  
+oṃ sākinyambāsvarūpiṇyai namaḥ ❘  
+520  
+oṃ āGYācakrābjanilāyai namaḥ ❘  
+oṃ śuklavarṇāyai namaḥ ❘  
+oṃ śhaḍānanāyai namaḥ ❘  
+oṃ majjāsaṃsthāyai namaḥ ❘  
+oṃ haṃsavatīmukhyaśaktisamanvitāyai namaḥ ❘  
+oṃ haridrānnaikarasikāyai namaḥ ❘  
+oṃ hākinīrūpadhāriṇyai namaḥ ❘  
+oṃ sahasradalapadmasthāyai namaḥ ❘  
+oṃ sarvavarṇopaśobhitāyai namaḥ ❘  
+oṃ sarvāyudhadharāyai namaḥ ❘  
+530  
+oṃ śuklasaṃsthitāyai namaḥ ❘  
+oṃ sarvatomukhyai namaḥ ❘  
+oṃ sarvaudanaprītacittāyai namaḥ ❘  
+oṃ yākinyambāsvarūpiṇyai namaḥ ❘  
+oṃ svāhāyai namaḥ ❘  
+oṃ svadhāyai namaḥ ❘  
+oṃ amatyai namaḥ ❘  
+oṃ medhāyai namaḥ ❘  
+oṃ oṃ śrutyai namaḥ ❘  
+oṃ smṛtyai namaḥ ❘  
+540  
+oṃ anuttamāyai namaḥ ❘  
+oṃ puṇyakīrtyai namaḥ ❘  
+oṃ puṇyalabhyāyai namaḥ ❘  
+oṃ puṇyaśravaṇakīrtanāyai namaḥ ❘  
+oṃ pulomajārcitāyai namaḥ ❘  
+oṃ bandhamocanyai namaḥ ❘  
+oṃ barbarālakāyai namaḥ ❘  
+oṃ vimarśarūpiṇyai namaḥ ❘  
+oṃ vidyāyai namaḥ ❘  
+oṃ viyadādijagatprasuve namaḥ ❘  
+550  
+oṃ sarva vyādhipraśamanyai namaḥ ❘  
+oṃ sarva mṛtyunivāriṇyai namaḥ ❘  
+oṃ agragaṇyāyai namaḥ ❘  
+oṃ acintyarūpāyai namaḥ ❘  
+oṃ kalikalmaśhanāśinyai namaḥ ❘  
+oṃ kātyāyanyai namaḥ ❘  
+oṃ kālahantryai namaḥ ❘  
+oṃ kamalākśhaniśhevitāyai namaḥ ❘  
+oṃ tāmbūlapūritamukhyai namaḥ ❘  
+oṃ dāḍimīkusumaprabhāyai namaḥ ❘  
+560  
+oṃ oṃ mṛgākśhyai namaḥ ❘  
+oṃ mohinyai namaḥ ❘  
+oṃ mukhyāyai namaḥ ❘  
+oṃ mṛḍānyai namaḥ ❘  
+oṃ mitrarūpiṇyai namaḥ ❘  
+oṃ nityatṛptāyai namaḥ ❘  
+oṃ bhaktanidhaye namaḥ ❘  
+oṃ niyantryai namaḥ ❘  
+oṃ nikhileśvaryai namaḥ ❘  
+oṃ maitryādivāsanālabhyāyai namaḥ ❘  
+570  
+oṃ mahāpralayasākśhiṇyai namaḥ ❘  
+oṃ parāśaktyai namaḥ ❘  
+oṃ parāniśhṭhāyai namaḥ ❘  
+oṃ praGYānaghanarūpiṇyai namaḥ ❘  
+oṃ mādhvīpānālasāyai namaḥ ❘  
+oṃ mattāyai namaḥ ❘  
+oṃ mātṛkāvarṇa rūpiṇyai namaḥ ❘  
+oṃ mahākailāsanilayāyai namaḥ ❘  
+oṃ mṛṇālamṛdudorlatāyai namaḥ ❘  
+oṃ mahanīyāyai namaḥ ❘  
+580  
+oṃ dayāmūrtyai namaḥ ❘  
+oṃ mahāsāmrājyaśālinyai namaḥ ❘  
+oṃ oṃ ātmavidyāyai namaḥ ❘  
+oṃ mahāvidyāyai namaḥ ❘  
+oṃ śrīvidyāyai namaḥ ❘  
+oṃ kāmasevitāyai namaḥ ❘  
+oṃ śrīśhoḍaśākśharīvidyāyai namaḥ ❘  
+oṃ trikūṭāyai namaḥ ❘  
+oṃ kāmakoṭikāyai namaḥ ❘  
+oṃ kaṭākśhakiṅkarībhūtakamalākoṭisevitāyai namaḥ ❘  
+590  
+oṃ śiraḥsthitāyai namaḥ ❘  
+oṃ candranibhāyai namaḥ ❘  
+oṃ bhālasthāyai^^ai namaḥ ❘  
+oṃ indradhanuḥprabhāyai namaḥ ❘  
+oṃ hṛdayasthāyai namaḥ ❘  
+oṃ raviprakhyāyai namaḥ ❘  
+oṃ trikoṇāntaradīpikāyai namaḥ ❘  
+oṃ dākśhāyaṇyai namaḥ ❘  
+oṃ daityahantryai namaḥ ❘  
+oṃ dakśhayaGYavināśinyai namaḥ ❘  
+600  
+oṃ darāndolitadīrghākśhyai namaḥ ❘  
+oṃ darahāsojjvalanmukhyai namaḥ ❘  
+oṃ gurūmūrtyai namaḥ ❘  
+oṃ oṃ guṇanidhaye namaḥ ❘  
+oṃ gomātre namaḥ ❘  
+oṃ guhajanmabhuve namaḥ ❘  
+oṃ deveśyai namaḥ ❘  
+oṃ daṇḍanītisthāyai namaḥ ❘  
+oṃ daharākāśarūpiṇyai namaḥ ❘  
+oṃ pratipanmukhyarākāntatithimaṇḍalapūjitāyai namaḥ ❘  
+610  
+oṃ kalātmikāyai namaḥ ❘  
+oṃ kalānāthāyai namaḥ ❘  
+oṃ kāvyālāpavimodinyai namaḥ ❘  
+oṃ sacāmararamāvāṇīsavyadakśhiṇasevitāyai namaḥ ❘  
+oṃ ādiśaktayai namaḥ ❘  
+oṃ ameyāyai namaḥ ❘  
+oṃ ātmane namaḥ ❘  
+oṃ paramāyai namaḥ ❘  
+oṃ pāvanākṛtaye namaḥ ❘  
+oṃ anekakoṭibrahmāṇḍajananyai namaḥ ❘  
+620  
+oṃ divyavigrahāyai namaḥ ❘  
+oṃ klīṅkāryai namaḥ ❘  
+oṃ kevalāyai namaḥ ❘  
+oṃ oṃ guhyāyai namaḥ ❘  
+oṃ kaivalyapadadāyinyai namaḥ ❘  
+oṃ tripurāyai namaḥ ❘  
+oṃ trijagadvandyāyai namaḥ ❘  
+oṃ trimūrtyai namaḥ ❘  
+oṃ tridaśeśvaryai namaḥ ❘  
+oṃ tryakśharyai namaḥ ❘  
+630  
+oṃ divyagandhāḍhyāyai namaḥ ❘  
+oṃ sindūratilakāñcitāyai namaḥ ❘  
+oṃ umāyai namaḥ ❘  
+oṃ śailendratanayāyai namaḥ ❘  
+oṃ gauryai namaḥ ❘  
+oṃ gandharvasevitāyai namaḥ ❘  
+oṃ viśvagarbhāyai namaḥ ❘  
+oṃ svarṇagarbhāyai namaḥ ❘  
+oṃ avaradāyai namaḥ ❘  
+oṃ vāgadhīśvaryai namaḥ ❘  
+640  
+oṃ dhyānagamyāyai namaḥ ❘  
+oṃ aparicChedyāyai namaḥ ❘  
+oṃ GYānadāyai namaḥ ❘  
+oṃ GYānavigrahāyai namaḥ ❘  
+oṃ sarvavedāntasaṃvedyāyai namaḥ ❘  
+oṃ oṃ satyānandasvarūpiṇyai namaḥ ❘  
+oṃ lopāmudrārcitāyai namaḥ ❘  
+oṃ līlāklṛptabrahmāṇḍamaṇḍalāyai namaḥ ❘  
+oṃ adṛśyāyai namaḥ ❘  
+oṃ dṛśyarahitāyai namaḥ ❘  
+650  
+oṃ viGYātryai namaḥ ❘  
+oṃ vedyavarjitāyai namaḥ ❘  
+oṃ yoginyai namaḥ ❘  
+oṃ yogadāyai namaḥ ❘  
+oṃ yogyāyai namaḥ ❘  
+oṃ yogānandāyai namaḥ ❘  
+oṃ yugandharāyai namaḥ ❘  
+oṃ icChāśaktiGYānaśaktikriyāśaktisvarūpiṇyai namaḥ ❘  
+oṃ sarvādhārāyai namaḥ ❘  
+oṃ supratiśhṭhāyai namaḥ ❘  
+660  
+oṃ sadasadrūpadhāriṇyai namaḥ ❘  
+oṃ aśhṭamūrtyai namaḥ ❘  
+oṃ ajājaitryai namaḥ ❘  
+oṃ lokayātrāvidhāyinyai namaḥ ❘  
+oṃ ekākinyai namaḥ ❘  
+oṃ oṃ bhūmarūpāyai namaḥ ❘  
+oṃ nidvaitāyai namaḥ ❘  
+oṃ dvaitavarjitāyai namaḥ ❘  
+oṃ annadāyai namaḥ ❘  
+oṃ vasudāyai namaḥ ❘  
+670  
+oṃ vṛddhāyai namaḥ ❘  
+oṃ brahmātmaikyasvarūpiṇyai namaḥ ❘  
+oṃ bṛhatyai namaḥ ❘  
+oṃ brāhmaṇyai namaḥ ❘  
+oṃ brāhmayai namaḥ ❘  
+oṃ brahmānandāyai namaḥ ❘  
+oṃ balipriyāyai namaḥ ❘  
+oṃ bhāśhārūpāyai namaḥ ❘  
+oṃ bṛhatsenāyai namaḥ ❘  
+oṃ bhāvābhāvavirjitāyai namaḥ ❘  
+680  
+oṃ sukhārādhyāyai namaḥ ❘  
+oṃ śubhakaryai namaḥ ❘  
+oṃ śobhanāsulabhāgatyai namaḥ ❘  
+oṃ rājarājeśvaryai namaḥ ❘  
+oṃ rājyadāyinyai namaḥ ❘  
+oṃ rājyavallabhāyai namaḥ ❘  
+oṃ rājatkṛpāyai namaḥ ❘  
+oṃ oṃ rājapīṭhaniveśitanijāśritāyai namaḥ ❘  
+oṃ rājyalakśhmyai namaḥ ❘  
+oṃ kośanāthāyai namaḥ ❘  
+690  
+oṃ caturaṅgabaleśvaryai namaḥ ❘  
+oṃ sāmrājyadāyinyai namaḥ ❘  
+oṃ satyasandhāyai namaḥ ❘  
+oṃ sāgaramekhalāyai namaḥ ❘  
+oṃ dīkśhitāyai namaḥ ❘  
+oṃ daityaśamanyai namaḥ ❘  
+oṃ sarvalokavaṃśakaryai namaḥ ❘  
+oṃ sarvārthadātryai namaḥ ❘  
+oṃ sāvitryai namaḥ ❘  
+oṃ saccidānandarūpiṇyai namaḥ ❘  
+700  
+oṃ deśakālāparicChinnāyai namaḥ ❘  
+oṃ sarvagāyai namaḥ ❘  
+oṃ sarvamohinyai namaḥ ❘  
+oṃ sarasvatyai namaḥ ❘  
+oṃ śāstramayyai namaḥ ❘  
+oṃ guhāmbāyai namaḥ ❘  
+oṃ guhyarūpiṇyai namaḥ ❘  
+oṃ sarvopādhivinirmuktāyai namaḥ ❘  
+oṃ oṃ sadāśivapativratāyai namaḥ ❘  
+oṃ sampradāyeśvaryai namaḥ ❘  
+710  
+oṃ sādhune namaḥ ❘  
+oṃ yai namaḥ ❘  
+oṃ gurūmaṇḍalarūpiṇyai namaḥ ❘  
+oṃ kulottīrṇāyai namaḥ ❘  
+oṃ bhagārādhyāyai namaḥ ❘  
+oṃ māyāyai namaḥ ❘  
+oṃ madhumatyai namaḥ ❘  
+oṃ mahyai namaḥ ❘  
+oṃ gaṇāmbāyai namaḥ ❘  
+oṃ guhyakārādhyāyai namaḥ ❘  
+720  
+oṃ komalāṅgyai namaḥ ❘  
+oṃ gurupriyāyai namaḥ ❘  
+oṃ svatantrāyai namaḥ ❘  
+oṃ sarvatantreśyai namaḥ ❘  
+oṃ dakśhiṇāmūrtirūpiṇyai namaḥ ❘  
+oṃ sanakādisamārādhyāyai namaḥ ❘  
+oṃ śivaGYānapradāyinyai namaḥ ❘  
+oṃ citkalāyai namaḥ ❘  
+oṃ ānandakalikāyai namaḥ ❘  
+oṃ premarūpāyai namaḥ ❘  
+730  
+oṃ oṃ priyaṅkaryai namaḥ ❘  
+oṃ nāmapārāyaṇaprītāyai namaḥ ❘  
+oṃ nandividyāyai namaḥ ❘  
+oṃ naṭeśvaryai namaḥ ❘  
+oṃ mithyājagadadhiśhṭhānāyai namaḥ ❘  
+oṃ muktidāyai namaḥ ❘  
+oṃ muktirūpiṇyai namaḥ ❘  
+oṃ lāsyapriyāyai namaḥ ❘  
+oṃ layakaryai namaḥ ❘  
+oṃ lajjāyai namaḥ ❘  
+740  
+oṃ rambhādivanditāyai namaḥ ❘  
+oṃ bhavadāvasudhāvṛśhṭyai namaḥ ❘  
+oṃ pāpāraṇyadavānalāyai namaḥ ❘  
+oṃ daurbhāgyatūlavātūlāyai namaḥ ❘  
+oṃ jarādhvāntaraviprabhāyai namaḥ ❘  
+oṃ bhāgyābdhicandrikāyai namaḥ ❘  
+oṃ bhaktacittakekighanāghanāyai namaḥ ❘  
+oṃ rogaparvatadambholaye namaḥ ❘  
+oṃ mṛtyudārukuṭhārikāyai namaḥ ❘  
+oṃ maheśvaryai namaḥ ❘  
+750  
+oṃ mahākālyai namaḥ ❘  
+oṃ mahāgrāsāyai namaḥ ❘  
+oṃ mahāśanāyai namaḥ ❘  
+oṃ aparṇāyai namaḥ ❘  
+oṃ oṃ caṇḍikāyai namaḥ ❘  
+oṃ caṇḍamuṇḍāsuraniśhūdinyai namaḥ ❘  
+oṃ kśharākśharātmikāyai namaḥ ❘  
+oṃ sarvalokeśyai namaḥ ❘  
+oṃ viśvadhāriṇyai namaḥ ❘  
+oṃ trivargadātryai namaḥ ❘  
+760  
+oṃ subhagāyai namaḥ ❘  
+oṃ tryambakāyai namaḥ ❘  
+oṃ triguṇātmikāyai namaḥ ❘  
+oṃ svargāpavargadāyai namaḥ ❘  
+oṃ śuddhāyai namaḥ ❘  
+oṃ japāpuśhpanibhākṛtaye namaḥ ❘  
+oṃ ojovatyai namaḥ ❘  
+oṃ dyutidharāyai namaḥ ❘  
+oṃ yaGYarūpāyai namaḥ ❘  
+oṃ priyavratāyai namaḥ ❘  
+770  
+oṃ durārādhyāyai namaḥ ❘  
+oṃ durādharśhāyai namaḥ ❘  
+oṃ pāṭalīkusumapriyāyai namaḥ ❘  
+oṃ mahatyai namaḥ ❘  
+oṃ merunilayāyai namaḥ ❘  
+oṃ mandārakusumapriyāyai namaḥ ❘  
+oṃ oṃ vīrārādhyāyai namaḥ ❘  
+oṃ virāḍrūpāyai namaḥ ❘  
+oṃ virajase namaḥ ❘  
+oṃ viśvatomukhyai namaḥ ❘  
+780  
+oṃ pratyagrūpāyai namaḥ ❘  
+oṃ parākāśāyai namaḥ ❘  
+oṃ prāṇadāyai namaḥ ❘  
+oṃ prāṇarūpiṇyai namaḥ ❘  
+oṃ mārtāṇḍabhairavārādhyāyai namaḥ ❘  
+oṃ mantriṇīnyastarājyadhure namaḥ ❘  
+oṃ tripureśyai namaḥ ❘  
+oṃ jayatsenāyai namaḥ ❘  
+oṃ nistraiguṇyāyai namaḥ ❘  
+oṃ parāparāyai namaḥ ❘  
+790  
+oṃ satyaGYānānandarūpāyai namaḥ ❘  
+oṃ sāmarasyaparāyaṇāyai namaḥ ❘  
+oṃ kapardinyai namaḥ ❘  
+oṃ kalāmālāyai namaḥ ❘  
+oṃ kāmadughe namaḥ ❘  
+oṃ kāmarūpiṇyai namaḥ ❘  
+oṃ kalānidhaye namaḥ ❘  
+oṃ kāvyakalāyai namaḥ ❘  
+oṃ oṃ rasaGYāyai namaḥ ❘  
+oṃ rasaśevadhaye namaḥ ❘  
+800  
+oṃ puśhṭāyai namaḥ ❘  
+oṃ purātanāyai namaḥ ❘  
+oṃ pūjyāyai namaḥ ❘  
+oṃ puśhkarāyai namaḥ ❘  
+oṃ puśhkarekśhaṇāyai namaḥ ❘  
+oṃ parasmai jyotiśhe namaḥ ❘  
+oṃ parasmai dhāmne namaḥ ❘  
+oṃ paramāṇave namaḥ ❘  
+oṃ parātparāyai namaḥ ❘  
+oṃ pāśahastāyai namaḥ ❘  
+810  
+oṃ pāśahantryai namaḥ ❘  
+oṃ paramantravibhedinyai namaḥ ❘  
+oṃ mūrtāyai namaḥ ❘  
+oṃ amūrtāyai namaḥ ❘  
+oṃ anityatṛptāyai namaḥ ❘  
+oṃ munimānasahaṃsikāyai namaḥ ❘  
+oṃ satyavratāyai namaḥ ❘  
+oṃ satyarūpāyai namaḥ ❘  
+oṃ sarvāntaryāmiṇyai namaḥ ❘  
+oṃ satyai namaḥ ❘  
+820  
+oṃ oṃ  brahmāṇyai namaḥ ❘  
+oṃ brahmaṇe namaḥ ❘  
+oṃ jananyai namaḥ ❘  
+oṃ bahurūpāyai namaḥ ❘  
+oṃ budhārcitāyai namaḥ ❘  
+oṃ prasavitryai namaḥ ❘  
+oṃ pracaṇḍāyai namaḥ ❘  
+oṃ āGYāyai namaḥ ❘  
+oṃ pratiśhṭhāyai namaḥ ❘  
+oṃ prakaṭākṛtaye namaḥ ❘  
+830  
+oṃ prāṇeśvaryai namaḥ ❘  
+oṃ prāṇadātryai namaḥ ❘  
+oṃ pañcāśatpīṭharūpiṇyai namaḥ ❘  
+oṃ viśrṛṅkhalāyai namaḥ ❘  
+oṃ viviktasthāyai namaḥ ❘  
+oṃ vīramātre namaḥ ❘  
+oṃ viyatprasuve namaḥ ❘  
+oṃ mukundāyai namaḥ ❘  
+oṃ muktinilayāyai namaḥ ❘  
+oṃ mūlavigraharūpiṇyai namaḥ ❘  
+840  
+oṃ bhāvaGYāyai namaḥ ❘  
+oṃ bhavarogadhnyai namaḥ ❘  
+oṃ oṃ bhavacakrapravartinyai namaḥ ❘  
+oṃ Chandaḥsārāyai namaḥ ❘  
+oṃ śāstrasārāyai namaḥ ❘  
+oṃ mantrasārāyai namaḥ ❘  
+oṃ talodaryai namaḥ ❘  
+oṃ udārakīrtaye namaḥ ❘  
+oṃ uddāmavaibhavāyai namaḥ ❘  
+oṃ varṇarūpiṇyai namaḥ ❘  
+850  
+oṃ janmamṛtyujarātaptajana  
+viśrāntidāyinyai namaḥ ❘  
+oṃ sarvopaniśhadud ghuśhṭāyai namaḥ ❘  
+oṃ śāntyatītakalātmikāyai namaḥ ❘  
+oṃ gambhīrāyai namaḥ ❘  
+oṃ gaganāntaḥsthāyai namaḥ ❘  
+oṃ garvitāyai namaḥ ❘  
+oṃ gānalolupāyai namaḥ ❘  
+oṃ kalpanārahitāyai namaḥ ❘  
+oṃ kāśhṭhāyai namaḥ ❘  
+oṃ akāntāyai namaḥ ❘  
+860  
+oṃ kāntārdhavigrahāyai namaḥ ❘  
+oṃ kāryakāraṇanirmuktāyai namaḥ ❘  
+oṃ kāmakelitaraṅgitāyai namaḥ ❘  
+oṃ kanatkanakatāṭaṅkāyai namaḥ ❘  
+oṃ līlāvigrahadhāriṇyai namaḥ ❘  
+oṃ ajāyai namaḥ ❘  
+oṃ kśhayavinirmuktāyai namaḥ ❘  
+oṃ mugdhāyai namaḥ ❘  
+oṃ kśhipraprasādinyai namaḥ ❘  
+oṃ antarmukhasamārādhyāyai namaḥ ❘  
+870  
+oṃ bahirmukhasudurlabhāyai namaḥ ❘  
+oṃ trayyai namaḥ ❘  
+oṃ trivarganilayāyai namaḥ ❘  
+oṃ tristhāyai namaḥ ❘  
+oṃ tripuramālinyai namaḥ ❘  
+oṃ nirāmayāyai namaḥ ❘  
+oṃ nirālambāyai namaḥ ❘  
+oṃ svātmārāmāyai namaḥ ❘  
+oṃ sudhāsṛtyai namaḥ ❘  
+oṃ saṃsārapaṅkanirmagna  
+samuddharaṇapaṇḍitāyai namaḥ ❘  
+880  
+oṃ yaGYapriyāyai namaḥ ❘  
+oṃ yaGYakartryai namaḥ ❘  
+oṃ yajamānasvarūpiṇyai namaḥ ❘  
+oṃ dharmādhārāyai namaḥ ❘  
+oṃ oṃ dhanādhyakśhāyai namaḥ ❘  
+oṃ dhanadhānyavivardhinyai namaḥ ❘  
+oṃ viprapriyāyai namaḥ ❘  
+oṃ viprarūpāyai namaḥ ❘  
+oṃ viśvabhramaṇakāriṇyai namaḥ ❘  
+oṃ viśvagrāsāyai namaḥ ❘  
+890  
+oṃ vidrumābhāyai namaḥ ❘  
+oṃ vaiśhṇavyai namaḥ ❘  
+oṃ viśhṇurūpiṇyai namaḥ ❘  
+oṃ ayonyai namaḥ var ayonaye  
+oṃ yoninilayāyai namaḥ ❘  
+oṃ kūṭasthāyai namaḥ ❘  
+oṃ kularūpiṇyai namaḥ ❘  
+oṃ vīragośhṭhīpriyāyai namaḥ ❘  
+oṃ vīrāyai namaḥ ❘  
+oṃ naiśhkarmyāyai namaḥ ❘  
+900  
+oṃ nādarūpiṇyai namaḥ ❘  
+oṃ viGYānakalanāyai namaḥ ❘  
+oṃ kalyāyai namaḥ ❘  
+oṃ vidagdhāyai namaḥ ❘  
+oṃ baindavāsanāyai namaḥ ❘  
+oṃ tatvādhikāyai namaḥ ❘  
+oṃ oṃ tatvamayyai namaḥ ❘  
+oṃ tatvamarthasvarūpiṇyai namaḥ ❘  
+oṃ sāmagānapriyāyai namaḥ ❘  
+oṃ saumyāyai namaḥ ❘  
+910  
+oṃ sadāśivakuṭumbinyai namaḥ ❘  
+oṃ savyāpasavyamārgasthāyai namaḥ ❘  
+oṃ sarvāpadvinivāriṇyai namaḥ ❘  
+oṃ svasthāyai namaḥ ❘  
+oṃ svabhāvamadhurāyai namaḥ ❘  
+oṃ dhīrāyai namaḥ ❘  
+oṃ dhīrasamarcitāyai namaḥ ❘  
+oṃ caitanyārghyasamārādhyāyai namaḥ ❘  
+oṃ caitanyakusumapriyāyai namaḥ ❘  
+oṃ sadoditāyai namaḥ ❘  
+920  
+oṃ sadātuśhṭhāyai namaḥ ❘  
+oṃ taruṇādityapāṭalāyai namaḥ ❘  
+oṃ dakśhiṇādakśhiṇārādhyāyai namaḥ ❘  
+oṃ darasmeramukhāmbujāyai namaḥ ❘  
+oṃ kaulinīkevalāyai namaḥ ❘  
+oṃ anardhya kaivalyapadadāyinyai namaḥ ❘  
+oṃ stotrapriyāyai namaḥ ❘  
+oṃ stutimatyai namaḥ ❘  
+oṃ oṃ śrutisaṃstutavaibhavāyai namaḥ ❘  
+oṃ manasvinyai namaḥ ❘  
+930  
+oṃ mānavatyai namaḥ ❘  
+oṃ maheśyai namaḥ ❘  
+oṃ maṅgalākṛtye namaḥ ❘  
+oṃ viśvamātre namaḥ ❘  
+oṃ jagaddhātryai namaḥ ❘  
+oṃ viśālākśhyai namaḥ ❘  
+oṃ virāgiṇyai namaḥ ❘  
+oṃ pragalbhāyai namaḥ ❘  
+oṃ paramodārāyai namaḥ ❘  
+oṃ parāmodāyai namaḥ ❘  
+940  
+oṃ manomayyai namaḥ ❘  
+oṃ vyomakeśyai namaḥ ❘  
+oṃ vimānasthāyai namaḥ ❘  
+oṃ vajriṇyai namaḥ ❘  
+oṃ vāmakeśvaryai namaḥ ❘  
+oṃ pañcayaGYapriyāyai namaḥ ❘  
+oṃ pañcapretamañcādhiśāyinyai namaḥ ❘  
+oṃ pañcamyai namaḥ ❘  
+oṃ pañcabhūteśyai namaḥ ❘  
+oṃ pañcasaṅkhyopacāriṇyai namaḥ ❘  
+950  
+oṃ oṃ śāśvatyai namaḥ ❘  
+oṃ śāśvataiśvaryāyai namaḥ ❘  
+oṃ śarmadāyai namaḥ ❘  
+oṃ śambhumohinyai namaḥ ❘  
+oṃ dharāyai namaḥ ❘  
+oṃ dharasutāyai namaḥ ❘  
+oṃ dhanyāyai namaḥ ❘  
+oṃ dharmiṇyai namaḥ ❘  
+oṃ dharmavardhinyai namaḥ ❘  
+oṃ lokātītāyai namaḥ ❘  
+960  
+oṃ guṇātītāyai namaḥ ❘  
+oṃ sarvātītāyai namaḥ ❘  
+oṃ śāmātmikāyai namaḥ ❘  
+oṃ bandhūkakusumaprakhyāyai namaḥ ❘  
+oṃ bālāyai namaḥ ❘  
+oṃ līlāvinodinyai namaḥ ❘  
+oṃ sumaṅgalyai namaḥ ❘  
+oṃ sukhakaryai namaḥ ❘  
+oṃ suveśhāḍhyāyai namaḥ ❘  
+oṃ suvāsinyai namaḥ ❘  
+970  
+oṃ suvāsinyarcanaprītāyai namaḥ ❘  
+oṃ āśobhanāyai namaḥ ❘  
+oṃ oṃ śuddhamānasāyai nama  
+oṃ bindutarpaṇasantuśhṭāyai namaḥ ❘  
+oṃ pūrvajāyai namaḥ ❘  
+oṃ tripurāmbikāyai namaḥ ❘  
+oṃ daśamudrāsamārādhyāyai namaḥ ❘  
+oṃ tripurāśrīvaśaṅkaryai namaḥ ❘  
+oṃ GYānamudrāyai namaḥ ❘  
+oṃ GYānagamyāyai namaḥ ❘  
+980  
+oṃ GYānaGYeyasvarūpiṇyai namaḥ ❘  
+oṃ yonimudrāyai namaḥ ❘  
+oṃ trikhaṇḍeśyai namaḥ ❘  
+oṃ triguṇāyai namaḥ ❘  
+oṃ ambāyai namaḥ ❘  
+oṃ trikoṇagāyai namaḥ ❘  
+oṃ anaghāyai namaḥ ❘  
+oṃ adbhutacāritrāyai namaḥ ❘  
+oṃ vāñChitārthapradāyinyai namaḥ ❘  
+oṃ abhyāsātiśayaGYātāyai namaḥ ❘  
+990  
+oṃ śhaḍadhvātītarūpiṇyai namaḥ ❘  
+oṃ avyājakaruṇāmūrtaye namaḥ ❘  
+oṃ aGYānadhvāntadīpikāyai namaḥ ❘  
+oṃ ābālagopaviditāyai namaḥ ❘  
+oṃ oṃ sarvānullaṅghyaśāsanāyai namaḥ ❘  
+oṃ śrīcakrarājanilayāyai namaḥ ❘  
+oṃ śrīmattripurasundaryai namaḥ ❘  
+oṃ oṃ śrīśivāyai namaḥ ❘  
+oṃ śivaśaktyaikyarūpiṇyai namaḥ ❘  
+oṃ lalitāmbikāyai namaḥ ❘  
+1000  
+
+‖oṃ tatsat brahmārpaṇamastu ‖
+
+
+‖iti śrīlalitasahasranāmāvaliḥ sampūrṇā ‖
+
+### PlainEnglish
+
+#### shree lalitaa sahasra naamaavaLi
+
+
+‖ dhyaanam ‖
+
+sindooraaruNavigrahaaM trinayanaaM maaNikyamaulisphurat  
+taaraanaayakashekharaaM smitamukheemaapeenavakshhoruhaam ❘  
+paaNibhyaamalipoorNaratnacashhakaM raktotpalaM bibhrateeM  
+saumyaaM ratnaghaTastharaktacaraNaaM dhyaayetparaamambikaam ‖
+
+aruNaaM karuNaatarangitaakshheeM dhRRitapaashaankushapushhpabaaNacaapaam ❘  
+aNimaadibhiraavRRitaaM mayookhairahamityeva vibhaavaye bhavaaneem ‖
+
+dhyaayet padmaasanasthaaM vikasitavadanaaM padmapatraayataakshheeM  
+hemaabhaaM peetavastraaM karakalitalasaddhemapadmaaM varaangeem ❘  
+sarvaalankaarayuktaaM satatamabhayadaaM bhaktanamraaM bhavaaneeM  
+shreevidyaaM shaantamoortiM sakalasuranutaaM sarvasampatpradaatreem ‖
+
+sakunkumavilepanaamalikacumbikastoorikaaM  
+samandahasitekshhaNaaM sasharacaapapaashaankushaam ❘  
+asheshhajanamohineemaruNamaalyabhooshhaambaraaM  
+japaakusumabhaasuraaM japavidhau smaredambikaam ‖
+
+
+‖atha shree lalitaa sahasranaamaavalee ‖
+
+oM oM aiM hreeM shreeM shreemaatre namaH ❘  
+oM shreemahaaraagnyai namaH ❘  
+oM shreematsiMhaasaneshvaryai namaH ❘  
+oM cidagnikuNDasaMbhootaayai namaH ❘  
+oM devakaaryasamudyataayai namaH ❘  
+oM oM udyadbhaanusahasraabhaayai namaH ❘  
+oM caturbaahusamanvitaayai namaH ❘  
+oM raagasvaroopapaashaaDhyaayai namaH ❘  
+oM krodhaakaaraankushojjvalaayai namaH ❘  
+oM manoroopekshhukodaNDaayai namaH ❘  
+10  
+oM paMcatanmaatrasaayakaayai namaH ❘  
+oM nijaaruNaprabhaapooramajjad brahmaaNDamaNDalaayai namaH ❘  
+oM campakaashokapunnaagasaugandhika-lasatkacaayai namaH ❘  
+oM kuruvindamaNishreNeekanatkoTeeramaNDitaayai namaH ❘  
+oM oM ashhTameecandravibhraajadalikasthalashobhitaayai namaH ❘  
+oM mukhacandrakalaMkaabhamRRiganaabhivisheshhakaayai namaH ❘  
+oM vadanasmaramaaMgalyagRRihatoraNacillikaayai namaH ❘  
+oM vaktralakshhmeepareevaahacalanmeenaabhalocanaayai namaH ❘  
+oM navacampakapushhpaabhanaasaadaNDaviraajitaayai namaH ❘  
+oM taaraakaantitiraskaarinaasaabharaNabhaasuraayai namaH ❘  
+20  
+oM kadambamanjareek~luptakarNapooramanoharaayai namaH ❘  
+oM taaTaMkayugaleebhootatapanoDupamaNDalaayai namaH ❘  
+oM padmaraagashilaadarshaparibhaavikapolabhuve namaH ❘  
+oM navavidrumabimbashreenyakkaariradanacChadaayai namaH ❘  
+oM shuddhavidyaankuraakaaradvijapanktidvayojjvalaayai namaH ❘  
+oM karpooraveeTikaamodasamaakarshhi digantaraayai namaH ❘  
+oM nijasallaapamaadhurya vinirbhatsitakacChapyai namaH ❘  
+oM mandasmitaprabhaapooramajjatkaameshamaanasaayai namaH ❘  
+oM anaakalitasaadRRishyacibukashreeviraajitaayai namaH ❘  
+oM kaameshabaddhamaangalyasootrashobhitakandharaayai namaH ❘  
+30  
+oM kanakaangadakeyoorakamaneeyamujaanvitaayai namaH ❘  
+oM ratnagraiveya cintaakalolamuktaaphalaanvitaayai namaH ❘  
+oM kaameshvaarapremaratnamaNipratipaNastanyai namaH ❘  
+oM naabhyaalavaalaromaalilataaphalakucadvayyai namaH ❘  
+oM lakshhyaromalataadhaarataasamunneyamadhyamaayai namaH ❘  
+oM stanabhaaradalanmadhyapaTTabandhavalitrayaayai namaH ❘  
+oM oM aruNaaruNakausumbhavastrabhaasvatkaTeetaTyai namaH ❘  
+oM ratnakinkiNikaaramyarashanaadaamabhooshhitaayai namaH ❘  
+oM kaameshagnyaatasaubhaagyamaardavorudvayaanvitaayai namaH ❘  
+oM maaNikyamukuTaakaarajaanudvayaviraajitaayai namaH ❘  
+40  
+oM indragopaparikshhiptasmaratooNaabhajanghikaayai namaH ❘  
+oM gooDhagoolphaayai namaH ❘  
+oM koorma pRRishhThajayishhNuprapadaanvitaayai namaH ❘  
+oM nakhadeedhitisanChannanamajjanatamoguNaayai namaH ❘  
+oM padadvayaprabhaajaalaparaakRRitasaroruhaayai namaH ❘  
+oM shinjaanamaNimanjeeramaNDitashreepadaambujaayai namaH ❘  
+oM maraaleemandagamanaayai namaH ❘  
+oM mahaalaavaNyashevadhaye namaH ❘  
+oM sarvaaruNaayai namaH ❘  
+oM anavadyaangyai namaH ❘  
+50  
+oM sarvaabharaNabhooshhitaayai namaH ❘  
+oM shivakaameshvaraankasthaayai namaH ❘  
+oM shivaayai namaH ❘  
+oM svaadheenavallabhaayai namaH ❘  
+oM sumerumadhyashRRingasthaayai namaH ❘  
+oM shreemannagaranaayikaayai namaH ❘  
+oM cintaamaNigRRihaantasthaayai namaH ❘  
+oM pancabrahmaasanasthitaayai namaH ❘  
+oM mahaapadmaaTaveesaMsthaayai namaH ❘  
+oM kadambavanavaasinyai namaH ❘  
+60  
+oM sudhaasaagaramadhyasthaayai namaH ❘  
+oM kaamaakshhyai namaH ❘  
+oM kaamadaayinyai namaH ❘  
+oM devarshhigaNasaMghaatastooyamaanaatmavaibhaayai namaH ❘  
+oM bhaNDaasuravadhodyuktashaktisenaasamanvitaayai namaH ❘  
+oM sampatkareesamaarooDhasiMduravrajasevitaayai namaH ❘  
+oM oM ashvaarooDhaadhishhThitaashvakoTikoTibhiraavRRitaayai namaH ❘  
+oM cakraraajarathaarooDhasarvaayudhaparishhkRRitaayai namaH ❘  
+oM geyacakrarathaarooDhamantriNeeparisevitaayai namaH ❘  
+oM kiricakrarathaarooDhadaNDanaathaapuraskRRitaayai namaH ❘  
+70  
+oM jvaalaamaalinikaakshhiptavahnipraakaaramadhyagaayai namaH ❘  
+oM bhaNDasainyavadhodyuktashaktivikramaharshhitaayai namaH ❘  
+oM nityaaparaakramaaTopanireekshhaNasamutsukaayai namaH ❘  
+oM bhaNDaputravadhodyuktabaalaavikramananditaayai namaH ❘  
+oM mantriNyambaaviracitavishhangavadhatoshhitaayai namaH ❘  
+oM vishukrapraaNaharaNavaaraaheeveeryananditaayai namaH ❘  
+oM kaameshvaramukhaalokakalpitashreegaNeshvaraayai namaH ❘  
+oM mahaagaNeshanirbhinnavighnayantrapraharshhitaayai namaH ❘  
+oM bhaNDaasurendranirmuktashastrapratyastravarshhiNyai namaH ❘  
+oM karaangulinakhotpannanaaraayaNadashaakRRityai namaH ❘  
+80  
+oM mahaapaashupataastraagninirdagdhaasurasainikaayai namaH ❘  
+oM kaameshvaraastranirdagdhasabhaaNDaasurashoonyakaayai namaH ❘  
+oM brahmopendramahendraadidevasaMstutavaibhavaayai namaH ❘  
+oM haranetraagnisaMdagdhakaamasaMjeevanaushhadhyai namaH ❘  
+oM shreemadvaagbhavakooTaikasvaroopamukhapankajaayai namaH ❘  
+oM kaNThaadhaH kaTiparyantamadhyakooTasvaroopiNyai namaH ❘  
+oM shaktikooTaikataapannakaTyadhobhaagadhaariNyai namaH ❘  
+oM oM moolamantraatmikaayai namaH ❘  
+oM moolakooTatrayakalebaraayai namaH ❘  
+oM kulaamRRitaikarasikaayai namaH ❘  
+90  
+oM kulasaMketapaalinyai namaH ❘  
+oM kulaanganaayai namaH ❘  
+oM kulaantaHsthaayai namaH ❘  
+oM kaulinyai namaH ❘  
+oM kulayoginyai namaH ❘  
+oM akulaayai namaH ❘  
+oM samayaantasthaayai namaH ❘  
+oM samayaacaaratatparaayai namaH ❘  
+oM moolaadhaaraikanilayaayai namaH ❘  
+oM brahmagranthivibhedinyai namaH ❘  
+100  
+oM maNipooraantaruditaayai namaH ❘  
+oM vishhNugranthivibhedinyai namaH ❘  
+oM aagnyaacakraantaraalasthaayai namaH ❘  
+oM rudragranthivibhedinyai namaH ❘  
+oM sahasraaraambujaarooDhaayai namaH ❘  
+oM sudhaasaaraabhivarshhiNyai namaH ❘  
+oM taTillataasamarucyai namaH ❘  
+oM shhaTcakroparisaMsthitaayai namaH ❘  
+oM mahaasaktyai namaH ❘  
+oM oM kuNDalinyai namaH ❘  
+110  
+oM bisatantutaneeyasyai namaH ❘  
+oM bhavaanyai namaH ❘  
+oM bhaavanaagamyaayai namaH ❘  
+oM bhavaaraNyakuThaarikaayai namaH ❘  
+oM bhadrapriyaayai namaH ❘  
+oM bhadramoortyai namaH ❘  
+oM bhaktasaubhaagyadaayinyai namaH ❘  
+oM bhaktipriyaayai namaH ❘  
+oM bhaktigamyaayai namaH ❘  
+oM bhaktivashyaayai namaH ❘  
+120  
+oM bhayaapahaayai namaH ❘  
+oM shaambhavyai namaH ❘  
+oM shaaradaaraadhyaayai namaH ❘  
+oM sharvaaNyai namaH ❘  
+oM sharmadaayinyai namaH ❘  
+oM shaaMkaryai namaH ❘  
+oM shreekaryai namaH ❘  
+oM saadhvyai namaH ❘  
+oM sharaccandranibhaananaayai namaH ❘  
+oM shaatodaryai namaH ❘  
+130  
+oM shaantimatyai namaH ❘  
+oM oM niraadhaaraayai namaH ❘  
+oM niranjanaayai namaH ❘  
+oM nirlepaayai namaH ❘  
+oM nirmalaayai namaH ❘  
+oM nityaayai namaH ❘  
+oM niraakaaraayai namaH ❘  
+oM niraakulaayai namaH ❘  
+oM nirguNaayai namaH ❘  
+oM nishhkalaayai namaH ❘  
+140  
+oM shaantaayai namaH ❘  
+oM nishhkaamaayai namaH ❘  
+oM nirupaplavaayai namaH ❘  
+oM nityamuktaayai namaH ❘  
+oM nirvikaaraayai namaH ❘  
+oM nishhprapancaayai namaH ❘  
+oM niraashrayaayai namaH ❘  
+oM nityashuddhaayai namaH ❘  
+oM nityabuddhaayai namaH ❘  
+oM niravadyaayai namaH ❘  
+150  
+oM nirantaraayai namaH ❘  
+oM nishhkaaraNaayai namaH ❘  
+oM nishhkalaMkaayai namaH ❘  
+oM oM nirupaadhaye namaH ❘  
+oM nireeshvaraayai namaH ❘  
+oM neeraagayai namaH ❘  
+oM raagamathanyai namaH ❘  
+oM nirmadaayai namaH ❘  
+oM madanaashinyai namaH ❘  
+oM nishcintaayai namaH ❘  
+160  
+oM nirahankaaraayai namaH ❘  
+oM nirmohaayai namaH ❘  
+oM mohanaashinyai namaH ❘  
+oM nirmamaayai namaH ❘  
+oM mamataahantryai namaH ❘  
+oM nishhpaapaayai namaH ❘  
+oM paapanaashinyai namaH ❘  
+oM nishhkrodhaayai namaH ❘  
+oM krodhashamanyai namaH ❘  
+oM nirlobhaayai namaH ❘  
+170  
+oM lobhanaashinyai namaH ❘  
+oM niHsaMshayaayai namaH ❘  
+oM saMshayaghnyai namaH ❘  
+oM nirbhavaayai namaH ❘  
+oM bhavanaashinyai namaH ❘  
+oM oM nirvikalpaayai namaH ❘  
+oM niraabaadhaayai namaH ❘  
+oM nirbhedaayai namaH ❘  
+oM bhedanaashinyai namaH ❘  
+oM nirnaashaayai namaH ❘  
+180  
+oM mRRityumathanyai namaH ❘  
+oM nishhkriyaayai namaH ❘  
+oM nishhparigrahaayai namaH ❘  
+oM nistulaayai namaH ❘  
+oM neelacikuraayai namaH ❘  
+oM nirapaayaayai namaH ❘  
+oM niratyayaayai namaH ❘  
+oM durlabhaayai namaH ❘  
+oM durgamaayai namaH ❘  
+oM durgaayai namaH ❘  
+190  
+oM duHkhahantryai namaH ❘  
+oM sukhapradaayai namaH ❘  
+oM dushhTadooraayai namaH ❘  
+oM duraacaarashamanyai namaH ❘  
+oM doshhavarjitaayai namaH ❘  
+oM sarvagnyaayai namaH ❘  
+oM saandrakaruNaayai namaH ❘  
+oM oM samaanaadhikavarjitaayai namaH ❘  
+oM sarvashaktimayyai namaH ❘  
+oM sarvamaMgalaayai namaH ❘  
+200  
+oM sadgatipradaayai namaH ❘  
+oM sarveshvayai namaH ❘  
+oM sarvamayyai namaH ❘  
+oM sarvamantrasvaroopiNyai namaH ❘  
+oM sarvayantraatmikaayai namaH ❘  
+oM sarvatantraroopaayai namaH ❘  
+oM manonmanyai namaH ❘  
+oM maaheshvaryai namaH ❘  
+oM mahaadevyai namaH ❘  
+oM mahaalakshhmyai namaH ❘  
+210  
+oM mRRiDapriyaayai namaH ❘  
+oM mahaaroopaayai namaH ❘  
+oM mahaapoojyaayai namaH ❘  
+oM mahaapaatakanaashinyai namaH ❘  
+oM mahaamaayaayai namaH ❘  
+oM mahaasatvaayai namaH ❘  
+oM mahaashaktyai namaH ❘  
+oM mahaaratyai namaH ❘  
+oM mahaabhogaayai namaH ❘  
+oM oM mahaishvaryaayai namaH ❘  
+220  
+oM mahaaveeryaayai namaH ❘  
+oM mahaabalaayai namaH ❘  
+oM mahaabuddhyai namaH ❘  
+oM mahaasiddhyai namaH ❘  
+oM mahaayogeshvareshvaryai namaH ❘  
+oM mahaatantraayai namaH ❘  
+oM mahaamantraayai namaH ❘  
+oM mahaayantraayai namaH ❘  
+oM mahaasanaayai namaH ❘  
+oM mahaayaagakramaaraadhyaayai namaH ❘  
+230  
+oM mahaabhairavapoojitaayai namaH ❘  
+oM maheshvaramahaakalpamahaa taaNDavasaakshhiNyai namaH ❘  
+oM mahaakaameshamahishhyai namaH ❘  
+oM mahaatripurasundaryai namaH ❘  
+oM catuHshhashhTyupacaaraaDhyaayai namaH ❘  
+oM catuHshhashhTikalaamayyai namaH ❘  
+oM mahaacatuHshhashhTikoTi yogineegaNasevitaayai namaH ❘  
+oM manuvidyaayai namaH ❘  
+oM candravidyaayai namaH ❘  
+oM oM candramaNDalamadhyagaayai namaH ❘  
+240  
+oM caaruroopaayai namaH ❘  
+oM caaruhaasaayai namaH ❘  
+oM caarucandrakalaadharaayai namaH ❘  
+oM caraacarajagannaathaayai namaH ❘  
+oM cakraraajaniketanaayai namaH ❘  
+oM paarvatyai namaH ❘  
+oM padmanayanaayai namaH ❘  
+oM padmaraagasamaprabhaayai namaH ❘  
+oM pancapretaasanaaseenaayai namaH ❘  
+oM pancabrahmasparoopiNyai namaH ❘  
+250  
+oM cinmayyai namaH ❘  
+oM paramaanandaayai namaH ❘  
+oM vignyaanaghanaroopiNyai namaH ❘  
+oM dhyaanadhyaatRRidhyeyaroopaayai namaH ❘  
+oM rdhmaadharmavivarjitaayai namaH ❘  
+oM vishvaroopaayai namaH ❘  
+oM jaagariNyai namaH ❘  
+oM svapatnyai namaH ❘  
+oM taijasaatmikaayai namaH ❘  
+oM suptaayai namaH ❘  
+260  
+oM praagnyaatmikaayai namaH ❘  
+oM oM turyaayai namaH ❘  
+oM sarvaavasthaavivarjitaayai namaH ❘  
+oM sRRishhThikartryai namaH ❘  
+oM brahmaroopaayai namaH ❘  
+oM goptryai namaH ❘  
+oM govindaroopiNyai namaH ❘  
+oM saMhaariNyai namaH ❘  
+oM rudraroopaayai namaH ❘  
+oM tirodhaanakaryai namaH ❘  
+270  
+oM eeshvaryai namaH ❘  
+oM sadaashivaayai namaH ❘  
+oM anugrahadaayai namaH ❘  
+oM paMcakRRityaparaayaNaayai namaH ❘  
+oM bhaanumaNDalamadhyasthaayai namaH ❘  
+oM bhairavyai namaH ❘  
+oM bhagamaalinyai namaH ❘  
+oM padmaasanaayai namaH ❘  
+oM bhagavatyai namaH ❘  
+oM padmanaabhasahodaryai namaH ❘  
+280  
+oM unmeshhanimishhotpannavipannabhuvanaavalyai namaH ❘  
+oM sahasrasheershhavadanaayai namaH ❘  
+oM oM sahasraakshhyai namaH ❘  
+oM sahasrapade namaH ❘  
+oM aabrahmakeeTajananyai namaH ❘  
+oM varNaashramavidhaayinyai namaH ❘  
+oM nijaagnyaaroopanigamaayai namaH ❘  
+oM puNyaapuNyaphalapradaayai namaH ❘  
+oM shrutiseemantasindooreekRRita paadaabjadhoolikaayai namaH ❘  
+oM sakalaagamasaMdohashuktisaMpuTamauktikaayai namaH ❘  
+290  
+oM purushhaarthapradaayai namaH ❘  
+oM poorNaayai namaH ❘  
+oM bhoginyai namaH ❘  
+oM bhuvaneshvaryai namaH ❘  
+oM ambikaayai namaH ❘  
+oM anaadinidhanaayai namaH ❘  
+oM haribrahmendrasevitaayai namaH ❘  
+oM naaraayaNyai namaH ❘  
+oM naadaroopaayai namaH ❘  
+oM naamaroopavivarjitaayai namaH ❘  
+300  
+oM hreeMkaaryai namaH ❘  
+oM hreematyai namaH ❘  
+oM oM hRRidyaayai namaH ❘  
+oM heyopaadeyavarjitaayai namaH ❘  
+oM raajaraajaarcitaayai namaH ❘  
+oM raagnyai namaH ❘  
+oM ramyaayai namaH ❘  
+oM raajeevalocanaayai namaH ❘  
+oM ranjanyai namaH ❘  
+oM ramaNyai namaH ❘  
+310  
+oM rasyaayai namaH ❘  
+oM raNatkinkiNimekhalaayai namaH ❘  
+oM ramaayai namaH ❘  
+oM raakenduvadanaayai namaH ❘  
+oM ratiroopaayai namaH ❘  
+oM ratipriyaayai namaH ❘  
+oM rakshhaakaryai namaH ❘  
+oM raakshhasaghnyai namaH ❘  
+oM raamaayai namaH ❘  
+oM ramaNalampaTaayai namaH ❘  
+320  
+oM kaamyaayai namaH ❘  
+oM kaamakalaaroopaayai namaH ❘  
+oM kadambakusumapriyaayai namaH ❘  
+oM kalyaaNyai namaH ❘  
+oM oM jagateekandaayai namaH ❘  
+oM karuNaarasasaagaraayai namaH ❘  
+oM kalaavatyai namaH ❘  
+oM kalaalaapaayai namaH ❘  
+oM kaantaayai namaH ❘  
+oM kaadambareepriyaayai namaH ❘  
+330  
+oM varadaayai namaH ❘  
+oM vaamanayanaayai namaH ❘  
+oM vaaruNeemadavihvalaayai namaH ❘  
+oM vishvaadhikaayai namaH ❘  
+oM vedavedyaayai namaH ❘  
+oM vindhyaacalanivaasinyai namaH ❘  
+oM vidhaatryai namaH ❘  
+oM vedajananyai namaH ❘  
+oM vishhNumaayaayai namaH ❘  
+oM vilaasinyai namaH ❘  
+340  
+oM kshhetrasvaroopaayai namaH ❘  
+oM kshhetreshyai namaH ❘  
+oM kshhetrakshhetragnyapaalinyai namaH ❘  
+oM kshhayavRRiddhivinirmuktaayai namaH ❘  
+oM kshhetrapaalasamarcitaayai namaH ❘  
+oM vijayaayai namaH ❘  
+oM oM vimalaayai namaH ❘  
+oM vandyaayai namaH ❘  
+oM vandaarujanavatsalaayai namaH ❘  
+oM vaagvaadinyai namaH ❘  
+350  
+oM vaamakeshyai namaH ❘  
+oM vahnimaNDalavaasinyai namaH ❘  
+oM bhaktimatkalpalatikaayai namaH ❘  
+oM pashupaashavimocinyai namaH ❘  
+oM saMhRRitaasheshhapaashhaNDaayai namaH ❘  
+oM sadaacaarapravartikaayai namaH ❘  
+oM taapatrayaagnisantaptasamaahlaadanacandrikaayai namaH ❘  
+oM taruNyai namaH ❘  
+oM taapasaaraadhyaayai namaH ❘  
+oM tanumadhyaayai namaH ❘  
+360  
+oM tamopahaayai namaH ❘  
+oM cityai namaH ❘  
+oM tatpadalakshhyaarthaayai namaH ❘  
+oM cidekarasaroopiNyai namaH ❘  
+oM svaatmaanandalaveebhoota-brahmaadyaanandasantatyai namaH ❘  
+oM paraayai namaH ❘  
+oM oM pratyak citeeroopaayai namaH ❘  
+oM pashyantyai namaH ❘  
+oM paradevataayai namaH ❘  
+oM madhyamaayai namaH ❘  
+370  
+oM vaikhareeroopaayai namaH ❘  
+oM bhaktamaanasahaMsikaayai namaH ❘  
+oM kaameshvarapraaNanaaDyai namaH ❘  
+oM kRRitagnyaayai namaH ❘  
+oM kaamapoojitaayai namaH ❘  
+oM shrRRiMgaararasasampoorNaayai namaH ❘  
+oM jayaayai namaH ❘  
+oM jaalandharasthitaayai namaH ❘  
+oM oDyaaNapeeThanilayaayai namaH ❘  
+oM bindumaNDalavaasinyai namaH ❘  
+380  
+oM rahoyaagakramaaraadhyaayai namaH ❘  
+oM rahastarpaNatarpitaayai namaH ❘  
+oM sadyaH prasaadinyai namaH ❘  
+oM vishvasaakshhiNyai namaH ❘  
+oM saakshhivarjitaayai namaH ❘  
+oM shhaDaMgadevataayuktaayai namaH ❘  
+oM shhaaDguNyaparipooritaayai namaH ❘  
+oM nityaklinnaayai namaH ❘  
+oM oM nirupamaayai namaH ❘  
+oM nirvaaNasukhadaayinyai namaH ❘  
+390  
+oM nityaashhoDashikaaroopaayai namaH ❘  
+oM shreekaNThaardhashareeriNyai namaH ❘  
+oM prabhaavatyai namaH ❘  
+oM prabhaaroopaayai namaH ❘  
+oM prasiddhaayai namaH ❘  
+oM parameshvaryai namaH ❘  
+oM moolaprakRRityai namaH ❘  
+oM avyaktaayai namaH ❘  
+oM vktaavyaktasvaroopiNyai namaH ❘  
+oM vyaapinyai namaH ❘  
+400  
+oM vividhaakaaraayai namaH ❘  
+oM vidyaavidyaasvaroopiNyai namaH ❘  
+oM mahaakaameshanayanakumudaahlaadakaumudyai namaH ❘  
+oM bhaktaahaardatamobhedabhaanumadbhaanusaMtatyai namaH ❘  
+oM shivadootyai namaH ❘  
+oM shivaaraadhyaayai namaH ❘  
+oM shivamoortyai namaH ❘  
+oM shivaMkaryai namaH ❘  
+oM oM shivapriyaayai namaH ❘  
+oM shivaparaayai namaH ❘  
+410  
+oM shishhTeshhTaayai namaH ❘  
+oM shishhTapoojitaayai namaH ❘  
+oM aprameyaayai namaH ❘  
+oM svaprakaashaayai namaH ❘  
+oM manovaacaamagocaraayai namaH ❘  
+oM cicChaktyai namaH ❘  
+oM cetanaaroopaayai namaH ❘  
+oM jaDashaktyai namaH ❘  
+oM jaDaatmikaayai namaH ❘  
+oM gaayatryai namaH ❘  
+420  
+oM vyaahRRityai namaH ❘  
+oM saMdhyaayai namaH ❘  
+oM dvijavRRindanishhevitaayai namaH ❘  
+oM tattvaasanaayai namaH ❘  
+oM tasmai namaH ❘  
+oM tubhyaM namaH ❘  
+oM ayyai namaH ❘  
+oM pancakoshaantarasthitaayai namaH ❘  
+oM niHseemamahimne namaH ❘  
+oM nityayauvanaayai namaH ❘  
+430  
+oM oM madashaalinyai namaH ❘  
+oM madaghoorNitaraktaakshhyai namaH ❘  
+oM madapaaTalagaNDabhuve namaH ❘  
+oM candanadravadigdhaangyai namaH ❘  
+oM caampeyakusumapriyaayai namaH ❘  
+oM kushalaayai namaH ❘  
+oM komalaakaaraayai namaH ❘  
+oM kurukullaayai namaH ❘  
+oM kuleshvaryai namaH ❘  
+oM kulakuNDaalayaayai namaH ❘  
+440  
+oM kaulamaargatatparasevitaayai namaH ❘  
+oM kumaaragaNanaathaambaayai namaH ❘  
+oM tushhTyai namaH ❘  
+oM pushhTyai namaH ❘  
+oM matyai namaH ❘  
+oM dhRRityai namaH ❘  
+oM shaantyai namaH ❘  
+oM svastimatyai namaH ❘  
+oM kaantyai namaH ❘  
+oM nandinyai namaH ❘  
+450  
+oM vighnanaashinyai namaH ❘  
+oM tejovatyai namaH ❘  
+oM oM trinayanaayai namaH ❘  
+oM lolaakshheekaamaroopiNyai namaH ❘  
+oM maalinyai namaH ❘  
+oM haMsinyai namaH ❘  
+oM maatre namaH ❘  
+oM malayaacalavaasinyai namaH ❘  
+oM sumukhyai namaH ❘  
+oM nalinyai namaH ❘  
+460  
+oM subhruve namaH ❘  
+oM shobhanaayai namaH ❘  
+oM suranaayikaayai namaH ❘  
+oM kaalakaNThyai namaH ❘  
+oM kaantimatyai namaH ❘  
+oM kshhobhiNyai namaH ❘  
+oM sookshhmaroopiNyai namaH ❘  
+oM vajreshvaryai namaH ❘  
+oM vaamadevyai namaH ❘  
+oM vayo.avasthaavivarjitaayai namaH ❘  
+470  
+oM siddheshvaryai namaH ❘  
+oM siddhavidyaayai namaH ❘  
+oM siddhamaatre namaH ❘  
+oM yashasvinyai namaH ❘  
+oM oM vishuddhicakranilayaayai namaH ❘  
+oM aaraktavarNaayai namaH ❘  
+oM trilocanaayai namaH ❘  
+oM khaTvaangaadipraharaNaayai namaH ❘  
+oM vadanaikasamanvitaayai namaH ❘  
+oM paayasaannapriyaayai namaH ❘  
+480  
+oM tvaksthaayai namaH ❘  
+oM pashulokabhayaMkaryai namaH ❘  
+oM amRRitaadimahaashaktisaMvRRitaayai namaH ❘  
+oM Daakineeshvaryai namaH ❘  
+oM anaahataabjanilayaayai namaH ❘  
+oM shyaamaabhaayai namaH ❘  
+oM vadanadvayaayai namaH ❘  
+oM daMshhTrojvalaayai namaH ❘  
+oM akshhamaalaadidharaayai namaH ❘  
+oM rudhirasaMsthitaayai namaH ❘  
+490  
+oM kaalaraatryaadishaktyaughavRRitaayai namaH ❘  
+oM snigdhaudanapriyaayai namaH ❘  
+oM mahaaveerendravaradaayai namaH ❘  
+oM raakiNyambaasvaroopiNyai namaH ❘  
+oM maNipooraabjanilayaayai namaH ❘  
+oM oM vadanatrayasaMyutaayai namaH ❘  
+oM vajraadhikaayudhopetaayai namaH ❘  
+oM DaamaryaadibhiraavRRitaayai namaH ❘  
+oM raktavarNaayai namaH ❘  
+oM maaMsanishhThaayai namaH ❘  
+500  
+501. guDaannapreetamaanasaayai namaH ❘  
+oM samastabhaktasukhadaayai namaH ❘  
+oM laakinyambaasvaroopiNyai namaH ❘  
+oM svaadhishhTaanaambujagataayai namaH ❘  
+oM caturvaktramanoharaayai namaH ❘  
+oM shoolaadyaayudhasampannaayai namaH ❘  
+oM peetavarNaayai namaH ❘  
+oM atigarvitaayai namaH ❘  
+oM medonishhThaayai namaH ❘  
+oM madhupreetaayai namaH ❘  
+510  
+oM bandinyaadisamanvitaayai namaH ❘  
+oM dadhyannaasaktahRRidayaayai namaH ❘  
+oM kaakineeroopadhaariNyai namaH ❘  
+oM moolaadhaaraambujaarooDhaayai namaH ❘  
+oM paMcavaktraayai namaH ❘  
+oM asthisaMsthitaayai namaH ❘  
+oM aMkushaadipraharaNaayai namaH ❘  
+oM oM varadaadi nishhevitaayai namaH ❘  
+oM mudgaudanaasaktacittaayai namaH ❘  
+oM saakinyambaasvaroopiNyai namaH ❘  
+520  
+oM aagnyaacakraabjanilaayai namaH ❘  
+oM shuklavarNaayai namaH ❘  
+oM shhaDaananaayai namaH ❘  
+oM majjaasaMsthaayai namaH ❘  
+oM haMsavateemukhyashaktisamanvitaayai namaH ❘  
+oM haridraannaikarasikaayai namaH ❘  
+oM haakineeroopadhaariNyai namaH ❘  
+oM sahasradalapadmasthaayai namaH ❘  
+oM sarvavarNopashobhitaayai namaH ❘  
+oM sarvaayudhadharaayai namaH ❘  
+530  
+oM shuklasaMsthitaayai namaH ❘  
+oM sarvatomukhyai namaH ❘  
+oM sarvaudanapreetacittaayai namaH ❘  
+oM yaakinyambaasvaroopiNyai namaH ❘  
+oM svaahaayai namaH ❘  
+oM svadhaayai namaH ❘  
+oM amatyai namaH ❘  
+oM medhaayai namaH ❘  
+oM oM shrutyai namaH ❘  
+oM smRRityai namaH ❘  
+540  
+oM anuttamaayai namaH ❘  
+oM puNyakeertyai namaH ❘  
+oM puNyalabhyaayai namaH ❘  
+oM puNyashravaNakeertanaayai namaH ❘  
+oM pulomajaarcitaayai namaH ❘  
+oM bandhamocanyai namaH ❘  
+oM barbaraalakaayai namaH ❘  
+oM vimarsharoopiNyai namaH ❘  
+oM vidyaayai namaH ❘  
+oM viyadaadijagatprasuve namaH ❘  
+550  
+oM sarva vyaadhiprashamanyai namaH ❘  
+oM sarva mRRityunivaariNyai namaH ❘  
+oM agragaNyaayai namaH ❘  
+oM acintyaroopaayai namaH ❘  
+oM kalikalmashhanaashinyai namaH ❘  
+oM kaatyaayanyai namaH ❘  
+oM kaalahantryai namaH ❘  
+oM kamalaakshhanishhevitaayai namaH ❘  
+oM taamboolapooritamukhyai namaH ❘  
+oM daaDimeekusumaprabhaayai namaH ❘  
+560  
+oM oM mRRigaakshhyai namaH ❘  
+oM mohinyai namaH ❘  
+oM mukhyaayai namaH ❘  
+oM mRRiDaanyai namaH ❘  
+oM mitraroopiNyai namaH ❘  
+oM nityatRRiptaayai namaH ❘  
+oM bhaktanidhaye namaH ❘  
+oM niyantryai namaH ❘  
+oM nikhileshvaryai namaH ❘  
+oM maitryaadivaasanaalabhyaayai namaH ❘  
+570  
+oM mahaapralayasaakshhiNyai namaH ❘  
+oM paraashaktyai namaH ❘  
+oM paraanishhThaayai namaH ❘  
+oM pragnyaanaghanaroopiNyai namaH ❘  
+oM maadhveepaanaalasaayai namaH ❘  
+oM mattaayai namaH ❘  
+oM maatRRikaavarNa roopiNyai namaH ❘  
+oM mahaakailaasanilayaayai namaH ❘  
+oM mRRiNaalamRRidudorlataayai namaH ❘  
+oM mahaneeyaayai namaH ❘  
+580  
+oM dayaamoortyai namaH ❘  
+oM mahaasaamraajyashaalinyai namaH ❘  
+oM oM aatmavidyaayai namaH ❘  
+oM mahaavidyaayai namaH ❘  
+oM shreevidyaayai namaH ❘  
+oM kaamasevitaayai namaH ❘  
+oM shreeshhoDashaakshhareevidyaayai namaH ❘  
+oM trikooTaayai namaH ❘  
+oM kaamakoTikaayai namaH ❘  
+oM kaTaakshhakiMkareebhootakamalaakoTisevitaayai namaH ❘  
+590  
+oM shiraHsthitaayai namaH ❘  
+oM candranibhaayai namaH ❘  
+oM bhaalasthaayai^^ai namaH ❘  
+oM indradhanuHprabhaayai namaH ❘  
+oM hRRidayasthaayai namaH ❘  
+oM raviprakhyaayai namaH ❘  
+oM trikoNaantaradeepikaayai namaH ❘  
+oM daakshhaayaNyai namaH ❘  
+oM daityahantryai namaH ❘  
+oM dakshhayagnyavinaashinyai namaH ❘  
+600  
+oM daraandolitadeerghaakshhyai namaH ❘  
+oM darahaasojjvalanmukhyai namaH ❘  
+oM guroomoortyai namaH ❘  
+oM oM guNanidhaye namaH ❘  
+oM gomaatre namaH ❘  
+oM guhajanmabhuve namaH ❘  
+oM deveshyai namaH ❘  
+oM daNDaneetisthaayai namaH ❘  
+oM daharaakaasharoopiNyai namaH ❘  
+oM pratipanmukhyaraakaantatithimaNDalapoojitaayai namaH ❘  
+610  
+oM kalaatmikaayai namaH ❘  
+oM kalaanaathaayai namaH ❘  
+oM kaavyaalaapavimodinyai namaH ❘  
+oM sacaamararamaavaaNeesavyadakshhiNasevitaayai namaH ❘  
+oM aadishaktayai namaH ❘  
+oM ameyaayai namaH ❘  
+oM aatmane namaH ❘  
+oM paramaayai namaH ❘  
+oM paavanaakRRitaye namaH ❘  
+oM anekakoTibrahmaaNDajananyai namaH ❘  
+620  
+oM divyavigrahaayai namaH ❘  
+oM kleeMkaaryai namaH ❘  
+oM kevalaayai namaH ❘  
+oM oM guhyaayai namaH ❘  
+oM kaivalyapadadaayinyai namaH ❘  
+oM tripuraayai namaH ❘  
+oM trijagadvandyaayai namaH ❘  
+oM trimoortyai namaH ❘  
+oM tridasheshvaryai namaH ❘  
+oM tryakshharyai namaH ❘  
+630  
+oM divyagandhaaDhyaayai namaH ❘  
+oM sindooratilakaancitaayai namaH ❘  
+oM umaayai namaH ❘  
+oM shailendratanayaayai namaH ❘  
+oM gauryai namaH ❘  
+oM gandharvasevitaayai namaH ❘  
+oM vishvagarbhaayai namaH ❘  
+oM svarNagarbhaayai namaH ❘  
+oM avaradaayai namaH ❘  
+oM vaagadheeshvaryai namaH ❘  
+640  
+oM dhyaanagamyaayai namaH ❘  
+oM aparicChedyaayai namaH ❘  
+oM gnyaanadaayai namaH ❘  
+oM gnyaanavigrahaayai namaH ❘  
+oM sarvavedaantasaMvedyaayai namaH ❘  
+oM oM satyaanandasvaroopiNyai namaH ❘  
+oM lopaamudraarcitaayai namaH ❘  
+oM leelaaklRRiptabrahmaaNDamaNDalaayai namaH ❘  
+oM adRRishyaayai namaH ❘  
+oM dRRishyarahitaayai namaH ❘  
+650  
+oM vignyaatryai namaH ❘  
+oM vedyavarjitaayai namaH ❘  
+oM yoginyai namaH ❘  
+oM yogadaayai namaH ❘  
+oM yogyaayai namaH ❘  
+oM yogaanandaayai namaH ❘  
+oM yugandharaayai namaH ❘  
+oM icChaashaktignyaanashaktikriyaashaktisvaroopiNyai namaH ❘  
+oM sarvaadhaaraayai namaH ❘  
+oM supratishhThaayai namaH ❘  
+660  
+oM sadasadroopadhaariNyai namaH ❘  
+oM ashhTamoortyai namaH ❘  
+oM ajaajaitryai namaH ❘  
+oM lokayaatraavidhaayinyai namaH ❘  
+oM ekaakinyai namaH ❘  
+oM oM bhoomaroopaayai namaH ❘  
+oM nidvaitaayai namaH ❘  
+oM dvaitavarjitaayai namaH ❘  
+oM annadaayai namaH ❘  
+oM vasudaayai namaH ❘  
+670  
+oM vRRiddhaayai namaH ❘  
+oM brahmaatmaikyasvaroopiNyai namaH ❘  
+oM bRRihatyai namaH ❘  
+oM braahmaNyai namaH ❘  
+oM braahmayai namaH ❘  
+oM brahmaanandaayai namaH ❘  
+oM balipriyaayai namaH ❘  
+oM bhaashhaaroopaayai namaH ❘  
+oM bRRihatsenaayai namaH ❘  
+oM bhaavaabhaavavirjitaayai namaH ❘  
+680  
+oM sukhaaraadhyaayai namaH ❘  
+oM shubhakaryai namaH ❘  
+oM shobhanaasulabhaagatyai namaH ❘  
+oM raajaraajeshvaryai namaH ❘  
+oM raajyadaayinyai namaH ❘  
+oM raajyavallabhaayai namaH ❘  
+oM raajatkRRipaayai namaH ❘  
+oM oM raajapeeThaniveshitanijaashritaayai namaH ❘  
+oM raajyalakshhmyai namaH ❘  
+oM koshanaathaayai namaH ❘  
+690  
+oM caturaMgabaleshvaryai namaH ❘  
+oM saamraajyadaayinyai namaH ❘  
+oM satyasandhaayai namaH ❘  
+oM saagaramekhalaayai namaH ❘  
+oM deekshhitaayai namaH ❘  
+oM daityashamanyai namaH ❘  
+oM sarvalokavaMshakaryai namaH ❘  
+oM sarvaarthadaatryai namaH ❘  
+oM saavitryai namaH ❘  
+oM saccidaanandaroopiNyai namaH ❘  
+700  
+oM deshakaalaaparicChinnaayai namaH ❘  
+oM sarvagaayai namaH ❘  
+oM sarvamohinyai namaH ❘  
+oM sarasvatyai namaH ❘  
+oM shaastramayyai namaH ❘  
+oM guhaambaayai namaH ❘  
+oM guhyaroopiNyai namaH ❘  
+oM sarvopaadhivinirmuktaayai namaH ❘  
+oM oM sadaashivapativrataayai namaH ❘  
+oM sampradaayeshvaryai namaH ❘  
+710  
+oM saadhune namaH ❘  
+oM yai namaH ❘  
+oM guroomaNDalaroopiNyai namaH ❘  
+oM kulotteerNaayai namaH ❘  
+oM bhagaaraadhyaayai namaH ❘  
+oM maayaayai namaH ❘  
+oM madhumatyai namaH ❘  
+oM mahyai namaH ❘  
+oM gaNaambaayai namaH ❘  
+oM guhyakaaraadhyaayai namaH ❘  
+720  
+oM komalaangyai namaH ❘  
+oM gurupriyaayai namaH ❘  
+oM svatantraayai namaH ❘  
+oM sarvatantreshyai namaH ❘  
+oM dakshhiNaamoortiroopiNyai namaH ❘  
+oM sanakaadisamaaraadhyaayai namaH ❘  
+oM shivagnyaanapradaayinyai namaH ❘  
+oM citkalaayai namaH ❘  
+oM aanandakalikaayai namaH ❘  
+oM premaroopaayai namaH ❘  
+730  
+oM oM priyaMkaryai namaH ❘  
+oM naamapaaraayaNapreetaayai namaH ❘  
+oM nandividyaayai namaH ❘  
+oM naTeshvaryai namaH ❘  
+oM mithyaajagadadhishhThaanaayai namaH ❘  
+oM muktidaayai namaH ❘  
+oM muktiroopiNyai namaH ❘  
+oM laasyapriyaayai namaH ❘  
+oM layakaryai namaH ❘  
+oM lajjaayai namaH ❘  
+740  
+oM rambhaadivanditaayai namaH ❘  
+oM bhavadaavasudhaavRRishhTyai namaH ❘  
+oM paapaaraNyadavaanalaayai namaH ❘  
+oM daurbhaagyatoolavaatoolaayai namaH ❘  
+oM jaraadhvaantaraviprabhaayai namaH ❘  
+oM bhaagyaabdhicandrikaayai namaH ❘  
+oM bhaktacittakekighanaaghanaayai namaH ❘  
+oM rogaparvatadambholaye namaH ❘  
+oM mRRityudaarukuThaarikaayai namaH ❘  
+oM maheshvaryai namaH ❘  
+750  
+oM mahaakaalyai namaH ❘  
+oM mahaagraasaayai namaH ❘  
+oM mahaashanaayai namaH ❘  
+oM aparNaayai namaH ❘  
+oM oM caNDikaayai namaH ❘  
+oM caNDamuNDaasuranishhoodinyai namaH ❘  
+oM kshharaakshharaatmikaayai namaH ❘  
+oM sarvalokeshyai namaH ❘  
+oM vishvadhaariNyai namaH ❘  
+oM trivargadaatryai namaH ❘  
+760  
+oM subhagaayai namaH ❘  
+oM tryambakaayai namaH ❘  
+oM triguNaatmikaayai namaH ❘  
+oM svargaapavargadaayai namaH ❘  
+oM shuddhaayai namaH ❘  
+oM japaapushhpanibhaakRRitaye namaH ❘  
+oM ojovatyai namaH ❘  
+oM dyutidharaayai namaH ❘  
+oM yagnyaroopaayai namaH ❘  
+oM priyavrataayai namaH ❘  
+770  
+oM duraaraadhyaayai namaH ❘  
+oM duraadharshhaayai namaH ❘  
+oM paaTaleekusumapriyaayai namaH ❘  
+oM mahatyai namaH ❘  
+oM merunilayaayai namaH ❘  
+oM mandaarakusumapriyaayai namaH ❘  
+oM oM veeraaraadhyaayai namaH ❘  
+oM viraaDroopaayai namaH ❘  
+oM virajase namaH ❘  
+oM vishvatomukhyai namaH ❘  
+780  
+oM pratyagroopaayai namaH ❘  
+oM paraakaashaayai namaH ❘  
+oM praaNadaayai namaH ❘  
+oM praaNaroopiNyai namaH ❘  
+oM maartaaNDabhairavaaraadhyaayai namaH ❘  
+oM mantriNeenyastaraajyadhure namaH ❘  
+oM tripureshyai namaH ❘  
+oM jayatsenaayai namaH ❘  
+oM nistraiguNyaayai namaH ❘  
+oM paraaparaayai namaH ❘  
+790  
+oM satyagnyaanaanandaroopaayai namaH ❘  
+oM saamarasyaparaayaNaayai namaH ❘  
+oM kapardinyai namaH ❘  
+oM kalaamaalaayai namaH ❘  
+oM kaamadughe namaH ❘  
+oM kaamaroopiNyai namaH ❘  
+oM kalaanidhaye namaH ❘  
+oM kaavyakalaayai namaH ❘  
+oM oM rasagnyaayai namaH ❘  
+oM rasashevadhaye namaH ❘  
+800  
+oM pushhTaayai namaH ❘  
+oM puraatanaayai namaH ❘  
+oM poojyaayai namaH ❘  
+oM pushhkaraayai namaH ❘  
+oM pushhkarekshhaNaayai namaH ❘  
+oM parasmai jyotishhe namaH ❘  
+oM parasmai dhaamne namaH ❘  
+oM paramaaNave namaH ❘  
+oM paraatparaayai namaH ❘  
+oM paashahastaayai namaH ❘  
+810  
+oM paashahantryai namaH ❘  
+oM paramantravibhedinyai namaH ❘  
+oM moortaayai namaH ❘  
+oM amoortaayai namaH ❘  
+oM anityatRRiptaayai namaH ❘  
+oM munimaanasahaMsikaayai namaH ❘  
+oM satyavrataayai namaH ❘  
+oM satyaroopaayai namaH ❘  
+oM sarvaantaryaamiNyai namaH ❘  
+oM satyai namaH ❘  
+820  
+oM oM  brahmaaNyai namaH ❘  
+oM brahmaNe namaH ❘  
+oM jananyai namaH ❘  
+oM bahuroopaayai namaH ❘  
+oM budhaarcitaayai namaH ❘  
+oM prasavitryai namaH ❘  
+oM pracaNDaayai namaH ❘  
+oM aagnyaayai namaH ❘  
+oM pratishhThaayai namaH ❘  
+oM prakaTaakRRitaye namaH ❘  
+830  
+oM praaNeshvaryai namaH ❘  
+oM praaNadaatryai namaH ❘  
+oM pancaashatpeeTharoopiNyai namaH ❘  
+oM vishrRRinkhalaayai namaH ❘  
+oM viviktasthaayai namaH ❘  
+oM veeramaatre namaH ❘  
+oM viyatprasuve namaH ❘  
+oM mukundaayai namaH ❘  
+oM muktinilayaayai namaH ❘  
+oM moolavigraharoopiNyai namaH ❘  
+840  
+oM bhaavagnyaayai namaH ❘  
+oM bhavarogadhnyai namaH ❘  
+oM oM bhavacakrapravartinyai namaH ❘  
+oM ChandaHsaaraayai namaH ❘  
+oM shaastrasaaraayai namaH ❘  
+oM maMtrasaaraayai namaH ❘  
+oM talodaryai namaH ❘  
+oM udaarakeertaye namaH ❘  
+oM uddaamavaibhavaayai namaH ❘  
+oM varNaroopiNyai namaH ❘  
+850  
+oM janmamRRityujaraataptajana  
+vishraantidaayinyai namaH ❘  
+oM sarvopanishhadud ghushhTaayai namaH ❘  
+oM shaantyateetakalaatmikaayai namaH ❘  
+oM gambheeraayai namaH ❘  
+oM gaganaantaHsthaayai namaH ❘  
+oM garvitaayai namaH ❘  
+oM gaanalolupaayai namaH ❘  
+oM kalpanaarahitaayai namaH ❘  
+oM kaashhThaayai namaH ❘  
+oM akaantaayai namaH ❘  
+860  
+oM kaantaardhavigrahaayai namaH ❘  
+oM kaaryakaaraNanirmuktaayai namaH ❘  
+oM kaamakelitarangitaayai namaH ❘  
+oM kanatkanakataaTaMkaayai namaH ❘  
+oM leelaavigrahadhaariNyai namaH ❘  
+oM ajaayai namaH ❘  
+oM kshhayavinirmuktaayai namaH ❘  
+oM mugdhaayai namaH ❘  
+oM kshhipraprasaadinyai namaH ❘  
+oM antarmukhasamaaraadhyaayai namaH ❘  
+870  
+oM bahirmukhasudurlabhaayai namaH ❘  
+oM trayyai namaH ❘  
+oM trivarganilayaayai namaH ❘  
+oM tristhaayai namaH ❘  
+oM tripuramaalinyai namaH ❘  
+oM niraamayaayai namaH ❘  
+oM niraalambaayai namaH ❘  
+oM svaatmaaraamaayai namaH ❘  
+oM sudhaasRRityai namaH ❘  
+oM saMsaarapankanirmagna  
+samuddharaNapaNDitaayai namaH ❘  
+880  
+oM yagnyapriyaayai namaH ❘  
+oM yagnyakartryai namaH ❘  
+oM yajamaanasvaroopiNyai namaH ❘  
+oM dharmaadhaaraayai namaH ❘  
+oM oM dhanaadhyakshhaayai namaH ❘  
+oM dhanadhaanyavivardhinyai namaH ❘  
+oM viprapriyaayai namaH ❘  
+oM vipraroopaayai namaH ❘  
+oM vishvabhramaNakaariNyai namaH ❘  
+oM vishvagraasaayai namaH ❘  
+890  
+oM vidrumaabhaayai namaH ❘  
+oM vaishhNavyai namaH ❘  
+oM vishhNuroopiNyai namaH ❘  
+oM ayonyai namaH var ayonaye  
+oM yoninilayaayai namaH ❘  
+oM kooTasthaayai namaH ❘  
+oM kularoopiNyai namaH ❘  
+oM veeragoshhTheepriyaayai namaH ❘  
+oM veeraayai namaH ❘  
+oM naishhkarmyaayai namaH ❘  
+900  
+oM naadaroopiNyai namaH ❘  
+oM vignyaanakalanaayai namaH ❘  
+oM kalyaayai namaH ❘  
+oM vidagdhaayai namaH ❘  
+oM baindavaasanaayai namaH ❘  
+oM tatvaadhikaayai namaH ❘  
+oM oM tatvamayyai namaH ❘  
+oM tatvamarthasvaroopiNyai namaH ❘  
+oM saamagaanapriyaayai namaH ❘  
+oM saumyaayai namaH ❘  
+910  
+oM sadaashivakuTumbinyai namaH ❘  
+oM savyaapasavyamaargasthaayai namaH ❘  
+oM sarvaapadvinivaariNyai namaH ❘  
+oM svasthaayai namaH ❘  
+oM svabhaavamadhuraayai namaH ❘  
+oM dheeraayai namaH ❘  
+oM dheerasamarcitaayai namaH ❘  
+oM caitanyaarghyasamaaraadhyaayai namaH ❘  
+oM caitanyakusumapriyaayai namaH ❘  
+oM sadoditaayai namaH ❘  
+920  
+oM sadaatushhThaayai namaH ❘  
+oM taruNaadityapaaTalaayai namaH ❘  
+oM dakshhiNaadakshhiNaaraadhyaayai namaH ❘  
+oM darasmeramukhaambujaayai namaH ❘  
+oM kaulineekevalaayai namaH ❘  
+oM anardhya kaivalyapadadaayinyai namaH ❘  
+oM stotrapriyaayai namaH ❘  
+oM stutimatyai namaH ❘  
+oM oM shrutisaMstutavaibhavaayai namaH ❘  
+oM manasvinyai namaH ❘  
+930  
+oM maanavatyai namaH ❘  
+oM maheshyai namaH ❘  
+oM maMgalaakRRitye namaH ❘  
+oM vishvamaatre namaH ❘  
+oM jagaddhaatryai namaH ❘  
+oM vishaalaakshhyai namaH ❘  
+oM viraagiNyai namaH ❘  
+oM pragalbhaayai namaH ❘  
+oM paramodaaraayai namaH ❘  
+oM paraamodaayai namaH ❘  
+940  
+oM manomayyai namaH ❘  
+oM vyomakeshyai namaH ❘  
+oM vimaanasthaayai namaH ❘  
+oM vajriNyai namaH ❘  
+oM vaamakeshvaryai namaH ❘  
+oM pancayagnyapriyaayai namaH ❘  
+oM pancapretamancaadhishaayinyai namaH ❘  
+oM pancamyai namaH ❘  
+oM pancabhooteshyai namaH ❘  
+oM pancasankhyopacaariNyai namaH ❘  
+950  
+oM oM shaashvatyai namaH ❘  
+oM shaashvataishvaryaayai namaH ❘  
+oM sharmadaayai namaH ❘  
+oM shambhumohinyai namaH ❘  
+oM dharaayai namaH ❘  
+oM dharasutaayai namaH ❘  
+oM dhanyaayai namaH ❘  
+oM dharmiNyai namaH ❘  
+oM dharmavardhinyai namaH ❘  
+oM lokaateetaayai namaH ❘  
+960  
+oM guNaateetaayai namaH ❘  
+oM sarvaateetaayai namaH ❘  
+oM shaamaatmikaayai namaH ❘  
+oM bandhookakusumaprakhyaayai namaH ❘  
+oM baalaayai namaH ❘  
+oM leelaavinodinyai namaH ❘  
+oM sumaMgalyai namaH ❘  
+oM sukhakaryai namaH ❘  
+oM suveshhaaDhyaayai namaH ❘  
+oM suvaasinyai namaH ❘  
+970  
+oM suvaasinyarcanapreetaayai namaH ❘  
+oM aashobhanaayai namaH ❘  
+oM oM shuddhamaanasaayai nama  
+oM bindutarpaNasantushhTaayai namaH ❘  
+oM poorvajaayai namaH ❘  
+oM tripuraambikaayai namaH ❘  
+oM dashamudraasamaaraadhyaayai namaH ❘  
+oM tripuraashreevashankaryai namaH ❘  
+oM gnyaanamudraayai namaH ❘  
+oM gnyaanagamyaayai namaH ❘  
+980  
+oM gnyaanagnyeyasvaroopiNyai namaH ❘  
+oM yonimudraayai namaH ❘  
+oM trikhaNDeshyai namaH ❘  
+oM triguNaayai namaH ❘  
+oM ambaayai namaH ❘  
+oM trikoNagaayai namaH ❘  
+oM anaghaayai namaH ❘  
+oM adbhutacaaritraayai namaH ❘  
+oM vaanChitaarthapradaayinyai namaH ❘  
+oM abhyaasaatishayagnyaataayai namaH ❘  
+990  
+oM shhaDadhvaateetaroopiNyai namaH ❘  
+oM avyaajakaruNaamoortaye namaH ❘  
+oM agnyaanadhvaantadeepikaayai namaH ❘  
+oM aabaalagopaviditaayai namaH ❘  
+oM oM sarvaanullanghyashaasanaayai namaH ❘  
+oM shreecakraraajanilayaayai namaH ❘  
+oM shreemattripurasundaryai namaH ❘  
+oM oM shreeshivaayai namaH ❘  
+oM shivashaktyaikyaroopiNyai namaH ❘  
+oM lalitaambikaayai namaH ❘  
+1000  
+
+‖oM tatsat brahmaarpaNamastu ‖
+
+
+‖iti shreelalitasahasranaamaavaliH sampoorNaa ‖
+

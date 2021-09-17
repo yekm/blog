@@ -463,3 +463,83 @@ bodha- the true knowledge, and bless with instant liberation from the shackles o
 కామాదిసర్ప వ్రజగారుడాభ్యాం వివేకవైరాగ్య నిధిప్రదాభ్యాం ❘  
 బోధప్రదాభ్యాం దృతమోక్షదాభ్యాం నమో నమః శ్రీగురుపాదుకాభ్యామ్ ‖ 9 ‖  
 
+### English
+
+#### guru pādukā stotram
+
+anantasaṃsāra samudratāra naukāyitābhyāṃ gurubhaktidābhyām ❘  
+vairāgyasāmrājyadapūjanābhyāṃ namo namaḥ śrīgurupādukābhyām 
+‖ 1 ‖
+
+kavitvavārāśiniśākarābhyāṃ daurbhāgyadāvāṃ budamālikābhyām ❘  
+dūrikṛtānamra vipattatibhyāṃ namo namaḥ śrīgurupādukābhyām 
+‖ 2 ‖
+
+natā yayoḥ śrīpatitāṃ samīyuḥ kadācidapyāśu daridravaryāḥ ❘  
+mūkāśrca vācaspatitāṃ hi tābhyāṃ namo namaḥ śrīgurupādukābhyām 
+‖ 3 ‖
+
+nālīkanīkāśa padāhṛtābhyāṃ nānāvimohādi nivārikābhyāṃ ❘  
+namajjanābhīśhṭatatipradābhyāṃ namo namaḥ śrīgurupādukābhyām 
+‖ 4 ‖
+
+nṛpāli maulivrajaratnakānti saridvirājat jhaśhakanyakābhyāṃ ❘  
+nṛpatvadābhyāṃ natalokapaṅkate: namo namaḥ śrīgurupādukābhyām 
+‖ 5 ‖
+
+pāpāndhakārārka paramparābhyāṃ tāpatrayāhīndra khageśrvarābhyāṃ ❘  
+jāḍyābdhi saṃśośhaṇa vāḍavābhyāṃ namo namaḥ śrīgurupādukābhyām 
+‖ 6 ‖
+
+śamādiśhaṭka pradavaibhavābhyāṃ samādhidāna vratadīkśhitābhyāṃ ❘  
+ramādhavāndhristhirabhaktidābhyāṃ namo namaḥ śrīgurupādukābhyām 
+‖ 7 ‖
+
+svārcāparāṇāṃ akhileśhṭadābhyāṃ svāhāsahāyākśhadhurandharābhyāṃ ❘  
+svāntācChabhāvapradapūjanābhyāṃ namo namaḥ śrīgurupādukābhyām 
+‖ 8 ‖
+
+kāmādisarpa vrajagāruḍābhyāṃ vivekavairāgya nidhipradābhyāṃ ❘  
+bodhapradābhyāṃ dṛtamokśhadābhyāṃ namo namaḥ śrīgurupādukābhyām 
+‖ 9 ‖
+
+### PlainEnglish
+
+#### guru paadukaa stotram
+
+anantasaMsaara samudrataara naukaayitaabhyaaM gurubhaktidaabhyaam ❘  
+vairaagyasaamraajyadapoojanaabhyaaM namo namaH shreegurupaadukaabhyaam 
+‖ 1 ‖
+
+kavitvavaaraashinishaakaraabhyaaM daurbhaagyadaavaaM budamaalikaabhyaam ❘  
+doorikRRitaanamra vipattatibhyaaM namo namaH shreegurupaadukaabhyaam 
+‖ 2 ‖
+
+nataa yayoH shreepatitaaM sameeyuH kadaacidapyaashu daridravaryaaH ❘  
+mookaashrca vaacaspatitaaM hi taabhyaaM namo namaH shreegurupaadukaabhyaam 
+‖ 3 ‖
+
+naaleekaneekaasha padaahRRitaabhyaaM naanaavimohaadi nivaarikaabhyaaM ❘  
+namajjanaabheeshhTatatipradaabhyaaM namo namaH shreegurupaadukaabhyaam 
+‖ 4 ‖
+
+nRRipaali maulivrajaratnakaanti saridviraajat jhashhakanyakaabhyaaM ❘  
+nRRipatvadaabhyaaM natalokapankate: namo namaH shreegurupaadukaabhyaam 
+‖ 5 ‖
+
+paapaandhakaaraarka paramparaabhyaaM taapatrayaaheendra khageshrvaraabhyaaM ❘  
+jaaDyaabdhi saMshoshhaNa vaaDavaabhyaaM namo namaH shreegurupaadukaabhyaam 
+‖ 6 ‖
+
+shamaadishhaTka pradavaibhavaabhyaaM samaadhidaana vratadeekshhitaabhyaaM ❘  
+ramaadhavaandhristhirabhaktidaabhyaaM namo namaH shreegurupaadukaabhyaam 
+‖ 7 ‖
+
+svaarcaaparaaNaaM akhileshhTadaabhyaaM svaahaasahaayaakshhadhurandharaabhyaaM ❘  
+svaantaacChabhaavapradapoojanaabhyaaM namo namaH shreegurupaadukaabhyaam 
+‖ 8 ‖
+
+kaamaadisarpa vrajagaaruDaabhyaaM vivekavairaagya nidhipradaabhyaaM ❘  
+bodhapradaabhyaaM dRRitamokshhadaabhyaaM namo namaH shreegurupaadukaabhyaam 
+‖ 9 ‖
+

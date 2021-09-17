@@ -237,3 +237,37 @@ paThetsarvabhayaanmukto bhavishhyati na saMshayaH
 నామావళీమిమాయాస్తూ దుర్గయా మమ మానవః  
 పఠేత్సర్వభయాన్ముక్తో భవిష్యతి న సంశయః  
 
+### English
+
+#### devī mahātmyam dvātriśannāmāvaḻi
+
+durgā durgārti śamanī durgāpadvinivāriṇī❘  
+durgāmacChedinī durgasādhinī durganāśinī   
+oṃ durgatoddhāriṇī durganihantrī durgamāpahā  
+durgamaGYānadā durga daityalokadavānalā  
+durgamādurgamālokā durgamātmasvarūpiṇī  
+durgamārgapradā durgamavidyā durgamāśritā  
+durgamaGYānasaṃsthānā durgamadhyānabhāsinī  
+durgamohā durgamagā durgamārthasvarūpiṇī  
+durgamāsurasaṃhantrī durgamāyudhadhāriṇī   
+durgamāṅgī durgamātā durgamyā durgameśvarī  
+durgabhīmā durgabhāmā durlabhā durgadhāriṇī  
+nāmāvaḻīmimāyāstū durgayā mama mānavaḥ  
+paṭhetsarvabhayānmukto bhaviśhyati na saṃśayaḥ  
+### PlainEnglish
+
+#### devee mahaatmyam dvaatrishannaamaavaLi
+
+durgaa durgaarti shamanee durgaapadvinivaariNee❘  
+durgaamacChedinee durgasaadhinee durganaashinee   
+oM durgatoddhaariNee durganihantree durgamaapahaa  
+durgamagnyaanadaa durga daityalokadavaanalaa  
+durgamaadurgamaalokaa durgamaatmasvaroopiNee  
+durgamaargapradaa durgamavidyaa durgamaashritaa  
+durgamagnyaanasaMsthaanaa durgamadhyaanabhaasinee  
+durgamohaa durgamagaa durgamaarthasvaroopiNee  
+durgamaasurasaMhantree durgamaayudhadhaariNee   
+durgamaaMgee durgamaataa durgamyaa durgameshvaree  
+durgabheemaa durgabhaamaa durlabhaa durgadhaariNee  
+naamaavaLeemimaayaastoo durgayaa mama maanavaH  
+paThetsarvabhayaanmukto bhavishhyati na saMshayaH  

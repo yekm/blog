@@ -289,3 +289,47 @@ mamm.ella kaalamu neleTi yiMTidaivamu ‖
 బల్లిదుడై వేంకటాద్రి పైనున్న యాతడి  
 మమ్మెల్ల కాలము నేలేటి యింటిదైవము ‖  
 
+### English
+
+#### annamayya kīrtana eṇḍa gāni nīḍa gāni
+
+eṇḍagāni nīḍagāni yemainagāni   
+koṇḍala rāyaḍe mākuladaivamu ‖
+
+telugāni pāmugāni devapaṭṭayinagāni   
+gāligāni dhūḻigāni kāniyemaina ❘  
+kālakūṭaviśhamainā grakkuna miṅgina nāṭi-   
+nīlavarṇuḍemā nijadaivamu ‖
+
+cīmagāni domagāni celadi yemainagāni   
+gāmugāni nāmugāni kāniyemaina ❘  
+pāmulaninniṭi mriṅge balutejipai nekku   
+dhūmaketuvemo doradaivamu ‖
+
+pilligāni nalligāni pinna yelukaina gāni   
+kallagani nalligāni kāniyemaina ❘  
+balliduḍai veṅkaṭādri painunna yātaḍi   
+mammella kālamu neleṭi yiṇṭidaivamu ‖
+
+### PlainEnglish
+
+#### annamayya keertana .eMDa gaani neeDa gaani
+
+.eMDagaani neeDagaani yemainagaani   
+k.oMDala raayaD.e maakuladaivamu ‖
+
+telugaani paamugaani devapaTTayinagaani   
+gaaligaani dhooLigaani kaaniyemaina ❘  
+kaalakooTavishhamainaa grakkuna miMgina naaTi-   
+neelavarNuDemaa nijadaivamu ‖
+
+ceemagaani domagaani c.eladi yemainagaani   
+gaamugaani naamugaani kaaniyemaina ❘  
+paamulaninniTi mriMg.e balutejipai n.ekku   
+dhoomaketuvemo d.oradaivamu ‖
+
+pilligaani nalligaani pinna y.elukaina gaani   
+kallagani nalligaani kaaniyemaina ❘  
+balliduDai veMkaTaadri painunna yaataDi   
+mamm.ella kaalamu neleTi yiMTidaivamu ‖
+

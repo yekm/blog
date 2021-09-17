@@ -302,3 +302,47 @@ v.oluku chaMchalamu l.oddanave ‖
 వొలుకు చంచలము లొద్దనవే ‖  
 
 
+### English
+
+#### annamayya kīrtana nagavulu nijamani
+
+nagavulu nijamani nammedā ❘  
+voginaḍiyāsalu voddanave ‖
+
+tolliṭi karmamu dontala nuṇḍaga ❘  
+chellaboyika jesedā ❘  
+yella lokamulu yeleṭi devuḍa ❘  
+volla nollanika noddanave ‖
+
+poyina janmamu porugulanuṇḍaga ❘  
+chīyanaka yindu jelagedā ❘  
+veyināmamula vennuḍamāyalu ❘  
+o yayya yiṅka noddanave ‖
+
+nali nīnāmamu nālikanuṇḍaga ❘  
+talakoni yitaramu daḍavedā ❘  
+balu śrī veṅkaṭapati ninnugolichi ❘  
+voluku chañchalamu loddanave ‖
+
+### PlainEnglish
+
+#### annamayya keertana nagavulu nijamani
+
+nagavulu nijamani nammedaa ❘  
+v.oginaDiyaasalu v.oddanave ‖
+
+t.olliTi karmamu d.oMtala nuMDaga ❘  
+ch.ellaboyika jesedaa ❘  
+y.ella lokamulu yeleTi devuDa ❘  
+v.olla n.ollanika n.oddanave ‖
+
+poyina janmamu p.orugulanuMDaga ❘  
+cheeyanaka yiMdu j.elagedaa ❘  
+veyinaamamula v.ennuDamaayalu ❘  
+o yayya yiMka n.oddanave ‖
+
+nali neenaamamu naalikanuMDaga ❘  
+talak.oni yitaramu daDavedaa ❘  
+balu shree veMkaTapati ninnug.olichi ❘  
+v.oluku chaMchalamu l.oddanave ‖
+

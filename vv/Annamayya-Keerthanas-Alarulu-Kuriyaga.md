@@ -315,3 +315,49 @@ aMdapu tirupula nalamelumaMga ‖
 కందువ తిరువెంకటపతి మెచ్చగ  
 అందపు తిరుపుల నలమేలుమంగ ‖  
 
+### English
+
+#### annamayya kīrtana alarulu kuriyaga
+
+rāgaṃ: śaṅkarābharaṇaṃ  
+alarulu guriyaga nāḍenade ❘  
+alakala gulukula nalamelumaṅga ‖
+
+araviri sobagula nativalu meccaga   
+ara tera maruguna nāḍe nade ❘  
+varusaga pūrvadu vāḻapu tirupula   
+hari garagimpucu nalamelumaṅga ‖
+
+maṭṭapu malapula maṭṭelakelapula   
+taṭṭeḍi naḍapula dāṭenade ❘  
+peṭṭina vajrapu peṇḍepu daḻukulu   
+aṭṭiṭṭu cimmucu nalamelumaṅga ‖
+
+cindula pāṭala śiripolayāṭala   
+andela mrotala nāḍe nade ❘  
+kanduva tiruveṅkaṭapati meccaga   
+andapu tirupula nalamelumaṅga ‖
+
+### PlainEnglish
+
+#### annamayya keertana alarulu kuriyaga
+
+raagaM: shaMkaraabharaNaM  
+alarulu guriyaga naaD.enade ❘  
+alakala gulukula nalamelumaMga ‖
+
+araviri s.obagula nativalu m.eccaga   
+ara t.era maruguna naaD.e nade ❘  
+varusaga poorvadu vaaLapu tirupula   
+hari garagiMpucu nalamelumaMga ‖
+
+maTTapu malapula maTT.elak.elapula   
+taTT.eDi naDapula daaT.enade ❘  
+p.eTTina vajrapu p.eMD.epu daLukulu   
+aTTiTTu cimmucu nalamelumaMga ‖
+
+ciMdula paaTala shirip.olayaaTala   
+aMd.ela mrotala naaD.e nade ❘  
+kaMduva tiruv.eMkaTapati m.eccaga   
+aMdapu tirupula nalamelumaMga ‖
+

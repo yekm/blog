@@ -289,3 +289,47 @@ naddamele tiru veMkaTaadreeshu gooDi ‖
 వొద్దికమాటల కేలే వూర్పులు నీకు  
 నద్దమేలే తిరు వేంకటాద్రీశు గూడి ‖  
 
+### English
+
+#### annamayya kīrtana mūsina mutyālakele
+
+mūsina mutyāla kele moragulu  
+āśala chittāni kele alavokalu ‖
+
+kanduleni momuna kele kastūri  
+chindu nī koppuna kele chemantulu ❘  
+mandayānamuna kele maṭṭela motalu  
+gandhamele paipai kammani nī meniki ‖
+
+bhārapu gubbala kele payyeda nī  
+bīrapu jūpula kele peḍamomu ❘  
+jīrala bhujāla kele chemaṭalu nī  
+goraṇṭa golla kele konavāṇḍlu ‖
+
+muddula māṭala kele mudamulu nī  
+yaddapu jekkula kele araviri ❘  
+voddikamāṭala kele vūrpulu nīku  
+naddamele tiru veṅkaṭādrīśu gūḍi ‖
+
+### PlainEnglish
+
+#### annamayya keertana moosina mutyaalakele
+
+moosina mutyaala kele m.oragulu  
+aashala chittaani kele alavokalu ‖
+
+kaMduleni momuna kele kastoori  
+chiMdu nee k.oppuna kele chemaMtulu ❘  
+maMdayaanamuna kele maTT.ela motalu  
+gaMdhamele paipai kammani nee meniki ‖
+
+bhaarapu gubbala kele payy.eda nee  
+beerapu joopula kele p.eDamomu ❘  
+jeerala bhujaala kele ch.emaTalu nee  
+goraMTa golla kele k.onavaaMDlu ‖
+
+muddula maaTala kele mudamulu nee  
+yaddapu j.ekkula kele araviri ❘  
+v.oddikamaaTala kele voorpulu neeku  
+naddamele tiru veMkaTaadreeshu gooDi ‖
+

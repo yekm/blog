@@ -562,3 +562,83 @@ iti skaaMda puraaNe gauree khaMDe aaditya kavacaM saMpoorNaM ❘
 ఇతి స్కాంద పురాణే గౌరీ ఖండే ఆదిత్య కవచం సంపూర్ణం ❘  
 
 
+### English
+
+#### āditya kavacham
+
+dhyānaṃ  
+udayācala māgatya vedarūpa manāmayaṃ  
+tuśhṭāva parayā bhakta vālakhilyādibhirvṛtaṃ ❘  
+devāsuraiḥ sadāvandyaṃ grahaiścapariveśhṭitaṃ  
+dhyāyan stavan paṭhan nāma yaḥ sūrya kavacaṃ sadā ‖
+
+kavacaṃ  
+ghṛṇiḥ pātu śirodeśaṃ, sūryaḥ phālaṃ ca pātu me  
+ādityo locane pātu śrutī pātaḥ prabhākaraḥ  
+ghrūṇaṃ pātu sadā bhānuḥ arka pātu tathā  
+jihvaṃ pātu jagannādhaḥ kaṇṭhaṃ pātu vibhāvasu  
+skandhau grahapatiḥ pātu, bhujau pātu prabhākaraḥ  
+ahaskaraḥ pātu hastau hṛdayaṃ pātu bhānumān  
+madhyaṃ ca pātu saptāśvo, nābhiṃ pātu nabhomaṇiḥ  
+dvādaśātmā kaṭiṃ pātu savitā pātu sakthinī  
+ūrū pātu suraśreśhṭo, jānunī pātu bhāskaraḥ  
+jaṅghe pātu ca mārtāṇḍo gulphau pātu tviśhāmpatiḥ  
+pādau bradnaḥ sadā pātu, mitro pi sakalaṃ vapuḥ  
+vedatrayātmaka svāmin nārāyaṇa jagatpate  
+āyatayāmaṃ taṃ kañci dveda rūpaḥ prabhākaraḥ  
+stotreṇānena santuśhṭo vālakhilyādibhi rvṛtaḥ  
+sākśhāt vedamayo devo radhārūḍhaḥ samāgataḥ  
+taṃ dṛśhṭyā sahasotthāya daṇḍavatpraṇaman bhuvi  
+kṛtāñjali puṭo bhūtvā sūryā syāgre stuvattadā  
+vedamūrtiḥ mahābhāgo GYānadṛśhṭi rvicārya ca  
+brahmaṇā sthāpitaṃ pūrvaṃ yātāyāma vivarjitaṃ  
+sattva pradhānaṃ śuklākhyaṃ vedarūpa manāmayaṃ  
+śabdabrahmamayaṃ vedaṃ satkarma brahmavācakaṃ  
+muni madhyāpayāmāsapradhamaṃ savitā svayaṃ  
+tena prathama dattena vedena parameśvaraḥ  
+yāGYavalkyo muniśreśhṭaḥ kṛtakṛtyo bhavattadā  
+ṛgādi sakalān vedān GYātavān sūrya sannidhau  
+idaṃ stotraṃ mahāpuṇyaṃ pavitraṃ pāpanāśanaṃ  
+yaḥpaṭheccruṇuyā dvāpi sarvapāphaiḥpramucyate  
+vedārdhaGYāna sampannaḥ sūryaloka mavāpnayāt  
+iti skānda purāṇe gaurī khaṇḍe āditya kavacaṃ sampūrṇaṃ ❘  
+### PlainEnglish
+
+#### aaditya kavacham
+
+dhyaanaM  
+udayaacala maagatya vedaroopa manaamayaM  
+tushhTaava parayaa bhakta vaalakhilyaadibhirvRRitaM ❘  
+devaasuraiH sadaavaMdyaM grahaishcapariveshhTitaM  
+dhyaayan stavan paThan naama yaH soorya kavacaM sadaa ‖
+
+kavacaM  
+ghRRiNiH paatu shirodeshaM, sooryaH phaalaM ca paatu me  
+aadityo locane paatu shrutee paataH prabhaakaraH  
+ghrooNaM paatu sadaa bhaanuH arka paatu tathaa  
+jihvaM paatu jagannaadhaH kaMThaM paatu vibhaavasu  
+skaMdhau grahapatiH paatu, bhujau paatu prabhaakaraH  
+ahaskaraH paatu hastau hRRidayaM paatu bhaanumaan  
+madhyaM ca paatu saptaashvo, naabhiM paatu nabhomaNiH  
+dvaadashaatmaa kaTiM paatu savitaa paatu sakthinee  
+ooroo paatu surashreshhTo, jaanunee paatu bhaaskaraH  
+jaMghe paatu ca maartaaMDo gulphau paatu tvishhaaMpatiH  
+paadau bradnaH sadaa paatu, mitro pi sakalaM vapuH  
+vedatrayaatmaka svaamin naaraayaNa jagatpate  
+aayatayaamaM taM kaMci dveda roopaH prabhaakaraH  
+stotreNaanena saMtushhTo vaalakhilyaadibhi rvRRitaH  
+saakshhaat vedamayo devo radhaarooDhaH samaagataH  
+taM dRRishhTyaa sahas.otthaaya daMDavatpraNaman bhuvi  
+kRRitaaMjali puTo bhootvaa sooryaa syaagre stuvattadaa  
+vedamoortiH mahaabhaago gnyaanadRRishhTi rvicaarya ca  
+brahmaNaa sthaapitaM poorvaM yaataayaama vivarjitaM  
+sattva pradhaanaM shuklaakhyaM vedaroopa manaamayaM  
+shabdabrahmamayaM vedaM satkarma brahmavaacakaM  
+muni madhyaapayaamaasapradhamaM savitaa svayaM  
+tena prathama dattena vedena parameshvaraH  
+yaagnyavalkyo munishreshhTaH kRRitakRRityo bhavattadaa  
+RRigaadi sakalaan vedaan gnyaatavaan soorya sannidhau  
+idaM stotraM mahaapuNyaM pavitraM paapanaashanaM  
+yaHpaTheccruNuyaa dvaapi sarvapaaphaiHpramucyate  
+vedaardhagnyaana saMpannaH sooryaloka mavaapnayaat  
+iti skaaMda puraaNe gauree khaMDe aaditya kavacaM saMpoorNaM ❘  

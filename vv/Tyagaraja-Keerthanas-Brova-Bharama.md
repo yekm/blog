@@ -211,3 +211,27 @@ karuNaakara, tyaagaraajuni
 గోపికలకై కొండలెత్త లేదా  
 కరుణాకర, త్యాగరాజుని  
 
+### English
+
+#### tyāgarāja kīrtana brova bhāramā
+
+brova bhāramā, raghu rāma  
+bhuvanamella nevai, nannokani  
+śrī vāsudeva! aṇḍa koṭla  
+kukśhini uñcukoledā, nannu  
+kalaśāmbudhilo dayato  
+amarulakai, adi gāka  
+gopikalakai koṇḍaletta ledā  
+karuṇākara, tyāgarājuni   
+### PlainEnglish
+
+#### tyaagaraaja keertana brova bhaaramaa
+
+brova bhaaramaa, raghu raama  
+bhuvanam.ella nevai, nann.okani  
+shree vaasudeva! aMDa koTla  
+kukshhini uMcukoledaa, nannu  
+kalashaaMbudhilo dayato  
+amarulakai, adi gaaka  
+gopikalakai k.oMDal.etta ledaa  
+karuNaakara, tyaagaraajuni   

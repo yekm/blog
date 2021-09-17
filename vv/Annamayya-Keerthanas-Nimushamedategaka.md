@@ -289,3 +289,47 @@ k.onasaagi ninnune k.olici batukuTagaaka ‖
 కను కలిగి శ్రీ వేంకటనాథ కాతువే  
 కొనసాగి నిన్నునే కొలిచి బతుకుటగాక ‖  
 
+### English
+
+#### annamayya kīrtana nimuśhameḍategaka
+
+nimuśhameḍategaka hari ninnu talaci ❘  
+mamata nī mīdane marapi bratukuṭagāka ‖
+
+nidurace konnāllu neramula konnāllu  
+mudimice konnāllu mosapoyi ❘  
+kadisi korinanu gatakālambu vaccune  
+madi madine yuṇḍi emaraka batukuṭa gāka ‖
+
+kaḍu tanayulaku konta kāntalaku noka konta  
+veḍayāsalaku konta veṭṭisesi ❘  
+aḍari kāvalenanina andu sukhamunnadā  
+ceḍaka nī sevale sesi batukuṭagāka ‖
+
+dhanamu veṇṭa tagili dhānyambunaku tagili  
+tanavāri tagili kātaruḍainanu ❘  
+kanu kaligi śrī veṅkaṭanātha kātuve   
+konasāgi ninnune kolici batukuṭagāka ‖
+
+### PlainEnglish
+
+#### annamayya keertana nimushham.eDat.egaka
+
+nimushham.eDat.egaka hari ninnu talaci ❘  
+mamata nee meedane marapi bratukuTagaaka ‖
+
+nidurace k.onnaallu neramula k.onnaallu  
+mudimice k.onnaallu mosapoyi ❘  
+kadisi korinanu gatakaalaMbu vaccune  
+madi madin.e yuMDi emaraka batukuTa gaaka ‖
+
+kaDu tanayulaku k.oMta kaaMtalaku n.oka k.oMta  
+v.eDayaasalaku k.oMta v.eTTisesi ❘  
+aDari kaaval.enanina aMdu sukhamunnadaa  
+c.eDaka nee sevale sesi batukuTagaaka ‖
+
+dhanamu v.eMTa tagili dhaanyaMbunaku tagili  
+tanavaari tagili kaataruDainanu ❘  
+kanu kaligi shree veMkaTanaatha kaatuve   
+k.onasaagi ninnune k.olici batukuTagaaka ‖
+

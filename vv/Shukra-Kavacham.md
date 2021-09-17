@@ -432,3 +432,83 @@ na tasya jaayate peeDaa bhaargavasya prasaadataH ‖ 7 ‖
 ‖ ఇతి శ్రీబ్రహ్మాండపురాణే శుక్రకవచం సంపూర్ణమ్ ‖  
 
 
+### English
+
+#### śukra kavacham
+
+dhyānam  
+mṛṇālakundendupayojasuprabhaṃ   
+pītāmbaraṃ prasṛtamakśhamālinam ❘  
+samastaśāstrārthavidhiṃ mahāntaṃ   
+dhyāyetkaviṃ vāñChitamarthasiddhaye 
+‖ 1 ‖
+
+atha śukrakavacam  
+śiro me bhārgavaḥ pātu bhālaṃ pātu grahādhipaḥ ❘  
+netre daityaguruḥ pātu śrotre me candanadyutiḥ 
+‖ 2 ‖
+
+pātu me nāsikāṃ kāvyo vadanaṃ daityavanditaḥ ❘  
+vacanaṃ cośanāḥ pātu kaṇṭhaṃ śrīkaṇṭhabhaktimān 
+‖ 3 ‖
+
+bhujau tejonidhiḥ pātu kukśhiṃ pātu manovrajaḥ ❘  
+nābhiṃ bhṛgusutaḥ pātu madhyaṃ pātu mahīpriyaḥ 
+‖ 4 ‖
+
+kaṭiṃ me pātu viśvātmā urū me surapūjitaḥ ❘  
+jānuṃ jāḍyaharaḥ pātu jaṅghe GYānavatāṃ varaḥ 
+‖ 5 ‖
+
+gulphau guṇanidhiḥ pātu pātu pādau varāmbaraḥ ❘  
+sarvāṇyaṅgāni me pātu svarṇamālāpariśhkṛtaḥ 
+‖ 6 ‖
+
+phalaśrutiḥ  
+ya idaṃ kavacaṃ divyaṃ paṭhati śraddhayānvitaḥ ❘  
+na tasya jāyate pīḍā bhārgavasya prasādataḥ 
+‖ 7 ‖
+
+
+‖ iti śrībrahmāṇḍapurāṇe śukrakavacaṃ sampūrṇam ‖
+
+### PlainEnglish
+
+#### shukra kavacham
+
+dhyaanam  
+mRRiNaalakuMdeMdupayojasuprabhaM   
+peetaaMbaraM prasRRitamakshhamaalinam ❘  
+samastashaastraarthavidhiM mahaaMtaM   
+dhyaayetkaviM vaanChitamarthasiddhaye 
+‖ 1 ‖
+
+atha shukrakavacam  
+shiro me bhaargavaH paatu bhaalaM paatu grahaadhipaH ❘  
+netre daityaguruH paatu shrotre me caMdanadyutiH 
+‖ 2 ‖
+
+paatu me naasikaaM kaavyo vadanaM daityavaMditaH ❘  
+vacanaM coshanaaH paatu kaMThaM shreekaMThabhaktimaan 
+‖ 3 ‖
+
+bhujau tejonidhiH paatu kukshhiM paatu manovrajaH ❘  
+naabhiM bhRRigusutaH paatu madhyaM paatu maheepriyaH 
+‖ 4 ‖
+
+kaTiM me paatu vishvaatmaa uroo me surapoojitaH ❘  
+jaanuM jaaDyaharaH paatu jaMghe gnyaanavataaM varaH 
+‖ 5 ‖
+
+gulphau guNanidhiH paatu paatu paadau varaaMbaraH ❘  
+sarvaaNyaMgaani me paatu svarNamaalaaparishhkRRitaH 
+‖ 6 ‖
+
+phalashrutiH  
+ya idaM kavacaM divyaM paThati shraddhayaanvitaH ❘  
+na tasya jaayate peeDaa bhaargavasya prasaadataH 
+‖ 7 ‖
+
+
+‖ iti shreebrahmaaMDapuraaNe shukrakavacaM saMpoorNam ‖
+

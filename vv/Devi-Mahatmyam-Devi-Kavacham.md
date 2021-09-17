@@ -2421,3 +2421,493 @@ labhate paramaM roopaM shivena saha modate ‖ 56 ‖
 
 
 
+### English
+
+#### devī mahātmyam devi kavacham
+
+oṃ namaśchaṇḍikāyai  
+nyāsaḥ  
+asya śrī chaṇḍī kavachasya ❘  
+brahmā ṛśhiḥ ❘  
+anuśhṭup Chandaḥ ❘  
+chāmuṇḍā devatā ❘  
+aṅganyāsokta mātaro bījam ❘  
+navāvaraṇo mantraśaktiḥ ❘  
+digbandha devatāḥ tatvaṃ ❘  
+śrī jagadambā prītyarthe  saptaśatī pāṭhāṅgatvena  jape viniyogaḥ ‖
+
+oṃ namaśchaṇḍikāyai  
+mārkaṇḍeya uvāca ❘  
+oṃ yadguhyaṃ paramaṃ loke sarvarakśhākaraṃ nṛṇām ❘  
+yanna kasyacidākhyātaṃ tanme brūhi pitāmaha 
+‖ 1 ‖
+
+brahmovāca ❘  
+asti guhyatamaṃ vipra sarvabhūtopakārakam ❘  
+devyāstu kavacaṃ puṇyaṃ tacChṛṇuśhva mahāmune 
+‖ 2 ‖
+
+prathamaṃ śailaputrī cha dvitīyaṃ brahmacāriṇī ❘  
+tṛtīyaṃ candraghaṇṭeti kūśhmāṇḍeti caturthakam 
+‖ 3 ‖
+
+pañcamaṃ skandamāteti śhaśhṭhaṃ kātyāyanīti cha ❘  
+saptamaṃ kālarātrīti mahāgaurīti cāśhṭamam 
+‖ 4 ‖
+
+navamaṃ siddhidātrī ca navadurgāḥ prakīrtitāḥ ❘  
+uktānyetāni nāmāni brahmaṇaiva mahātmanā 
+‖ 5 ‖
+
+agninā dahyamānastu śatrumadhye gato raṇe ❘  
+viśhame durgame caiva bhayārtāḥ śaraṇaṃ gatāḥ 
+‖ 6 ‖
+
+na teśhāṃ jāyate kiñcidaśubhaṃ raṇasaṅkaṭe ❘  
+nāpadaṃ tasya paśyāmi śokaduḥkhabhayaṃ na hi 
+‖ 7 ‖
+
+yaistu bhaktyā smṛtā nūnaṃ teśhāṃ vṛddhiḥ prajāyate ❘  
+ye tvāṃ smaranti deveśi rakśhase tānnasaṃśayaḥ 
+‖ 8 ‖
+
+pretasaṃsthā tu cāmuṇḍā vārāhī mahiśhāsanā ❘  
+aindrī gajasamārūḍhā vaiśhṇavī garuḍāsanā 
+‖ 9 ‖
+
+māheśvarī vṛśhārūḍhā kaumārī śikhivāhanā ❘  
+lakśhmīḥ padmāsanā devī padmahastā haripriyā 
+‖ 10 ‖
+
+śvetarūpadharā devī īśvarī vṛśhavāhanā ❘  
+brāhmī haṃsasamārūḍhā sarvābharaṇabhūśhitā 
+‖ 11 ‖
+
+ityetā mātaraḥ sarvāḥ sarvayogasamanvitāḥ ❘  
+nānābharaṇāśobhāḍhyā nānāratnopaśobhitāḥ 
+‖ 12 ‖
+
+dṛśyante rathamārūḍhā devyaḥ krodhasamākulāḥ ❘  
+śaṅkhaṃ cakraṃ gadāṃ śaktiṃ halaṃ ca musalāyudham 
+‖ 13 ‖
+
+kheṭakaṃ tomaraṃ caiva paraśuṃ pāśameva ca ❘  
+kuntāyudhaṃ triśūlaṃ ca śārṅgamāyudhamuttamam 
+‖ 14 ‖
+
+daityānāṃ dehanāśāya bhaktānāmabhayāya ca ❘  
+dhārayantyāyudhānītthaṃ devānāṃ ca hitāya vai 
+‖ 15 ‖
+
+namasteastu mahāraudre mahāghoraparākrame ❘  
+mahābale mahotsāhe mahābhayavināśini 
+‖ 16 ‖
+
+trāhi māṃ devi duśhprekśhye śatrūṇāṃ bhayavardhini ❘  
+prācyāṃ rakśhatu māmaindrī āgneyyāmagnidevatā 
+‖ 17 ‖
+
+dakśhiṇeavatu vārāhī nairṛtyāṃ khaḍgadhāriṇī ❘  
+pratīcyāṃ vāruṇī rakśhedvāyavyāṃ mṛgavāhinī 
+‖ 18 ‖
+
+udīcyāṃ pātu kaumārī aiśānyāṃ śūladhāriṇī ❘  
+ūrdhvaṃ brahmāṇī me rakśhedadhastādvaiśhṇavī tathā 
+‖ 19 ‖
+
+evaṃ daśa diśo rakśheccāmuṇḍā śavavāhanā ❘  
+jayā me chāgrataḥ pātu vijayā pātu pṛśhṭhataḥ 
+‖ 20 ‖
+
+ajitā vāmapārśve tu dakśhiṇe cāparājitā ❘  
+śikhāmudyotinī rakśhedumā mūrdhni vyavasthitā 
+‖ 21 ‖
+
+mālādharī lalāṭe ca bhruvau rakśhedyaśasvinī ❘  
+trinetrā cha bhruvormadhye yamaghaṇṭā cha nāsike 
+‖ 22 ‖
+
+śaṅkhinī cakśhuśhormadhye śrotrayordvāravāsinī ❘  
+kapolau kālikā rakśhetkarṇamūle tu śāṅkarī 
+‖ 23 ‖
+
+nāsikāyāṃ sugandhā ca uttarośhṭhe ca carcikā ❘  
+adhare cāmṛtakalā jihvāyāṃ ca sarasvatī 
+‖ 24 ‖
+
+dantān rakśhatu kaumārī kaṇṭhadeśe tu caṇḍikā ❘  
+ghaṇṭikāṃ citraghaṇṭā ca mahāmāyā ca tāluke 
+‖ 25 ‖
+
+kāmākśhī cibukaṃ rakśhedvācaṃ me sarvamaṅgaḻā ❘  
+grīvāyāṃ bhadrakāḻī ca pṛśhṭhavaṃśe dhanurdharī 
+‖ 26 ‖
+
+nīlagrīvā bahiḥ kaṇṭhe nalikāṃ nalakūbarī ❘  
+skandhayoḥ khaḍginī rakśhedbāhū me vajradhāriṇī 
+‖ 27 ‖
+
+hastayordaṇḍinī rakśhedambikā cāṅgulīśhu ca ❘  
+nakhāñChūleśvarī rakśhetkukśhau rakśhetkuleśvarī 
+‖ 28 ‖
+
+stanau rakśhenmahādevī manaḥśokavināśinī ❘  
+hṛdaye lalitā devī udare śūladhāriṇī 
+‖ 29 ‖
+
+nābhau ca kāminī rakśhedguhyaṃ guhyeśvarī tathā ❘  
+pūtanā kāmikā meḍhraṃ gude mahiśhavāhinī 
+‖ 30 ‖
+
+kaṭyāṃ bhagavatī rakśhejjānunī vindhyavāsinī ❘  
+jaṅghe mahābalā rakśhetsarvakāmapradāyinī 
+‖ 31 ‖
+
+gulphayornārasiṃhī ca pādapṛśhṭhe tu taijasī ❘  
+pādāṅgulīśhu śrī rakśhetpādādhastalavāsinī 
+‖ 32 ‖
+
+nakhān daṃśhṭrakarālī ca keśāṃścaivordhvakeśinī ❘  
+romakūpeśhu kauberī tvacaṃ vāgīśvarī tathā 
+‖ 33 ‖
+
+raktamajjāvasāmāṃsānyasthimedāṃsi pārvatī ❘  
+antrāṇi kālarātriśca pittaṃ ca mukuṭeśvarī 
+‖ 34 ‖
+
+padmāvatī padmakośe kaphe cūḍāmaṇistathā ❘  
+jvālāmukhī nakhajvālāmabhedyā sarvasandhiśhu 
+‖ 35 ‖
+
+śukraṃ brahmāṇi! me rakśhecChāyāṃ Chatreśvarī tathā ❘  
+ahaṅkāraṃ mano buddhiṃ rakśhenme dharmadhāriṇī 
+‖ 36 ‖
+
+prāṇāpānau tathā vyānamudānaṃ ca samānakam ❘  
+vajrahastā ca me rakśhetprāṇaṃ kalyāṇaśobhanā 
+‖ 37 ‖
+
+rase rūpe ca gandhe ca śabde sparśe ca yoginī ❘  
+sattvaṃ rajastamaścaiva rakśhennārāyaṇī sadā 
+‖ 38 ‖
+
+āyū rakśhatu vārāhī dharmaṃ rakśhatu vaiśhṇavī ❘  
+yaśaḥ kīrtiṃ ca lakśhmīṃ ca dhanaṃ vidyāṃ cha chakriṇī 
+‖ 39 ‖
+
+gotramindrāṇi! me rakśhetpaśūnme rakśha caṇḍike ❘  
+putrān rakśhenmahālakśhmīrbhāryāṃ rakśhatu bhairavī 
+‖ 40 ‖
+
+panthānaṃ supathā rakśhenmārgaṃ kśhemakarī tathā ❘  
+rājadvāre mahālakśhmīrvijayā sarvataḥ sthitā 
+‖ 41 ‖
+
+rakśhāhīnaṃ tu yat-sthānaṃ varjitaṃ kavacena tu ❘  
+tatsarvaṃ rakśha me devi! jayantī pāpanāśinī 
+‖ 42 ‖
+
+padamekaṃ na gacChettu yadīcChecChubhamātmanaḥ ❘  
+kavacenāvṛto nityaṃ yatra yatraiva gacChati 
+‖ 43 ‖
+
+tatra tatrārthalābhaśca vijayaḥ sārvakāmikaḥ ❘  
+yaṃ yaṃ cintayate kāmaṃ taṃ taṃ prāpnoti niścitam 
+‖ 44 ‖
+
+paramaiśvaryamatulaṃ prāpsyate bhūtale pumān ❘  
+nirbhayo jāyate martyaḥ saṅgrāmeśhvaparājitaḥ 
+‖ 45 ‖
+
+trailokye tu bhavetpūjyaḥ kavacenāvṛtaḥ pumān ❘  
+idaṃ tu devyāḥ kavacaṃ devānāmapi durlabham 
+‖ 46 ‖
+
+yaḥ paṭhetprayato nityaṃ trisandhyaṃ śraddhayānvitaḥ ❘  
+daivīkalā bhavettasya trailokyeśhvaparājitaḥ ❘  
+47 ‖
+
+jīvedvarśhaśataṃ sāgramapamṛtyuvivarjitaḥ ❘  
+naśyanti vyādhayaḥ sarve lūtāvisphoṭakādayaḥ 
+‖ 48 ‖
+
+sthāvaraṃ jaṅgamaṃ caiva kṛtrimaṃ caiva yadviśham ❘  
+abhicārāṇi sarvāṇi mantrayantrāṇi bhūtale 
+‖ 49 ‖
+
+bhūcarāḥ khecarāścaiva julajāścopadeśikāḥ ❘  
+sahajā kulajā mālā ḍākinī śākinī tathā 
+‖ 50 ‖
+
+antarikśhacarā ghorā ḍākinyaśca mahābalāḥ ❘  
+grahabhūtapiśācāśca yakśhagandharvarākśhasāḥ 
+‖ 51 ‖
+
+brahmarākśhasavetālāḥ kūśhmāṇḍā bhairavādayaḥ ❘  
+naśyanti darśanāttasya kavace hṛdi saṃsthite 
+‖ 52 ‖
+
+mānonnatirbhavedrāGYastejovṛddhikaraṃ paraṃ ❘  
+yaśasā vardhate soapi kīrtimaṇḍitabhūtale 
+‖ 53 ‖
+
+japetsaptaśatīṃ caṇḍīṃ kṛtvā tu kavacaṃ purā ❘  
+yāvadbhūmaṇḍalaṃ dhatte saśailavanakānanam 
+‖ 54 ‖
+
+tāvattiśhṭhati medinyāṃ santatiḥ putrapautrikī ❘  
+dehānte paramaṃ sthānaṃ yatsurairapi durlabham 
+‖ 55 ‖
+
+prāpnoti puruśho nityaṃ mahāmāyāprasādataḥ ❘  
+labhate paramaṃ rūpaṃ śivena saha modate 
+‖ 56 ‖
+
+
+‖ iti vārāhapurāṇe hariharabrahma viracitaṃ devyāḥ kavacaṃ sampūrṇam ‖
+
+### PlainEnglish
+
+#### devee mahaatmyam devi kavacham
+
+oM namashchaNDikaayai  
+nyaasaH  
+asya shree chaMDee kavachasya ❘  
+brahmaa RRishhiH ❘  
+anushhTup ChaMdaH ❘  
+chaamuMDaa devataa ❘  
+aMganyaasokta maataro beejam ❘  
+navaavaraNo maMtrashaktiH ❘  
+digbaMdha devataaH tatvaM ❘  
+shree jagadaMbaa preetyarthe  saptashatee paaThaaMgatvena  jape viniyogaH ‖
+
+oM namashchaMDikaayai  
+maarkaNDeya uvaaca ❘  
+oM yadguhyaM paramaM loke sarvarakshhaakaraM nRRiNaam ❘  
+yanna kasyacidaakhyaataM tanme broohi pitaamaha 
+‖ 1 ‖
+
+brahmovaaca ❘  
+asti guhyatamaM vipra sarvabhootopakaarakam ❘  
+devyaastu kavacaM puNyaM tacChRRiNushhva mahaamune 
+‖ 2 ‖
+
+prathamaM shailaputree cha dviteeyaM brahmacaariNee ❘  
+tRRiteeyaM candraghaNTeti kooshhmaaNDeti caturthakam 
+‖ 3 ‖
+
+pancamaM skandamaateti shhashhThaM kaatyaayaneeti cha ❘  
+saptamaM kaalaraatreeti mahaagaureeti caashhTamam 
+‖ 4 ‖
+
+navamaM siddhidaatree ca navadurgaaH prakeertitaaH ❘  
+uktaanyetaani naamaani brahmaNaiva mahaatmanaa 
+‖ 5 ‖
+
+agninaa dahyamaanastu shatrumadhye gato raNe ❘  
+vishhame durgame caiva bhayaartaaH sharaNaM gataaH 
+‖ 6 ‖
+
+na teshhaaM jaayate kincidashubhaM raNasankaTe ❘  
+naapadaM tasya pashyaami shokaduHkhabhayaM na hi 
+‖ 7 ‖
+
+yaistu bhaktyaa smRRitaa noonaM teshhaaM vRRiddhiH prajaayate ❘  
+ye tvaaM smaranti deveshi rakshhase taannasaMshayaH 
+‖ 8 ‖
+
+pretasaMsthaa tu caamuNDaa vaaraahee mahishhaasanaa ❘  
+aindree gajasamaarooDhaa vaishhNavee garuDaasanaa 
+‖ 9 ‖
+
+maaheshvaree vRRishhaarooDhaa kaumaaree shikhivaahanaa ❘  
+lakshhmeeH padmaasanaa devee padmahastaa haripriyaa 
+‖ 10 ‖
+
+shvetaroopadharaa devee eeshvaree vRRishhavaahanaa ❘  
+braahmee haMsasamaarooDhaa sarvaabharaNabhooshhitaa 
+‖ 11 ‖
+
+ityetaa maataraH sarvaaH sarvayogasamanvitaaH ❘  
+naanaabharaNaashobhaaDhyaa naanaaratnopashobhitaaH 
+‖ 12 ‖
+
+dRRishyante rathamaarooDhaa devyaH krodhasamaakulaaH ❘  
+shankhaM cakraM gadaaM shaktiM halaM ca musalaayudham 
+‖ 13 ‖
+
+kheTakaM tomaraM caiva parashuM paashameva ca ❘  
+kuntaayudhaM trishoolaM ca shaarngamaayudhamuttamam 
+‖ 14 ‖
+
+daityaanaaM dehanaashaaya bhaktaanaamabhayaaya ca ❘  
+dhaarayantyaayudhaaneetthaM devaanaaM ca hitaaya vai 
+‖ 15 ‖
+
+namaste.astu mahaaraudre mahaaghoraparaakrame ❘  
+mahaabale mahotsaahe mahaabhayavinaashini 
+‖ 16 ‖
+
+traahi maaM devi dushhprekshhye shatrooNaaM bhayavardhini ❘  
+praacyaaM rakshhatu maamaindree aagneyyaamagnidevataa 
+‖ 17 ‖
+
+dakshhiNe.avatu vaaraahee nairRRityaaM khaDgadhaariNee ❘  
+prateecyaaM vaaruNee rakshhedvaayavyaaM mRRigavaahinee 
+‖ 18 ‖
+
+udeecyaaM paatu kaumaaree aishaanyaaM shooladhaariNee ❘  
+oordhvaM brahmaaNee me rakshhedadhastaadvaishhNavee tathaa 
+‖ 19 ‖
+
+evaM dasha disho rakshheccaamuNDaa shavavaahanaa ❘  
+jayaa me chaagrataH paatu vijayaa paatu pRRishhThataH 
+‖ 20 ‖
+
+ajitaa vaamapaarshve tu dakshhiNe caaparaajitaa ❘  
+shikhaamudyotinee rakshhedumaa moordhni vyavasthitaa 
+‖ 21 ‖
+
+maalaadharee lalaaTe ca bhruvau rakshhedyashasvinee ❘  
+trinetraa cha bhruvormadhye yamaghaNTaa cha naasike 
+‖ 22 ‖
+
+shankhinee cakshhushhormadhye shrotrayordvaaravaasinee ❘  
+kapolau kaalikaa rakshhetkarNamoole tu shaankaree 
+‖ 23 ‖
+
+naasikaayaaM sugandhaa ca uttaroshhThe ca carcikaa ❘  
+adhare caamRRitakalaa jihvaayaaM ca sarasvatee 
+‖ 24 ‖
+
+dantaan rakshhatu kaumaaree kaNThadeshe tu caNDikaa ❘  
+ghaNTikaaM citraghaNTaa ca mahaamaayaa ca taaluke 
+‖ 25 ‖
+
+kaamaakshhee cibukaM rakshhedvaacaM me sarvamangaLaa ❘  
+greevaayaaM bhadrakaaLee ca pRRishhThavaMshe dhanurdharee 
+‖ 26 ‖
+
+neelagreevaa bahiH kaNThe nalikaaM nalakoobaree ❘  
+skandhayoH khaDginee rakshhedbaahoo me vajradhaariNee 
+‖ 27 ‖
+
+hastayordaNDinee rakshhedambikaa caanguleeshhu ca ❘  
+nakhaanChooleshvaree rakshhetkukshhau rakshhetkuleshvaree 
+‖ 28 ‖
+
+stanau rakshhenmahaadevee manaHshokavinaashinee ❘  
+hRRidaye lalitaa devee udare shooladhaariNee 
+‖ 29 ‖
+
+naabhau ca kaaminee rakshhedguhyaM guhyeshvaree tathaa ❘  
+pootanaa kaamikaa meDhraM gude mahishhavaahinee 
+‖ 30 ‖
+
+kaTyaaM bhagavatee rakshhejjaanunee vindhyavaasinee ❘  
+janghe mahaabalaa rakshhetsarvakaamapradaayinee 
+‖ 31 ‖
+
+gulphayornaarasiMhee ca paadapRRishhThe tu taijasee ❘  
+paadaanguleeshhu shree rakshhetpaadaadhastalavaasinee 
+‖ 32 ‖
+
+nakhaan daMshhTrakaraalee ca keshaaMshcaivordhvakeshinee ❘  
+romakoopeshhu kauberee tvacaM vaageeshvaree tathaa 
+‖ 33 ‖
+
+raktamajjaavasaamaaMsaanyasthimedaaMsi paarvatee ❘  
+antraaNi kaalaraatrishca pittaM ca mukuTeshvaree 
+‖ 34 ‖
+
+padmaavatee padmakoshe kaphe cooDaamaNistathaa ❘  
+jvaalaamukhee nakhajvaalaamabhedyaa sarvasandhishhu 
+‖ 35 ‖
+
+shukraM brahmaaNi! me rakshhecChaayaaM Chatreshvaree tathaa ❘  
+ahankaaraM mano buddhiM rakshhenme dharmadhaariNee 
+‖ 36 ‖
+
+praaNaapaanau tathaa vyaanamudaanaM ca samaanakam ❘  
+vajrahastaa ca me rakshhetpraaNaM kalyaaNashobhanaa 
+‖ 37 ‖
+
+rase roope ca gandhe ca shabde sparshe ca yoginee ❘  
+sattvaM rajastamashcaiva rakshhennaaraayaNee sadaa 
+‖ 38 ‖
+
+aayoo rakshhatu vaaraahee dharmaM rakshhatu vaishhNavee ❘  
+yashaH keertiM ca lakshhmeeM ca dhanaM vidyaaM cha chakriNee 
+‖ 39 ‖
+
+gotramindraaNi! me rakshhetpashoonme rakshha caNDike ❘  
+putraan rakshhenmahaalakshhmeerbhaaryaaM rakshhatu bhairavee 
+‖ 40 ‖
+
+panthaanaM supathaa rakshhenmaargaM kshhemakaree tathaa ❘  
+raajadvaare mahaalakshhmeervijayaa sarvataH sthitaa 
+‖ 41 ‖
+
+rakshhaaheenaM tu yat-sthaanaM varjitaM kavacena tu ❘  
+tatsarvaM rakshha me devi! jayantee paapanaashinee 
+‖ 42 ‖
+
+padamekaM na gacChettu yadeecChecChubhamaatmanaH ❘  
+kavacenaavRRito nityaM yatra yatraiva gacChati 
+‖ 43 ‖
+
+tatra tatraarthalaabhashca vijayaH saarvakaamikaH ❘  
+yaM yaM cintayate kaamaM taM taM praapnoti nishcitam 
+‖ 44 ‖
+
+paramaishvaryamatulaM praapsyate bhootale pumaan ❘  
+nirbhayo jaayate martyaH sangraameshhvaparaajitaH 
+‖ 45 ‖
+
+trailokye tu bhavetpoojyaH kavacenaavRRitaH pumaan ❘  
+idaM tu devyaaH kavacaM devaanaamapi durlabham 
+‖ 46 ‖
+
+yaH paThetprayato nityaM trisandhyaM shraddhayaanvitaH ❘  
+daiveekalaa bhavettasya trailokyeshhvaparaajitaH ❘  
+47 ‖
+
+jeevedvarshhashataM saagramapamRRityuvivarjitaH ❘  
+nashyanti vyaadhayaH sarve lootaavisphoTakaadayaH 
+‖ 48 ‖
+
+sthaavaraM jangamaM caiva kRRitrimaM caiva yadvishham ❘  
+abhicaaraaNi sarvaaNi mantrayantraaNi bhootale 
+‖ 49 ‖
+
+bhoocaraaH khecaraashcaiva julajaashcopadeshikaaH ❘  
+sahajaa kulajaa maalaa Daakinee shaakinee tathaa 
+‖ 50 ‖
+
+antarikshhacaraa ghoraa Daakinyashca mahaabalaaH ❘  
+grahabhootapishaacaashca yakshhagandharvaraakshhasaaH 
+‖ 51 ‖
+
+brahmaraakshhasavetaalaaH kooshhmaaNDaa bhairavaadayaH ❘  
+nashyanti darshanaattasya kavace hRRidi saMsthite 
+‖ 52 ‖
+
+maanonnatirbhavedraagnyastejovRRiddhikaraM paraM ❘  
+yashasaa vardhate so.api keertimaMDitabhootale 
+‖ 53 ‖
+
+japetsaptashateeM caNDeeM kRRitvaa tu kavacaM puraa ❘  
+yaavadbhoomaNDalaM dhatte sashailavanakaananam 
+‖ 54 ‖
+
+taavattishhThati medinyaaM santatiH putrapautrikee ❘  
+dehaante paramaM sthaanaM yatsurairapi durlabham 
+‖ 55 ‖
+
+praapnoti purushho nityaM mahaamaayaaprasaadataH ❘  
+labhate paramaM roopaM shivena saha modate 
+‖ 56 ‖
+
+
+‖ iti vaaraahapuraaNe hariharabrahma viracitaM devyaaH kavacaM saMpoorNam ‖
+

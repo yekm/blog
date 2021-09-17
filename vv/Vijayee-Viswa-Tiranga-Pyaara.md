@@ -367,3 +367,67 @@ tab hoove praNa poorNa hamaaraa ‖jhaMDaa‖
 తబ్ హూవే ప్రణ పూర్ణ హమారా ‖ఝండా‖  
 
 
+### English
+
+#### vijayī viśva tiraṅgā pyārā
+
+vijayī viśvatiraṅgā pyārā  
+jhaṇḍā ūñChā rahe hamārā 
+‖jhaṇḍā‖
+
+sadā śakti barsāne vālā  
+prema sudhā sarsāne vālā  
+vīroṅko harśhāne vālā  
+mātṛbhūmikā tan man sārā 
+‖jhaṇḍā‖
+
+svatantratākī bhīśhaṇa raṇ me  
+lag^^kar baḍe jośh kśhaṇ kśhaṇ^^me  
+kāve śatru dekh^^kar man^^me  
+miṭ jāve bhay saṅkaṭ sārā 
+‖jhaṇḍā‖
+
+in jhaṇḍeke nīce nirbhay  
+le svarājya yaha avicala niścay  
+bolo, bhārat mātākī jay  
+svatantratā hi dhyey hamārā 
+‖jhaṇḍā‖
+
+is kī śhān nī jāne pāve  
+cāhe jān bhalehi jāye  
+viśva vijaya kar ke dikh lāve  
+tab hūve praṇa pūrṇa hamārā 
+‖jhaṇḍā‖
+
+### PlainEnglish
+
+#### vijayee vishva tiraMgaa pyaaraa
+
+vijayee vishvatiraMgaa pyaaraa  
+jhaMDaa ooMChaa rahe hamaaraa 
+‖jhaMDaa‖
+
+sadaa shakti barsaane vaalaa  
+prema sudhaa sarsaane vaalaa  
+veeroMko harshhaane vaalaa  
+maatRRibhoomikaa tan man saaraa 
+‖jhaMDaa‖
+
+svataMtrataakee bheeshhaNa raN me  
+lag^^kar baD.e joshh kshhaN kshhaN^^me  
+kaave shatru dekh^^kar man^^me  
+miT jaave bhay saMkaT saaraa 
+‖jhaMDaa‖
+
+in jhaMDeke neece nirbhay  
+le svaraajya yaha avicala nishcay  
+bolo, bhaarat maataakee jay  
+svataMtrataa hi dhyey hamaaraa 
+‖jhaMDaa‖
+
+is kee shhaan nee jaane paave  
+caah.e jaan bhalehi jaay.e  
+vishva vijaya kar ke dikh laave  
+tab hoove praNa poorNa hamaaraa 
+‖jhaMDaa‖
+

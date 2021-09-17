@@ -302,3 +302,47 @@ paavanamu ladhikabhaagyapusirulu ‖
 పావనము లధికభాగ్యపుసిరులు ‖  
 
 
+### English
+
+#### annamayya kīrtana e purāṇamula nenta vedikinā
+
+epurāṇamula nenta vedikinā ❘  
+śrīpatidāsulu cheḍa rennaḍunu ‖
+
+vārivirahitamulu avi gonnāllaku ❘  
+virasambulu mari viphalamulu ❘  
+narahari goli chiṭu namminavaramulu ❘  
+niratamu lennaḍu nelavulu cheḍavu ‖
+
+kamalākśhuni matigānanichaduvulu ❘  
+kumatambulu bahukupathamulu ❘  
+jamaḻi nachyutuni samārādhanalu ❘  
+vimalamule kāni vitathamugāvu ‖
+
+śrīvallabhugati jeranipadavulu ❘  
+dāvatulu kapaṭadharmamulu ❘  
+śrīveṅkaṭapati seviñchunevalu ❘  
+pāvanamu ladhikabhāgyapusirulu ‖
+
+### PlainEnglish
+
+#### annamayya keertana e puraaNamula n.eMta v.edikinaa
+
+epuraaNamula n.eMta v.edikinaa ❘  
+shreepatidaasulu ch.eDa r.ennaDunu ‖
+
+vaarivirahitamulu avi g.onnaallaku ❘  
+virasaMbulu mari viphalamulu ❘  
+narahari g.oli chiTu namminavaramulu ❘  
+niratamu l.ennaDu n.elavulu ch.eDavu ‖
+
+kamalaakshhuni matigaananichaduvulu ❘  
+kumataMbulu bahukupathamulu ❘  
+jamaLi nachyutuni samaaraadhanalu ❘  
+vimalamule kaani vitathamugaavu ‖
+
+shreevallabhugati jeranipadavulu ❘  
+daavatulu kapaTadharmamulu ❘  
+shreeveMkaTapati seviMchunevalu ❘  
+paavanamu ladhikabhaagyapusirulu ‖
+

@@ -575,3 +575,73 @@ bhaarateyuDanaMcu bhaktito paaDa!
 భారతేయుడనంచు భక్తితో పాడ!  
 
 
+### English
+
+#### e deśameginā
+
+e deśameginā endu kāleḍinā  
+e pīṭhamekkinā, evvaremaninā,  
+pogaḍarā nī talli bhūmi bhāratini,  
+nilaparā nī jāti niṇḍu gauravamu.  
+e pūrva puṇyamo, e yoga balamo  
+janiyiñcināḍa vī svargakhaṇḍamuna  
+e mañcipūvulan premiñcināvo  
+ninu moce ī talli kanaka garbhamuna.  
+ledurā iṭuvaṇṭi bhūdevi yendū  
+lerurā manavaṇṭi pauruliṅkendu.  
+sūryunī veluturul sokunandāka,  
+oḍalā jhaṇḍālu āḍunandāka,  
+andāka gala ī ananta bhūtalini  
+mana bhūmi vaṇṭi callani talli ledu  
+pāḍarā nī vīra bhāva bhāratamu.  
+tama tapassulu ṛśhul dhāravoyaṅgā  
+saurya hāramul rājacandrularpimpa  
+bhāva sūtramu kavi prabhuvulallaṅga  
+rāga dugdhamul bhaktaratnamul pidaka  
+dikkulakegadannu tejammu velaga  
+rālla teniyalūru rāgālu sāgā  
+jagamulanūgiñcu magatanambegaya  
+saundaryamega boyu sāhityamalara  
+veliginadī divya viśvambuputra  
+dīviñce nī divya deśambu putra  
+polamulā ratnālu molicerā icaṭa  
+vārdhilo mutyālu paṇḍerā icaṭa  
+pṛthivi divyauśhadhul pidikerā manakū  
+kānalā kastūri kācarā manaku.  
+avamānamelarā ? anumānamelarā ?  
+bhārateyuḍanañcu bhaktito pāḍa!  
+### PlainEnglish
+
+#### e deshameginaa
+
+e deshameginaa .eMdu kaal.eDinaa  
+e peeTham.ekkinaa, .evvaremaninaa,  
+p.ogaDaraa nee talli bhoomi bhaaratini,  
+nilaparaa nee jaati niMDu gauravamu.  
+e poorva puNyamo, e yoga balamo  
+janiyiMcinaaDa vee svargakhaMDamuna  
+e maMcipoovulan premiMcinaavo  
+ninu moc.e ee talli kanaka garbhamuna.  
+leduraa iTuvaMTi bhoodevi y.eMdoo  
+leruraa manavaMTi pauruliMk.eMdu.  
+sooryunee v.eluturul sokunaMdaaka,  
+oDalaa jhaMDaalu aaDunaMdaaka,  
+aMdaaka gala ee anaMta bhootalini  
+mana bhoomi vaMTi callani talli ledu  
+paaDaraa nee veera bhaava bhaaratamu.  
+tama tapassulu RRishhul dhaaravoyaMgaa  
+saurya haaramul raajacaMdrularpiMpa  
+bhaava sootramu kavi prabhuvulallaMga  
+raaga dugdhamul bhaktaratnamul pidaka  
+dikkulak.egadannu tejammu v.elaga  
+raalla teniyalooru raagaalu saagaa  
+jagamulanoogiMcu magatanaMb.egaya  
+sauMdaryam.ega boyu saahityamalara  
+v.eliginadee divya vishvaMbuputra  
+deeviMc.e nee divya deshaMbu putra  
+p.olamulaa ratnaalu m.olic.eraa icaTa  
+vaardhilo mutyaalu paMD.eraa icaTa  
+pRRithivi divyaushhadhul pidik.eraa manakoo  
+kaanalaa kastoori kaacaraa manaku.  
+avamaanamelaraa ? anumaanamelaraa ?  
+bhaarateyuDanaMcu bhaktito paaDa!  

@@ -302,3 +302,47 @@ yeevishvaparipooNu lidi y.evvaru ‖
 యీవిశ్వపరిపూణు లిది యెవ్వరు ‖  
 
 
+### English
+
+#### annamayya kīrtana ī suralu ī munulu
+
+ī suralīmunu līcarācaramulu ❘  
+yisakalamantayu nidi yevvaru ‖
+
+ennika nāmamu liṭu nīvai yuṇḍaga ❘  
+yinni nāmamu liṭu nīvai yuṇḍaga ❘  
+vunnacoṭane nīvu vuṇḍucuṇḍuga mari ❘  
+yinniṭā diruguvā ridi yevvaru ‖
+
+vokkarūpai nīvu vuṇḍucuṇḍaga mari ❘  
+takkina yīrūpamulu tāmevvaru ❘  
+yikkaḍanakkaḍa nīvu yiṭu ātmalalonuṇḍa ❘  
+makkuva nuṇḍuvāru mari yevvaru ‖
+
+śrīveṅkaṭādripai celagi nī vuṇḍagā ❘  
+daivambulanuvāru tāmevvaru ❘  
+kāvalasinacoṭa kaligi nīvuṇḍaga ❘  
+yīviśvaparipūṇu lidi yevvaru ‖
+
+### PlainEnglish
+
+#### annamayya keertana ee suralu ee munulu
+
+ee suraleemunu leecaraacaramulu ❘  
+yisakalamaMtayu nidi y.evvaru ‖
+
+.ennika naamamu liTu neevai yuMDaga ❘  
+yinni naamamu liTu neevai yuMDaga ❘  
+vunnacoTane neevu vuMDucuMDuga mari ❘  
+yinniTaa diruguvaa ridi y.evvaru ‖
+
+v.okkaroopai neevu vuMDucuMDaga mari ❘  
+takkina yeeroopamulu taam.evvaru ❘  
+yikkaDanakkaDa neevu yiTu aatmalalonuMDa ❘  
+makkuva nuMDuvaaru mari y.evvaru ‖
+
+shreeveMkaTaadripai c.elagi nee vuMDagaa ❘  
+daivaMbulanuvaaru taam.evvaru ❘  
+kaavalasinacoTa kaligi neevuMDaga ❘  
+yeevishvaparipooNu lidi y.evvaru ‖
+

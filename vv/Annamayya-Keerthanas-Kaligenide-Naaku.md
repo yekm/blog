@@ -289,3 +289,47 @@ kramam.ellanu neekayiMkaryame ‖
 అమిత శ్రీవేంకటాధిప యిదె నా  
 క్రమమెల్లను నీకయింకర్యమే ‖  
 
+### English
+
+#### annamayya kīrtana kaligenide nāku
+
+kaligenide nāku kaivalyamu  
+tolutanevvariki dorakanidi ‖
+
+jayapuruśhottama jaya pītāmbara  
+jayajaya karuṇājalanidhi ❘  
+daya yeRaṅga ne dharmamu neRaga nā  
+kriya yidi nīdivyakīrtaname ‖
+
+śaraṇamu govinda śaraṇamu keśava  
+śaraṇu śaraṇu śrījanārdhana ❘  
+parama meRaṅganu bhakti yeRaṅganu  
+niratamu nāgati nīdāsyame ‖
+
+namo nārāyaṇā namo lakśhmīpati  
+namo puṇḍarīkanayanā ❘  
+amita śrīveṅkaṭādhipa yide nā  
+kramamellanu nīkayiṅkaryame ‖
+
+### PlainEnglish
+
+#### annamayya keertana kalig.enid.e naaku
+
+kalig.enid.e naaku kaivalyamu  
+t.olutan.evvariki d.orakanidi ‖
+
+jayapurushhottama jaya peetaaMbara  
+jayajaya karuNaajalanidhi ❘  
+daya y.eRaMga ne dharmamu n.eRaga naa  
+kriya yidi needivyakeertaname ‖
+
+sharaNamu goviMda sharaNamu keshava  
+sharaNu sharaNu shreejanaardhana ❘  
+parama m.eRaMganu bhakti y.eRaMganu  
+niratamu naagati needaasyame ‖
+
+namo naaraayaNaa namo lakshhmeepati  
+namo puMDareekanayanaa ❘  
+amita shreeveMkaTaadhipa yid.e naa  
+kramam.ellanu neekayiMkaryame ‖
+

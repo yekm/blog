@@ -887,3 +887,161 @@ sukhaM nirvishankaH svapimyastayatnaH ‖12‖
 ‖ఇతి శ్రీశంకరాచార్య భుజంగప్రయాతస్తోత్రమ్‖  
 
 
+### English
+
+#### śiva bhujaṅga prayāta stotram
+
+kṛpāsāgarāyāśukāvyapradāya  
+praṇamrākhilābhīśhṭasandāyakāya ❘  
+yatīndrairupāsyāṅghripāthoruhāya  
+prabodhapradātre namaḥ śaṅkarāya 
+‖1‖
+
+cidānandarūpāya cinmudrikodya-  
+tkarāyeśaparyāyarūpāya tubhyam ❘  
+mudā gīyamānāya vedottamāṅgaiḥ  
+śritānandadātre namaḥ śaṅkarāya 
+‖2‖
+
+jaṭājūṭamadhye purā yā surāṇāṃ  
+dhunī sādya karmandirūpasya śambhoḥ  
+gale mallikāmālikāvyājataste  
+vibhātīti manye guro kiṃ tathaiva 
+‖3‖
+
+nakhenduprabhādhūtanamrālihārdā-  
+ndhakāravrajāyābjamandasmitāya ❘  
+mahāmohapāthonidherbāḍabāya  
+praśāntāya kurmo namaḥ śaṅkarāya 
+‖4‖
+
+praṇamrāntaraṅgābjabodhapradātre  
+divārātramavyāhatosrāya kāmam ❘  
+kśhapeśāya citrāya lakśhma kśhayābhyāṃ  
+vihīnāya kurmo namaḥ śaṅkarāya 
+‖5‖
+
+praṇamrāsyapāthojamodapradātre  
+sadāntastamastomasaṃhārakartre ❘  
+rajanyā mapīddhaprakāśāya kurmo  
+hyapūrvāya pūśhṇe namaḥ śaṅkarāya 
+‖6‖
+
+natānāṃ hṛdabjāni phullāni śīghraṃ  
+karomyāśu yogapradānena nūnam ❘  
+prabodhāya cetthaṃ sarojāni dhatse  
+praphullāni kiṃ bho guro brūhi mahyam 
+‖7‖
+
+prabhādhūtacandrāyutāyākhileśhṭa-  
+pradāyānatānāṃ samūhāya śīghram❘  
+pratīpāya namraughaduḥkhāghapaṅkte-  
+rmudā sarvadā syānnamaḥ śaṅkarāya 
+‖8‖
+
+viniśhkāsitānīśa tattvāvabodhā -  
+nnatānāṃ manobhyo hyananyāśrayāṇi ❘  
+rajāṃsi prapannāni pādāmbujātaṃ  
+guro raktavastrāpadeśādbibharśhi 
+‖9‖
+
+matervedaśīrśhādhvasamprāpakāyā-  
+natānāṃ janānāṃ kṛpārdraiḥ kaṭākśhaiḥ ❘  
+tateḥ pāpabṛndasya śīghraṃ nihantre  
+smitāsyāya kurmo namaḥ śaṅkarāya 
+‖10‖
+
+suparvoktigandhena hīnāya tūrṇaṃ  
+purā toṭakāyākhilaGYānadātre❘  
+pravālīyagarvāpahārasya kartre  
+padābjamradimnā namaḥ śaṅkarāya 
+‖11‖
+
+bhavāmbhodhimagnānjanānduḥkhayuktān  
+javāduddidhīrśhurbhavānityahoaham ❘  
+viditvā hi te kīrtimanyādṛśāmbho  
+sukhaṃ nirviśaṅkaḥ svapimyastayatnaḥ 
+‖12‖
+
+
+‖iti śrīśaṅkarācārya bhujaṅgaprayātastotram‖
+
+### PlainEnglish
+
+#### shiva bhujaMga prayaata stotram
+
+kRRipaasaagaraayaashukaavyapradaaya  
+praNamraakhilaabheeshhTasandaayakaaya ❘  
+yateendrairupaasyaanghripaathoruhaaya  
+prabodhapradaatre namaH shankaraaya 
+‖1‖
+
+cidaanandaroopaaya cinmudrikodya-  
+tkaraayeshaparyaayaroopaaya tubhyam ❘  
+mudaa geeyamaanaaya vedottamaangaiH  
+shritaanandadaatre namaH shankaraaya 
+‖2‖
+
+jaTaajooTamadhye puraa yaa suraaNaaM  
+dhunee saadya karmandiroopasya shambhoH  
+gale mallikaamaalikaavyaajataste  
+vibhaateeti manye guro kiM tathaiva 
+‖3‖
+
+nakhenduprabhaadhootanamraalihaardaa-  
+ndhakaaravrajaayaabjamandasmitaaya ❘  
+mahaamohapaathonidherbaaDabaaya  
+prashaantaaya kurmo namaH shankaraaya 
+‖4‖
+
+praNamraantarangaabjabodhapradaatre  
+divaaraatramavyaahatosraaya kaamam ❘  
+kshhapeshaaya citraaya lakshhma kshhayaabhyaaM  
+viheenaaya kurmo namaH shankaraaya 
+‖5‖
+
+praNamraasyapaathojamodapradaatre  
+sadaantastamastomasaMhaarakartre ❘  
+rajanyaa mapeeddhaprakaashaaya kurmo  
+hyapoorvaaya pooshhNe namaH shankaraaya 
+‖6‖
+
+nataanaaM hRRidabjaani phullaani sheeghraM  
+karomyaashu yogapradaanena noonam ❘  
+prabodhaaya cetthaM sarojaani dhatse  
+praphullaani kiM bho guro broohi mahyam 
+‖7‖
+
+prabhaadhootacandraayutaayaakhileshhTa-  
+pradaayaanataanaaM samoohaaya sheeghram❘  
+prateepaaya namraughaduHkhaaghapankte-  
+rmudaa sarvadaa syaannamaH shankaraaya 
+‖8‖
+
+vinishhkaasitaaneesha tattvaavabodhaa -  
+nnataanaaM manobhyo hyananyaashrayaaNi ❘  
+rajaaMsi prapannaani paadaambujaataM  
+guro raktavastraapadeshaadbibharshhi 
+‖9‖
+
+matervedasheershhaadhvasampraapakaayaa-  
+nataanaaM janaanaaM kRRipaardraiH kaTaakshhaiH ❘  
+tateH paapabRRindasya sheeghraM nihantre  
+smitaasyaaya kurmo namaH shankaraaya 
+‖10‖
+
+suparvoktigandhena heenaaya toorNaM  
+puraa toTakaayaakhilagnyaanadaatre❘  
+pravaaleeyagarvaapahaarasya kartre  
+padaabjamradimnaa namaH shankaraaya 
+‖11‖
+
+bhavaambhodhimagnaanjanaanduHkhayuktaan  
+javaaduddidheershhurbhavaanityaho.aham ❘  
+viditvaa hi te keertimanyaadRRishaambho  
+sukhaM nirvishankaH svapimyastayatnaH 
+‖12‖
+
+
+‖iti shreeshankaraacaarya bhujangaprayaatastotram‖
+

@@ -666,3 +666,119 @@ iti shree shaMkaraacaarya viracita shreegoviMdaashhTakaM samaaptaM
 
 ఇతి శ్రీ శంకరాచార్య విరచిత శ్రీగోవిందాష్టకం సమాప్తం  
 
+### English
+
+#### govindāśhṭakam
+
+satyaṃ GYānamanantaṃ nityamanākāśaṃ paramākāśam ❘  
+gośhṭhaprāṅgaṇariṅkhaṇalolamanāyāsaṃ paramāyāsam ❘  
+māyākalpitanānākāramanākāraṃ bhuvanākāram ❘  
+kśhmāmānāthamanāthaṃ praṇamata govindaṃ paramānandam 
+‖ 1 ‖
+
+mṛtsnāmatsīheti yaśodātāḍanaśaiśava santrāsam ❘  
+vyāditavaktrālokitalokālokacaturdaśalokālim ❘  
+lokatrayapuramūlastambhaṃ lokālokamanālokam ❘  
+lokeśaṃ parameśaṃ praṇamata govindaṃ paramānandam 
+‖ 2 ‖
+
+traiviśhṭaparipuvīraghnaṃ kśhitibhāraghnaṃ bhavarogaghnam ❘  
+kaivalyaṃ navanītāhāramanāhāraṃ bhuvanāhāram ❘  
+vaimalyasphuṭacetovṛttiviśeśhābhāsamanābhāsam ❘  
+śaivaṃ kevalaśāntaṃ praṇamata govindaṃ paramānandam 
+‖ 3 ‖
+
+gopālaṃ prabhulīlāvigrahagopālaṃ kulagopālam ❘  
+gopīkhelanagovardhanadhṛtilīlālālitagopālam ❘  
+gobhirnigadita govindasphuṭanāmānaṃ bahunāmānam ❘  
+gopīgocaradūraṃ praṇamata govindaṃ paramānandam 
+‖ 4 ‖
+
+gopīmaṇḍalagośhṭhībhedaṃ bhedāvasthamabhedābham ❘  
+śaśvadgokhuranirdhūtodgata dhūḻīdhūsarasaubhāgyam ❘  
+śraddhābhaktigṛhītānandamacintyaṃ cintitasadbhāvam ❘  
+cintāmaṇimahimānaṃ praṇamata govindaṃ paramānandam 
+‖ 5 ‖
+
+snānavyākulayośhidvastramupādāyāgamupārūḍham ❘  
+vyāditsantīratha digvastrā dātumupākarśhantaṃ tāḥ  
+nirdhūtadvayaśokavimohaṃ buddhaṃ buddherantastham ❘  
+sattāmātraśarīraṃ praṇamata govindaṃ paramānandam 
+‖ 6 ‖
+
+kāntaṃ kāraṇakāraṇamādimanādiṃ kāladhanābhāsam ❘  
+kāḻindīgatakāliyaśirasi sunṛtyantam muhuratyantaṃ ❘  
+kālaṃ kālakalātītaṃ kalitāśeśhaṃ kalidośhaghnam ❘  
+kālatrayagatihetuṃ praṇamata govindaṃ paramānandam 
+‖ 7 ‖
+
+bṛndāvanabhuvi bṛndārakagaṇabṛndārādhitavandehaṃ ❘  
+kundābhāmalamandasmerasudhānandaṃ suhṛdānandaṃ ❘  
+vandyāśeśha mahāmuni mānasa vandyānandapadadvandvam ❘  
+vandyāśeśhaguṇābdhiṃ praṇamata govindaṃ paramānandam 
+‖ 8 ‖
+
+govindāśhṭakametadadhīte govindārpitacetā yaḥ ❘  
+govindācyuta mādhava viśhṇo gokulanāyaka kṛśhṇeti ❘  
+govindāṅghri sarojadhyānasudhājaladhautasamastāghaḥ ❘  
+govindaṃ paramānandāmṛtamantasthaṃ sa tamabhyeti ‖
+
+iti śrī śaṅkarācārya viracita śrīgovindāśhṭakaṃ samāptaṃ  
+### PlainEnglish
+
+#### goviMdaashhTakam
+
+satyaM gnyaanamanaMtaM nityamanaakaashaM paramaakaasham ❘  
+goshhThapraaMgaNariMkhaNalolamanaayaasaM paramaayaasam ❘  
+maayaakalpitanaanaakaaramanaakaaraM bhuvanaakaaram ❘  
+kshhmaamaanaathamanaathaM praNamata goviMdaM paramaanaMdam 
+‖ 1 ‖
+
+mRRitsnaamatseeheti yashodaataaDanashaishava saMtraasam ❘  
+vyaaditavaktraalokitalokaalokacaturdashalokaalim ❘  
+lokatrayapuramoolastaMbhaM lokaalokamanaalokam ❘  
+lokeshaM parameshaM praNamata goviMdaM paramaanaMdam 
+‖ 2 ‖
+
+traivishhTaparipuveeraghnaM kshhitibhaaraghnaM bhavarogaghnam ❘  
+kaivalyaM navaneetaahaaramanaahaaraM bhuvanaahaaram ❘  
+vaimalyasphuTacetovRRittivisheshhaabhaasamanaabhaasam ❘  
+shaivaM kevalashaaMtaM praNamata goviMdaM paramaanaMdam 
+‖ 3 ‖
+
+gopaalaM prabhuleelaavigrahagopaalaM kulagopaalam ❘  
+gopeekhelanagovardhanadhRRitileelaalaalitagopaalam ❘  
+gobhirnigadita goviMdasphuTanaamaanaM bahunaamaanam ❘  
+gopeegocaradooraM praNamata goviMdaM paramaanaMdam 
+‖ 4 ‖
+
+gopeemaMDalagoshhTheebhedaM bhedaavasthamabhedaabham ❘  
+shashvadgokhuranirdhootodgata dhooLeedhoosarasaubhaagyam ❘  
+shraddhaabhaktigRRiheetaanaMdamaciMtyaM ciMtitasadbhaavam ❘  
+ciMtaamaNimahimaanaM praNamata goviMdaM paramaanaMdam 
+‖ 5 ‖
+
+snaanavyaakulayoshhidvastramupaadaayaagamupaarooDham ❘  
+vyaaditsaMteeratha digvastraa daatumupaakarshhaMtaM taaH  
+nirdhootadvayashokavimohaM buddhaM buddheraMtastham ❘  
+sattaamaatrashareeraM praNamata goviMdaM paramaanaMdam 
+‖ 6 ‖
+
+kaaMtaM kaaraNakaaraNamaadimanaadiM kaaladhanaabhaasam ❘  
+kaaLiMdeegatakaaliyashirasi sunRRityaMtam muhuratyaMtaM ❘  
+kaalaM kaalakalaateetaM kalitaasheshhaM kalidoshhaghnam ❘  
+kaalatrayagatihetuM praNamata goviMdaM paramaanaMdam 
+‖ 7 ‖
+
+bRRiMdaavanabhuvi bRRiMdaarakagaNabRRiMdaaraadhitavaMdehaM ❘  
+kuMdaabhaamalamaMdasmerasudhaanaMdaM suhRRidaanaMdaM ❘  
+vaMdyaasheshha mahaamuni maanasa vaMdyaanaMdapadadvaMdvam ❘  
+vaMdyaasheshhaguNaabdhiM praNamata goviMdaM paramaanaMdam 
+‖ 8 ‖
+
+goviMdaashhTakametadadheete goviMdaarpitacetaa yaH ❘  
+goviMdaacyuta maadhava vishhNo gokulanaayaka kRRishhNeti ❘  
+goviMdaaMghri sarojadhyaanasudhaajaladhautasamastaaghaH ❘  
+goviMdaM paramaanaMdaamRRitamaMtasthaM sa tamabhyeti ‖
+
+iti shree shaMkaraacaarya viracita shreegoviMdaashhTakaM samaaptaM  

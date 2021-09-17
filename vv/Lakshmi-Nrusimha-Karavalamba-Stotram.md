@@ -718,3 +718,147 @@ ye tatpaThaMti manujaa haribhaktiyuktaa-ste yaaMti tatpadasarojamakhaMDaroopam �
 లక్ష్మీనృసింహచరణాబ్జమధువ్రతేన స్తోత్రం కృతం శుభకరం భువి శంకరేణ ❘  
 యే తత్పఠంతి మనుజా హరిభక్తియుక్తా-స్తే యాంతి తత్పదసరోజమఖండరూపమ్ ‖ 17 ‖  
 
+### English
+
+#### lakśhmī nṛsiṃha karāvalamba stotram
+
+śrīmatpayonidhiniketana cakrapāṇe bhogīndrabhogamaṇirājita puṇyamūrte ❘  
+yogīśa śāśvata śaraṇya bhavābdhipota lakśhmīnṛsiṃha mama dehi karāvalambam 
+‖ 1 ‖
+
+brahmendrarudramarudarkakirīṭakoṭi saṅghaṭṭitāṅghrikamalāmalakāntikānta ❘  
+lakśhmīlasatkucasaroruharājahaṃsa lakśhmīnṛsiṃha mama dehi karāvalambam 
+‖ 2 ‖
+
+saṃsāradāvadahanākarabhīkaroru-jvālāvaḻībhiratidagdhatanūruhasya ❘  
+tvatpādapadmasarasīruhamāgatasya lakśhmīnṛsiṃha mama dehi karāvalambam 
+‖ 3 ‖
+
+saṃsārajālapatitatasya jagannivāsa sarvendriyārtha baḍiśāgra jhaśhopamasya ❘  
+protkampita pracuratāluka mastakasya lakśhmīnṛsiṃha mama dehi karāvalambam 
+‖ 4 ‖
+
+saṃsārakūmapatighoramagādhamūlaṃ samprāpya duḥkhaśatasarpasamākulasya ❘  
+dīnasya deva kṛpayā padamāgatasya lakśhmīnṛsiṃha mama dehi karāvalambam 
+‖ 5 ‖
+
+saṃsārabhīkarakarīndrakarābhighāta niśhpīḍyamānavapuśhaḥ sakalārtināśa ❘  
+prāṇaprayāṇabhavabhītisamākulasya lakśhmīnṛsiṃha mama dehi karāvalambam 
+‖ 6 ‖
+
+saṃsārasarpaviśhadigdhamahogratīvra daṃśhṭrāgrakoṭiparidaśhṭavinaśhṭamūrteḥ ❘  
+nāgārivāhana sudhābdhinivāsa śaure lakśhmīnṛsiṃha mama dehi karāvalambam 
+‖ 7 ‖
+
+saṃsāravṛkśhabījamanantakarma-śākhāyutaṃ karaṇapatramanaṅgapuśhpam ❘  
+āruhya duḥkhaphalitaḥ cakitaḥ dayāḻo lakśhmīnṛsiṃha mama dehi karāvalambam 
+‖ 8 ‖
+
+saṃsārasāgaraviśālakarāḻakāḻa nakragrahagrasitanigrahavigrahasya ❘  
+vyagrasya rāganicayorminipīḍitasya lakśhmīnṛsiṃha mama dehi karāvalambam 
+‖ 9 ‖
+
+saṃsārasāgaranimajjanamuhyamānaṃ dīnaṃ vilokaya vibho karuṇānidhe mām ❘  
+prahlādakhedaparihāraparāvatāra lakśhmīnṛsiṃha mama dehi karāvalambam 
+‖ 10 ‖
+
+saṃsāraghoragahane carato murāre mārograbhīkaramṛgapracurārditasya ❘  
+ārtasya matsaranidāghasuduḥkhitasya lakśhmīnṛsiṃha mama dehi karāvalambam 
+‖ 11 ‖
+
+baddhvā gale yamabhaṭā bahu tarjayanta karśhanti yatra bhavapāśaśatairyutaṃ mām ❘  
+ekākinaṃ paravaśaṃ cakitaṃ dayāḻo lakśhmīnṛsiṃha mama dehi karāvalambam 
+‖ 12 ‖
+
+lakśhmīpate kamalanābha sureśa viśhṇo yaGYeśa yaGYa madhusūdana viśvarūpa ❘  
+brahmaṇya keśava janārdana vāsudeva lakśhmīnṛsiṃha mama dehi karāvalambam 
+‖ 13 ‖
+
+ekena cakramapareṇa kareṇa śaṅkha-manyena sindhutanayāmavalambya tiśhṭhan ❘  
+vāmetareṇa varadābhayapadmacihnaṃ lakśhmīnṛsiṃha mama dehi karāvalambam 
+‖ 14 ‖
+
+andhasya me hṛtavivekamahādhanasya corairmahābalibhirindriyanāmadheyaiḥ ❘  
+mohāndhakārakuhare vinipātitasya lakśhmīnṛsiṃha mama dehi karāvalambam 
+‖ 15 ‖
+
+prahlādanāradaparāśarapuṇḍarīka-vyāsādibhāgavatapuṅgavahṛnnivāsa ❘  
+bhaktānuraktaparipālanapārijāta lakśhmīnṛsiṃha mama dehi karāvalambam 
+‖ 16 ‖
+
+lakśhmīnṛsiṃhacaraṇābjamadhuvratena stotraṃ kṛtaṃ śubhakaraṃ bhuvi śaṅkareṇa ❘  
+ye tatpaṭhanti manujā haribhaktiyuktā-ste yānti tatpadasarojamakhaṇḍarūpam 
+‖ 17 ‖
+
+### PlainEnglish
+
+#### lakshhmee nRRisiMha karaavalaMba stotram
+
+shreematpayonidhiniketana cakrapaaNe bhogeeMdrabhogamaNiraajita puNyamoorte ❘  
+yogeesha shaashvata sharaNya bhavaabdhipota lakshhmeenRRisiMha mama dehi karaavalaMbam 
+‖ 1 ‖
+
+brahmeMdrarudramarudarkakireeTakoTi saMghaTTitaaMghrikamalaamalakaaMtikaaMta ❘  
+lakshhmeelasatkucasaroruharaajahaMsa lakshhmeenRRisiMha mama dehi karaavalaMbam 
+‖ 2 ‖
+
+saMsaaradaavadahanaakarabheekaroru-jvaalaavaLeebhiratidagdhatanooruhasya ❘  
+tvatpaadapadmasaraseeruhamaagatasya lakshhmeenRRisiMha mama dehi karaavalaMbam 
+‖ 3 ‖
+
+saMsaarajaalapatitatasya jagannivaasa sarveMdriyaartha baDishaagra jhashhopamasya ❘  
+protkaMpita pracurataaluka mastakasya lakshhmeenRRisiMha mama dehi karaavalaMbam 
+‖ 4 ‖
+
+saMsaarakoomapatighoramagaadhamoolaM saMpraapya duHkhashatasarpasamaakulasya ❘  
+deenasya deva kRRipayaa padamaagatasya lakshhmeenRRisiMha mama dehi karaavalaMbam 
+‖ 5 ‖
+
+saMsaarabheekarakareeMdrakaraabhighaata nishhpeeDyamaanavapushhaH sakalaartinaasha ❘  
+praaNaprayaaNabhavabheetisamaakulasya lakshhmeenRRisiMha mama dehi karaavalaMbam 
+‖ 6 ‖
+
+saMsaarasarpavishhadigdhamahograteevra daMshhTraagrakoTiparidashhTavinashhTamoorteH ❘  
+naagaarivaahana sudhaabdhinivaasa shaure lakshhmeenRRisiMha mama dehi karaavalaMbam 
+‖ 7 ‖
+
+saMsaaravRRikshhabeejamanaMtakarma-shaakhaayutaM karaNapatramanaMgapushhpam ❘  
+aaruhya duHkhaphalitaH cakitaH dayaaLo lakshhmeenRRisiMha mama dehi karaavalaMbam 
+‖ 8 ‖
+
+saMsaarasaagaravishaalakaraaLakaaLa nakragrahagrasitanigrahavigrahasya ❘  
+vyagrasya raaganicayorminipeeDitasya lakshhmeenRRisiMha mama dehi karaavalaMbam 
+‖ 9 ‖
+
+saMsaarasaagaranimajjanamuhyamaanaM deenaM vilokaya vibho karuNaanidhe maam ❘  
+prahlaadakhedaparihaaraparaavataara lakshhmeenRRisiMha mama dehi karaavalaMbam 
+‖ 10 ‖
+
+saMsaaraghoragahane carato muraare maarograbheekaramRRigapracuraarditasya ❘  
+aartasya matsaranidaaghasuduHkhitasya lakshhmeenRRisiMha mama dehi karaavalaMbam 
+‖ 11 ‖
+
+baddhvaa gale yamabhaTaa bahu tarjayaMta karshhaMti yatra bhavapaashashatairyutaM maam ❘  
+ekaakinaM paravashaM cakitaM dayaaLo lakshhmeenRRisiMha mama dehi karaavalaMbam 
+‖ 12 ‖
+
+lakshhmeepate kamalanaabha suresha vishhNo yagnyesha yagnya madhusoodana vishvaroopa ❘  
+brahmaNya keshava janaardana vaasudeva lakshhmeenRRisiMha mama dehi karaavalaMbam 
+‖ 13 ‖
+
+ekena cakramapareNa kareNa shaMkha-manyena siMdhutanayaamavalaMbya tishhThan ❘  
+vaametareNa varadaabhayapadmacihnaM lakshhmeenRRisiMha mama dehi karaavalaMbam 
+‖ 14 ‖
+
+aMdhasya me hRRitavivekamahaadhanasya corairmahaabalibhiriMdriyanaamadheyaiH ❘  
+mohaaMdhakaarakuhare vinipaatitasya lakshhmeenRRisiMha mama dehi karaavalaMbam 
+‖ 15 ‖
+
+prahlaadanaaradaparaasharapuMDareeka-vyaasaadibhaagavatapuMgavahRRinnivaasa ❘  
+bhaktaanuraktaparipaalanapaarijaata lakshhmeenRRisiMha mama dehi karaavalaMbam 
+‖ 16 ‖
+
+lakshhmeenRRisiMhacaraNaabjamadhuvratena stotraM kRRitaM shubhakaraM bhuvi shaMkareNa ❘  
+ye tatpaThaMti manujaa haribhaktiyuktaa-ste yaaMti tatpadasarojamakhaMDaroopam 
+‖ 17 ‖
+

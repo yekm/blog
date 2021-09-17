@@ -822,3 +822,155 @@ sharaNye tryambake gauri naaraayaNi namo.astu te ‖ 13 ‖
 సర్వ-మంగల-మాంగల్యే శివే సర్వార్థ-సాధికే ❘  
 శరణ్యే త్ర్యంబకే గౌరి నారాయణి నమోఽస్తు తే ‖ 13 ‖  
 
+### English
+
+#### śrī annapūrṇā stotram
+
+nityānandakarī varābhayakarī saundarya ratnākarī  
+nirdhūtākhila ghora pāvanakarī pratyakśha māheśvarī ❘  
+prāleyāchala vaṃśa pāvanakarī kāśīpurādhīśvarī  
+bhikśhāṃ dehi kṛpāvalambanakarī mātānnapūrṇeśvarī 
+‖ 1 ‖
+
+nānā ratna vichitra bhūśhaṇakari hemāmbarāḍambarī  
+muktāhāra vilambamāna vilasat-vakśhoja kumbhāntarī ❘  
+kāśmīrāgaru vāsitā ruchikarī kāśīpurādhīśvarī  
+bhikśhāṃ dehi kṛpāvalambanakarī mātānnapūrṇeśvarī 
+‖ 2 ‖
+
+yogānandakarī ripukśhayakarī dharmaikya niśhṭhākarī  
+chandrārkānala bhāsamāna laharī trailokya rakśhākarī ❘  
+sarvaiśvaryakarī tapaḥ phalakarī kāśīpurādhīśvarī  
+bhikśhāṃ dehi kṛpāvalambanakarī mātānnapūrṇeśvarī 
+‖ 3 ‖
+
+kailāsāchala kandarālayakarī gaurī-hyumāśāṅkarī   
+kaumārī nigamārtha-gocharakarī-hyoṅkāra-bījākśharī ❘  
+mokśhadvāra-kavāṭapāṭanakarī kāśīpurādhīśvarī   
+bhikśhāṃ dehi kṛpāvalambanakarī mātānnapūrṇeśvarī 
+‖ 4 ‖
+
+dṛśyādṛśya-vibhūti-vāhanakarī brahmāṇḍa-bhāṇḍodarī   
+līlā-nāṭaka-sūtra-khelanakarī viGYāna-dīpāṅkurī ❘  
+śrīviśveśamanaḥ-prasādanakarī kāśīpurādhīśvarī   
+bhikśhāṃ dehi kṛpāvalambanakarī mātānnapūrṇeśvarī 
+‖ 5 ‖
+
+urvīsarvajayeśvarī jayakarī mātā kṛpāsāgarī   
+veṇī-nīlasamāna-kuntaladharī nityānna-dāneśvarī ❘  
+sākśhānmokśhakarī sadā śubhakarī kāśīpurādhīśvarī   
+bhikśhāṃ dehi kṛpāvalambanakarī mātānnapūrṇeśvarī 
+‖ 6 ‖
+
+ādikśhānta-samastavarṇanakarī śambhostribhāvākarī   
+kāśmīrā tripureśvarī trinayani viśveśvarī śarvarī ❘  
+svargadvāra-kapāṭa-pāṭanakarī kāśīpurādhīśvarī   
+bhikśhāṃ dehi kṛpāvalambanakarī mātānnapūrṇeśvarī 
+‖ 7 ‖
+
+devī sarvavichitra-ratnaruchitā dākśhāyiṇī sundarī   
+vāmā-svādupayodharā priyakarī saubhāgyamāheśvarī ❘  
+bhaktābhīśhṭakarī sadā śubhakarī kāśīpurādhīśvarī   
+bhikśhāṃ dehi kṛpāvalambanakarī mātānnapūrṇeśvarī 
+‖ 8 ‖
+
+chandrārkānala-koṭikoṭi-sadṛśī chandrāṃśu-bimbādharī   
+chandrārkāgni-samāna-kuṇḍala-dharī chandrārka-varṇeśvarī   
+mālā-pustaka-pāśasāṅkuśadharī kāśīpurādhīśvarī   
+bhikśhāṃ dehi kṛpāvalambanakarī mātānnapūrṇeśvarī 
+‖ 9 ‖
+
+kśhatratrāṇakarī mahābhayakarī mātā kṛpāsāgarī   
+sarvānandakarī sadā śivakarī viśveśvarī śrīdharī ❘  
+dakśhākrandakarī nirāmayakarī kāśīpurādhīśvarī   
+bhikśhāṃ dehi kṛpāvalambanakarī mātānnapūrṇeśvarī 
+‖ 10 ‖
+
+annapūrṇe sādāpūrṇe śaṅkara-prāṇavallabhe ❘  
+GYāna-vairāgya-siddhayarthaṃ bikbiṃ dehi cha pārvatī 
+‖ 11 ‖
+
+mātā cha pārvatīdevī pitādevo maheśvaraḥ ❘  
+bāndhavā: śivabhaktāścha svadeśo bhuvanatrayam  
+‖ 12 ‖
+
+sarva-maṅgala-māṅgalye śive sarvārtha-sādhike ❘  
+śaraṇye tryambake gauri nārāyaṇi namoastu te 
+‖ 13 ‖
+
+### PlainEnglish
+
+#### shree annapoorNaa stotram
+
+nityaanandakaree varaabhayakaree sauMdarya ratnaakaree  
+nirdhootaakhila ghora paavanakaree pratyakshha maaheshvaree ❘  
+praaleyaachala vaMsha paavanakaree kaasheepuraadheeshvaree  
+bhikshhaaM dehi kRRipaavalambanakaree maataannapoorNeshvaree 
+‖ 1 ‖
+
+naanaa ratna vichitra bhooshhaNakari hemaambaraaDambaree  
+muktaahaara vilambamaana vilasat-vakshhoja kumbhaantaree ❘  
+kaashmeeraagaru vaasitaa ruchikaree kaasheepuraadheeshvaree  
+bhikshhaaM dehi kRRipaavalambanakaree maataannapoorNeshvaree 
+‖ 2 ‖
+
+yogaanandakaree ripukshhayakaree dharmaikya nishhThaakaree  
+chaMdraarkaanala bhaasamaana laharee trailokya rakshhaakaree ❘  
+sarvaishvaryakaree tapaH phalakaree kaasheepuraadheeshvaree  
+bhikshhaaM dehi kRRipaavalambanakaree maataannapoorNeshvaree 
+‖ 3 ‖
+
+kailaasaachala kandaraalayakaree gauree-hyumaashaankaree   
+kaumaaree nigamaartha-gocharakaree-hyonkaara-beejaakshharee ❘  
+mokshhadvaara-kavaaTapaaTanakaree kaasheepuraadheeshvaree   
+bhikshhaaM dehi kRRipaavalambanakaree maataannapoorNeshvaree 
+‖ 4 ‖
+
+dRRishyaadRRishya-vibhooti-vaahanakaree brahmaaNDa-bhaaNDodaree   
+leelaa-naaTaka-sootra-khelanakaree vignyaana-deepaankuree ❘  
+shreevishveshamanaH-prasaadanakaree kaasheepuraadheeshvaree   
+bhikshhaaM dehi kRRipaavalambanakaree maataannapoorNeshvaree 
+‖ 5 ‖
+
+urveesarvajayeshvaree jayakaree maataa kRRipaasaagaree   
+veNee-neelasamaana-kuntaladharee nityaanna-daaneshvaree ❘  
+saakshhaanmokshhakaree sadaa shubhakaree kaasheepuraadheeshvaree   
+bhikshhaaM dehi kRRipaavalambanakaree maataannapoorNeshvaree 
+‖ 6 ‖
+
+aadikshhaanta-samastavarNanakaree shaMbhostribhaavaakaree   
+kaashmeeraa tripureshvaree trinayani vishveshvaree sharvaree ❘  
+svargadvaara-kapaaTa-paaTanakaree kaasheepuraadheeshvaree   
+bhikshhaaM dehi kRRipaavalambanakaree maataannapoorNeshvaree 
+‖ 7 ‖
+
+devee sarvavichitra-ratnaruchitaa daakshhaayiNee sundaree   
+vaamaa-svaadupayodharaa priyakaree saubhaagyamaaheshvaree ❘  
+bhaktaabheeshhTakaree sadaa shubhakaree kaasheepuraadheeshvaree   
+bhikshhaaM dehi kRRipaavalambanakaree maataannapoorNeshvaree 
+‖ 8 ‖
+
+chandraarkaanala-koTikoTi-sadRRishee chandraaMshu-bimbaadharee   
+chandraarkaagni-samaana-kuMDala-dharee chaMdraarka-varNeshvaree   
+maalaa-pustaka-paashasaankushadharee kaasheepuraadheeshvaree   
+bhikshhaaM dehi kRRipaavalambanakaree maataannapoorNeshvaree 
+‖ 9 ‖
+
+kshhatratraaNakaree mahaabhayakaree maataa kRRipaasaagaree   
+sarvaanandakaree sadaa shivakaree vishveshvaree shreedharee ❘  
+dakshhaakrandakaree niraamayakaree kaasheepuraadheeshvaree   
+bhikshhaaM dehi kRRipaavalambanakaree maataannapoorNeshvaree 
+‖ 10 ‖
+
+annapoorNe saadaapoorNe shankara-praaNavallabhe ❘  
+gnyaana-vairaagya-siddhayarthaM bikbiM dehi cha paarvatee 
+‖ 11 ‖
+
+maataa cha paarvateedevee pitaadevo maheshvaraH ❘  
+baaMdhavaa: shivabhaktaashcha svadesho bhuvanatrayam  
+‖ 12 ‖
+
+sarva-mangala-maangalye shive sarvaartha-saadhike ❘  
+sharaNye tryambake gauri naaraayaNi namo.astu te 
+‖ 13 ‖
+

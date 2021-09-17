@@ -406,3 +406,81 @@ suputraM sudhaanyaM sumitraM kaLatraM vicitraissamaaraadhya mokshhaM prayaati �
 స్వయం యః ప్రభాతే నరశ్శూల పాణే పఠేత్ స్తోత్రరత్నం త్విహప్రాప్యరత్నం ❘  
 సుపుత్రం సుధాన్యం సుమిత్రం కళత్రం విచిత్రైస్సమారాధ్య మోక్షం ప్రయాతి ‖  
 
+### English
+
+#### śivāśhṭakam
+
+prabhuṃ prāṇanāthaṃ vibhuṃ viśvanāthaṃ jagannātha nāthaṃ sadānanda bhājāṃ ❘  
+bhavadbhavya bhūteśvaraṃ bhūtanāthaṃ, śivaṃ śaṅkaraṃ śambhu mīśānamīḍe 
+‖ 1 ‖
+
+gaḻe ruṇḍamālaṃ tanau sarpajālaṃ mahākāla kālaṃ gaṇeśādi pālaṃ ❘  
+jaṭājūṭa gaṅgottaraṅgairviśālaṃ, śivaṃ śaṅkaraṃ śambhu mīśānamīḍe 
+‖ 2‖
+
+mudāmākaraṃ maṇḍanaṃ maṇḍayantaṃ mahā maṇḍalaṃ bhasma bhūśhādharaṃ tam ❘  
+anādiṃ hyapāraṃ mahā mohamāraṃ, śivaṃ śaṅkaraṃ śambhu mīśānamīḍe 
+‖ 3 ‖
+
+vaṭādho nivāsaṃ mahāṭṭāṭṭahāsaṃ mahāpāpa nāśaṃ sadā suprakāśam ❘  
+girīśaṃ gaṇeśaṃ sureśaṃ maheśaṃ, śivaṃ śaṅkaraṃ śambhu mīśānamīḍe 
+‖ 4 ‖
+
+girīndrātmajā saṅgṛhītārdhadehaṃ girau saṃsthitaṃ sarvadāpanna geham ❘  
+parabrahma brahmādibhir-vandyamānaṃ, śivaṃ śaṅkaraṃ śambhu mīśānamīḍe 
+‖ 5 ‖
+
+kapālaṃ triśūlaṃ karābhyāṃ dadhānaṃ padāmbhoja namrāya kāmaṃ dadānam ❘  
+balīvardhamānaṃ surāṇāṃ pradhānaṃ, śivaṃ śaṅkaraṃ śambhu mīśānamīḍe 
+‖ 6 ‖
+
+śaraccandra gātraṃ gaṇānandapātraṃ trinetraṃ pavitraṃ dhaneśasya mitram ❘  
+aparṇā kaḻatraṃ sadā saccaritraṃ, śivaṃ śaṅkaraṃ śambhu mīśānamīḍe 
+‖ 7 ‖
+
+haraṃ sarpahāraṃ citā bhūvihāraṃ bhavaṃ vedasāraṃ sadā nirvikāraṃ❘  
+śmaśāne vasantaṃ manojaṃ dahantaṃ, śivaṃ śaṅkaraṃ śambhu mīśānamīḍe 
+‖ 8 ‖
+
+svayaṃ yaḥ prabhāte naraśśūla pāṇe paṭhet stotraratnaṃ tvihaprāpyaratnaṃ ❘  
+suputraṃ sudhānyaṃ sumitraṃ kaḻatraṃ vicitraissamārādhya mokśhaṃ prayāti ‖
+
+### PlainEnglish
+
+#### shivaashhTakam
+
+prabhuM praaNanaathaM vibhuM vishvanaathaM jagannaatha naathaM sadaanaMda bhaajaaM ❘  
+bhavadbhavya bhooteshvaraM bhootanaathaM, shivaM shaMkaraM shaMbhu meeshaanameeDe 
+‖ 1 ‖
+
+gaLe ruMDamaalaM tanau sarpajaalaM mahaakaala kaalaM gaNeshaadi paalaM ❘  
+jaTaajooTa gaMgottaraMgairvishaalaM, shivaM shaMkaraM shaMbhu meeshaanameeDe 
+‖ 2‖
+
+mudaamaakaraM maMDanaM maMDayaMtaM mahaa maMDalaM bhasma bhooshhaadharaM tam ❘  
+anaadiM hyapaaraM mahaa mohamaaraM, shivaM shaMkaraM shaMbhu meeshaanameeDe 
+‖ 3 ‖
+
+vaTaadho nivaasaM mahaaTTaaTTahaasaM mahaapaapa naashaM sadaa suprakaasham ❘  
+gireeshaM gaNeshaM sureshaM maheshaM, shivaM shaMkaraM shaMbhu meeshaanameeDe 
+‖ 4 ‖
+
+gireeMdraatmajaa saMgRRiheetaardhadehaM girau saMsthitaM sarvadaapanna geham ❘  
+parabrahma brahmaadibhir-vaMdyamaanaM, shivaM shaMkaraM shaMbhu meeshaanameeDe 
+‖ 5 ‖
+
+kapaalaM trishoolaM karaabhyaaM dadhaanaM padaambhoja namraaya kaamaM dadaanam ❘  
+baleevardhamaanaM suraaNaaM pradhaanaM, shivaM shaMkaraM shaMbhu meeshaanameeDe 
+‖ 6 ‖
+
+sharaccaMdra gaatraM gaNaanaMdapaatraM trinetraM pavitraM dhaneshasya mitram ❘  
+aparNaa kaLatraM sadaa saccaritraM, shivaM shaMkaraM shaMbhu meeshaanameeDe 
+‖ 7 ‖
+
+haraM sarpahaaraM citaa bhoovihaaraM bhavaM vedasaaraM sadaa nirvikaaraM❘  
+shmashaane vasaMtaM manojaM dahaMtaM, shivaM shaMkaraM shaMbhu meeshaanameeDe 
+‖ 8 ‖
+
+svayaM yaH prabhaate narashshoola paaNe paThet stotraratnaM tvihapraapyaratnaM ❘  
+suputraM sudhaanyaM sumitraM kaLatraM vicitraissamaaraadhya mokshhaM prayaati ‖
+

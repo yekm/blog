@@ -1384,3 +1384,209 @@ Victory unto Siva, the Ocean of Compassion, the Great God, the Abode of Blessedn
 
 ‖ఇతి శ్రీమద్ శంకరాచార్యకృత శివాపరాధక్షమాపణ స్తోత్రం సంపూర్ణమ్ ‖  
 
+### English
+
+#### śivāparādha kśhamāpaṇa stotram
+
+ādau karmaprasaṅgātkalayati kaluśhaṃ mātṛkukśhau sthitaṃ māṃ  
+viṇmūtrāmedhyamadhye kathayati nitarāṃ jāṭharo jātavedāḥ ❘  
+yadyadvai tatra duḥkhaṃ vyathayati nitarāṃ śakyate kena vaktuṃ  
+kśhantavyo meaparādhaḥ śiva śiva śiva bho śrī mahādeva śambho 
+‖1‖
+
+bālye duḥkhātireko malalulitavapuḥ stanyapāne pipāsā  
+no śaktaścendriyebhyo bhavaguṇajanitāḥ jantavo māṃ tudanti ❘  
+nānārogādiduḥkhādrudanaparavaśaḥ śaṅkaraṃ na smarāmi  
+kśhantavyo meaparādhaḥ śiva śiva śiva bho śrī mahādeva śambho 
+‖2‖
+
+prauḍhoahaṃ yauvanastho viśhayaviśhadharaiḥ pañcabhirmarmasandhau  
+daśhṭo naśhṭoavivekaḥ sutadhanayuvatisvādusaukhye niśhaṇṇaḥ ❘  
+śaivīcintāvihīnaṃ mama hṛdayamaho mānagarvādhirūḍhaṃ  
+kśhantavyo meaparādhaḥ śiva śiva śiva bho śrī mahādeva śambho 
+‖3‖
+
+vārdhakye cendriyāṇāṃ vigatagatimatiścādhidaivāditāpaiḥ  
+pāpai rogairviyogaistvanavasitavapuḥ prauḍhahīnaṃ ca dīnam ❘  
+mithyāmohābhilāśhairbhramati mama mano dhūrjaṭerdhyānaśūnyaṃ  
+kśhantavyo meaparādhaḥ śiva śiva śiva bho śrī mahādeva śambho 
+‖4‖
+
+no śakyaṃ smārtakarma pratipadagahanapratyavāyākulākhyaṃ  
+śraute vārtā kathaṃ me dvijakulavihite brahmamārgeasusāre ❘  
+GYāto dharmo vicāraiḥ śravaṇamananayoḥ kiṃ nididhyāsitavyaṃ  
+kśhantavyo meaparādhaḥ śiva śiva śiva bho śrī mahādeva śambho 
+‖5‖
+
+snātvā pratyūśhakāle snapanavidhividhau nāhṛtaṃ gāṅgatoyaṃ  
+pūjārthaṃ vā kadācidbahutaragahanātkhaṇḍabilvīdalāni ❘  
+nānītā padmamālā sarasi vikasitā gandhadhūpaiḥ tvadarthaṃ  
+kśhantavyo meaparādhaḥ śiva śiva śiva bho śrī mahādeva śambho 
+‖6‖
+
+dugdhairmadhvājyutairdadhisitasahitaiḥ snāpitaṃ naiva liṅgaṃ  
+no liptaṃ candanādyaiḥ kanakaviracitaiḥ pūjitaṃ na prasūnaiḥ ❘  
+dhūpaiḥ karpūradīpairvividharasayutairnaiva bhakśhyopahāraiḥ  
+kśhantavyo meaparādhaḥ śiva śiva śiva bho śrī mahādeva śambho 
+‖7‖
+
+dhyātvā citte śivākhyaṃ pracurataradhanaṃ naiva dattaṃ dvijebhyo  
+havyaṃ te lakśhasaṅkhyairhutavahavadane nārpitaṃ bījamantraiḥ ❘  
+no taptaṃ gāṅgātīre vratajananiyamaiḥ rudrajāpyairna vedaiḥ  
+kśhantavyo meaparādhaḥ śiva śiva śiva bho śrī mahādeva śambho 
+‖8‖
+
+sthitvā sthāne saroje praṇavamayamarutkumbhake (kuṇḍale)sūkśhmamārge  
+śānte svānte pralīne prakaṭitavibhave jyotirūpeaparākhye ❘  
+liṅgaGYe brahmavākye sakalatanugataṃ śaṅkaraṃ na smarāmi  
+kśhantavyo meaparādhaḥ śiva śiva śiva bho śrī mahādeva śambho 
+‖9‖
+
+nagno niḥsaṅgaśuddhastriguṇavirahito dhvastamohāndhakāro  
+nāsāgre nyastadṛśhṭirviditabhavaguṇo naiva dṛśhṭaḥ kadācit ❘  
+unmanyā'vasthayā tvāṃ vigatakalimalaṃ śaṅkaraṃ na smarāmi  
+kśhantavyo meaparādhaḥ śiva śiva śiva bho śrī mahādeva śambho 
+‖10‖
+
+candrodbhāsitaśekhare smarahare gaṅgādhare śaṅkare  
+sarpairbhūśhitakaṇṭhakarṇayugale (vivare)netrotthavaiśvānare ❘  
+dantitvakkṛtasundarāmbaradhare trailokyasāre hare  
+mokśhārthaṃ kuru cittavṛttimacalāmanyaistu kiṃ karmabhiḥ 
+‖11‖
+
+kiṃ vā'nena dhanena vājikaribhiḥ prāptena rājyena kiṃ  
+kiṃ vā putrakalatramitrapaśubhirdehena gehena kim ❘  
+GYātvaitatkśhaṇabhaṅguraṃ sapadi re tyājyaṃ mano dūrataḥ  
+svātmārthaṃ guruvākyato bhaja mana śrīpārvatīvallabham 
+‖12‖
+
+āyurnaśyati paśyatāṃ pratidinaṃ yāti kśhayaṃ yauvanaṃ  
+pratyāyānti gatāḥ punarna divasāḥ kālo jagadbhakśhakaḥ ❘  
+lakśhmīstoyataraṅgabhaṅgacapalā vidyuccalaṃ jīvitaṃ  
+tasmāttvāṃ (māṃ)śaraṇāgataṃ śaraṇada tvaṃ rakśha rakśhādhunā 
+‖13‖
+
+vande devamumāpatiṃ suraguruṃ vande jagatkāraṇaṃ  
+vande pannagabhūśhaṇaṃ mṛgadharaṃ vande paśūnāṃ patim ❘  
+vande sūryaśaśāṅkavahninayanaṃ vande mukundapriyaṃ  
+vande bhaktajanāśrayaṃ ca varadaṃ vande śivaṃ śaṅkaram 
+‖14‖
+
+gātraṃ bhasmasitaṃ ca hasitaṃ haste kapālaṃ sitaṃ  
+khaṭvāṅgaṃ ca sitaṃ sitaśca vṛśhabhaḥ karṇe site kuṇḍale ❘  
+gaṅgāphenasitā jaṭā paśupateścandraḥ sito mūrdhani  
+soayaṃ sarvasito dadātu vibhavaṃ pāpakśhayaṃ sarvadā 
+‖15‖
+
+karacaraṇakṛtaṃ vākkāyajaṃ karmajaṃ vā  
+śravaṇanayanajaṃ vā mānasaṃ vā'parādham ❘  
+vihitamavihitaṃ vā sarvametatkśhmasva  
+śiva śiva karuṇābdhe śrī mahādeva śambho 
+‖16‖
+
+
+‖iti śrīmad śaṅkarācāryakṛta śivāparādhakśhamāpaṇa stotraṃ sampūrṇam ‖
+
+### PlainEnglish
+
+#### shivaaparaadha kshhamaapaNa stotram
+
+aadau karmaprasangaatkalayati kalushhaM maatRRikukshhau sthitaM maaM  
+viNmootraamedhyamadhye kathayati nitaraaM jaaTharo jaatavedaaH ❘  
+yadyadvai tatra duHkhaM vyathayati nitaraaM shakyate kena vaktuM  
+kshhantavyo me.aparaadhaH shiva shiva shiva bho shree mahaadeva shambho 
+‖1‖
+
+baalye duHkhaatireko malalulitavapuH stanyapaane pipaasaa  
+no shaktashcendriyebhyo bhavaguNajanitaaH jantavo maaM tudanti ❘  
+naanaarogaadiduHkhaadrudanaparavashaH shankaraM na smaraami  
+kshhantavyo me.aparaadhaH shiva shiva shiva bho shree mahaadeva shambho 
+‖2‖
+
+prauDho.ahaM yauvanastho vishhayavishhadharaiH pancabhirmarmasandhau  
+dashhTo nashhTo.avivekaH sutadhanayuvatisvaadusaukhye nishhaNNaH ❘  
+shaiveecintaaviheenaM mama hRRidayamaho maanagarvaadhirooDhaM  
+kshhantavyo me.aparaadhaH shiva shiva shiva bho shree mahaadeva shambho 
+‖3‖
+
+vaardhakye cendriyaaNaaM vigatagatimatishcaadhidaivaaditaapaiH  
+paapai rogairviyogaistvanavasitavapuH prauDhaheenaM ca deenam ❘  
+mithyaamohaabhilaashhairbhramati mama mano dhoorjaTerdhyaanashoonyaM  
+kshhantavyo me.aparaadhaH shiva shiva shiva bho shree mahaadeva shambho 
+‖4‖
+
+no shakyaM smaartakarma pratipadagahanapratyavaayaakulaakhyaM  
+shraute vaartaa kathaM me dvijakulavihite brahmamaarge.asusaare ❘  
+gnyaato dharmo vicaaraiH shravaNamananayoH kiM nididhyaasitavyaM  
+kshhantavyo me.aparaadhaH shiva shiva shiva bho shree mahaadeva shambho 
+‖5‖
+
+snaatvaa pratyooshhakaale snapanavidhividhau naahRRitaM gaangatoyaM  
+poojaarthaM vaa kadaacidbahutaragahanaatkhaNDabilveedalaani ❘  
+naaneetaa padmamaalaa sarasi vikasitaa gandhadhoopaiH tvadarthaM  
+kshhantavyo me.aparaadhaH shiva shiva shiva bho shree mahaadeva shambho 
+‖6‖
+
+dugdhairmadhvaajyutairdadhisitasahitaiH snaapitaM naiva lingaM  
+no liptaM candanaadyaiH kanakaviracitaiH poojitaM na prasoonaiH ❘  
+dhoopaiH karpooradeepairvividharasayutairnaiva bhakshhyopahaaraiH  
+kshhantavyo me.aparaadhaH shiva shiva shiva bho shree mahaadeva shambho 
+‖7‖
+
+dhyaatvaa citte shivaakhyaM pracurataradhanaM naiva dattaM dvijebhyo  
+havyaM te lakshhasankhyairhutavahavadane naarpitaM beejamantraiH ❘  
+no taptaM gaangaateere vratajananiyamaiH rudrajaapyairna vedaiH  
+kshhantavyo me.aparaadhaH shiva shiva shiva bho shree mahaadeva shambho 
+‖8‖
+
+sthitvaa sthaane saroje praNavamayamarutkumbhake (kuNDale)sookshhmamaarge  
+shaante svaante praleene prakaTitavibhave jyotiroope.aparaakhye ❘  
+lingagnye brahmavaakye sakalatanugataM shankaraM na smaraami  
+kshhantavyo me.aparaadhaH shiva shiva shiva bho shree mahaadeva shambho 
+‖9‖
+
+nagno niHsangashuddhastriguNavirahito dhvastamohaandhakaaro  
+naasaagre nyastadRRishhTirviditabhavaguNo naiva dRRishhTaH kadaacit ❘  
+unmanyaa.avasthayaa tvaaM vigatakalimalaM shankaraM na smaraami  
+kshhantavyo me.aparaadhaH shiva shiva shiva bho shree mahaadeva shambho 
+‖10‖
+
+candrodbhaasitashekhare smarahare gangaadhare shankare  
+sarpairbhooshhitakaNThakarNayugale (vivare)netrotthavaishvaanare ❘  
+dantitvakkRRitasundaraambaradhare trailokyasaare hare  
+mokshhaarthaM kuru cittavRRittimacalaamanyaistu kiM karmabhiH 
+‖11‖
+
+kiM vaa.anena dhanena vaajikaribhiH praaptena raajyena kiM  
+kiM vaa putrakalatramitrapashubhirdehena gehena kim ❘  
+gnyaatvaitatkshhaNabhanguraM sapadi re tyaajyaM mano doorataH  
+svaatmaarthaM guruvaakyato bhaja mana shreepaarvateevallabham 
+‖12‖
+
+aayurnashyati pashyataaM pratidinaM yaati kshhayaM yauvanaM  
+pratyaayaanti gataaH punarna divasaaH kaalo jagadbhakshhakaH ❘  
+lakshhmeestoyatarangabhangacapalaa vidyuccalaM jeevitaM  
+tasmaattvaaM (maaM)sharaNaagataM sharaNada tvaM rakshha rakshhaadhunaa 
+‖13‖
+
+vande devamumaapatiM suraguruM vande jagatkaaraNaM  
+vande pannagabhooshhaNaM mRRigadharaM vande pashoonaaM patim ❘  
+vande sooryashashaankavahninayanaM vande mukundapriyaM  
+vande bhaktajanaashrayaM ca varadaM vande shivaM shankaram 
+‖14‖
+
+gaatraM bhasmasitaM ca hasitaM haste kapaalaM sitaM  
+khaTvaangaM ca sitaM sitashca vRRishhabhaH karNe site kuNDale ❘  
+gangaaphenasitaa jaTaa pashupateshcandraH sito moordhani  
+so.ayaM sarvasito dadaatu vibhavaM paapakshhayaM sarvadaa 
+‖15‖
+
+karacaraNakRRitaM vaakkaayajaM karmajaM vaa  
+shravaNanayanajaM vaa maanasaM vaa.aparaadham ❘  
+vihitamavihitaM vaa sarvametatkshhmasva  
+shiva shiva karuNaabdhe shree mahaadeva shambho 
+‖16‖
+
+
+‖iti shreemad shankaraacaaryakRRita shivaaparaadhakshhamaapaNa stotraM saMpoorNam ‖
+

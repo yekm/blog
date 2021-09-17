@@ -289,3 +289,47 @@ parama padamu nee paadamu ‖
 తిరువేంకటగిరి తిరమని చూపిన  
 పరమ పదము నీ పాదము ‖  
 
+### English
+
+#### annamayya kīrtana brahma kaḍigina pādamu
+
+brahma kaḍigina pādamu  
+brahmamu dāne nī pādamu ‖
+
+chelagi vasudha golichina nī pādamu   
+bali tala mopina pādamu ❘  
+talakaga gaganamu tannina pādamu  
+balaripu gāchina pādamu ‖
+
+kāmini pāpamu kaḍigina pādamu  
+pāmutala niḍina pādamu ❘  
+premapu śrīsati pisikeḍi pādamu   
+pāmiḍi turagapu pādamu ‖
+
+parama yogulaku pari pari vidhamula  
+paramosageḍi nī pādamu ❘  
+tiruveṅkaṭagiri tiramani chūpina  
+parama padamu nī pādamu ‖
+
+### PlainEnglish
+
+#### annamayya keertana brahma kaDigina paadamu
+
+brahma kaDigina paadamu  
+brahmamu daan.e nee paadamu ‖
+
+ch.elagi vasudha g.olichina nee paadamu   
+bali tala mopina paadamu ❘  
+talakaga gaganamu tannina paadamu  
+balaripu gaachina paadamu ‖
+
+kaamini paapamu kaDigina paadamu  
+paamutala niDina paadamu ❘  
+premapu shreesati pisik.eDi paadamu   
+paamiDi turagapu paadamu ‖
+
+parama yogulaku pari pari vidhamula  
+param.osag.eDi nee paadamu ❘  
+tiruveMkaTagiri tiramani choopina  
+parama padamu nee paadamu ‖
+

@@ -302,3 +302,47 @@ shreemaMtuDa neeku jaya shreeveMkaTaraaya ‖
 శ్రీమంతుడ నీకు జయ శ్రీవేంకటరాయ ‖  
 
 
+### English
+
+#### annamayya kīrtana tirumala giri rāya
+
+tirumalagirirāya devarāhuttarāya ❘  
+suratabinnāṇarāya suguṇakoneṭirāya ‖
+
+sirulasiṅgārarāya cheluvaputimmarāya ❘  
+sarasavaibhavarāya sakalavinodarāya ❘  
+varavasantamularāya vanitalaviṭarāya ❘  
+gurutaina tegarāya koṇḍalakoneṭirāya ‖
+
+golletalavuddaṇḍarāya gopālakṛśhṇarāya ❘  
+challuvedajāṇarāya challabarimaḻarāya ❘  
+chellubaḍidharmarāya chepparānivalarāya ❘  
+kollalaina bhogarāya koṇḍalakoneṭirāya ‖
+
+sāmasaṅgītarāya sarvamohanarāya ❘  
+dhāmavaikuṇṭharāya daityavibhāḻarāya ❘  
+kāmiñchi ninnu gorite garuṇiñchitivi nannu ❘  
+śrīmantuḍa nīku jaya śrīveṅkaṭarāya ‖
+
+### PlainEnglish
+
+#### annamayya keertana tirumala giri raaya
+
+tirumalagiriraaya devaraahuttaraaya ❘  
+suratabinnaaNaraaya suguNakoneTiraaya ‖
+
+sirulasiMgaararaaya ch.eluvaputimmaraaya ❘  
+sarasavaibhavaraaya sakalavinodaraaya ❘  
+varavasaMtamularaaya vanitalaviTaraaya ❘  
+gurutaina tegaraaya k.oMDalakoneTiraaya ‖
+
+g.oll.etalavuddaMDaraaya gopaalakRRishhNaraaya ❘  
+challuv.edajaaNaraaya challabarimaLaraaya ❘  
+ch.ellubaDidharmaraaya ch.epparaanivalaraaya ❘  
+k.ollalaina bhogaraaya k.oMDalakoneTiraaya ‖
+
+saamasaMgeetaraaya sarvamohanaraaya ❘  
+dhaamavaikuMTharaaya daityavibhaaLaraaya ❘  
+kaamiMchi ninnu gorite garuNiMchitivi nannu ❘  
+shreemaMtuDa neeku jaya shreeveMkaTaraaya ‖
+

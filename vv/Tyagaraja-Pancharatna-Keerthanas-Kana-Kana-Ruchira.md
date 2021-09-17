@@ -692,3 +692,85 @@ kana kana ruciraa
 
 కన కన రుచిరా  
 
+### English
+
+#### tyāgarāja pañcharatna kīrtana kana kana ruchirā
+
+kūrpu: śrī tyāgarājācāryulu   
+rāgaṃ: varāḻi   
+tāḻaṃ: ādi  
+kana kana rucirā   
+kanaka vasana ninnu   
+dina dinamunu anudina dinamunu   
+manasuna canuvuna ninnu   
+kana kana rucira kanaka vasana ninnu   
+pālugāru momuna   
+śrīyapāra mahima kanaru ninnu  
+kana kana rucirā kanaka vasana ninnu   
+kaḻakaḻamanu mukhakaḻa galigina sīta   
+kulukucu nora kannulanu jūce ninnu   
+kana kana rucirā kanaka vasana ninnu   
+bālākābha sucela maṇimaya mālālaṅkṛta kandhara  
+sarasijākśha vara kapola surucira kirīṭadhara santatambu manasāraga   
+kana kana rucirā kanaka vasana ninnu   
+sapatni mātayau surucice karṇa śūlamaina māṭala vīnula   
+curukkana tāḻaka śrī harini dhyāniñci sukhiyimpaga ledā yaṭu   
+kana kana rucirā kanaka vasana ninnu   
+mṛdamada lalāma śubhāniṭila vara jaṭāyu mokśha phalada   
+pavamāna sutuḍu nīdu mahima delpa sīta delisi   
+valaci sokkaledā ārīti ninnu   
+kana kana rucirā kanaka vasana ninnu  
+sukhāspada vimukhāmbudhara pavana videha mānasa vihārāpta   
+surabhūja mānita guṇāṅka cidānanda khaga turaṅga dhṛta rathaṅga  
+parama dayākara karuṇārasa varuṇālaya bhayāpahara śrī raghupate  
+kana kana rucirā kanaka vasana ninnu   
+kāmiñci premamīda karamula nīdu pāda kamalamula baṭṭukonu   
+vāḍu sākśhi rāma nāma rasikuḍu kailāsa sadanuḍu sākśhi   
+mariyu nārada parāśara śuka śaunaka purandhara nagajā dharaja  
+mukhyulu sākśhi gādā sundareśa sukha kalaśāmbudhi vāsā śritulake  
+kana kana rucirā kanaka vasana ninnu   
+satatamu prema pūrituḍagu tyāgarājanuta   
+mukhajita kumudahita varada ninnu  
+kana kana rucirā kanaka vasana ninnu   
+kana kana rucirā   
+### PlainEnglish
+
+#### tyaagaraaja pancharatna keertana kana kana ruchiraa
+
+koorpu: shree tyaagaraajaacaaryulu   
+raagaM: varaaLi   
+taaLaM: aadi  
+kana kana ruciraa   
+kanaka vasana ninnu   
+dina dinamunu anudina dinamunu   
+manasuna canuvuna ninnu   
+kana kana rucira kanaka vasana ninnu   
+paalugaaru momuna   
+shreeyapaara mahima kanaru ninnu  
+kana kana ruciraa kanaka vasana ninnu   
+kaLakaLamanu mukhakaLa galigina seeta   
+kulukucu nora kannulanu jooce ninnu   
+kana kana ruciraa kanaka vasana ninnu   
+baalaakaabha sucela maNimaya maalaalaMkRRita kaMdhara  
+sarasijaakshha vara kapola surucira kireeTadhara saMtataMbu manasaaraga   
+kana kana ruciraa kanaka vasana ninnu   
+sapatni maatayau surucice karNa shoolamaina maaTala veenula   
+curukkana taaLaka shree harini dhyaaniMci sukhiyiMpaga ledaa yaTu   
+kana kana ruciraa kanaka vasana ninnu   
+mRRidamada lalaama shubhaaniTila vara jaTaayu mokshha phalada   
+pavamaana sutuDu needu mahima d.elpa seeta d.elisi   
+valaci s.okkaledaa aareeti ninnu   
+kana kana ruciraa kanaka vasana ninnu  
+sukhaaspada vimukhaaMbudhara pavana videha maanasa vihaaraapta   
+surabhooja maanita guNaaMka cidaanaMda khaga turaMga dhRRita rathaMga  
+parama dayaakara karuNaarasa varuNaalaya bhayaapahara shree raghupate  
+kana kana ruciraa kanaka vasana ninnu   
+kaamiMci premameeda karamula needu paada kamalamula baTTuk.onu   
+vaaDu saakshhi raama naama rasikuDu kailaasa sadanuDu saakshhi   
+mariyu naarada paraashara shuka shaunaka puraMdhara nagajaa dharaja  
+mukhyulu saakshhi gaadaa suMdaresha sukha kalashaaMbudhi vaasaa shritulake  
+kana kana ruciraa kanaka vasana ninnu   
+satatamu prema poorituDagu tyaagaraajanuta   
+mukhajita kumudahita varada ninnu  
+kana kana ruciraa kanaka vasana ninnu   
+kana kana ruciraa   

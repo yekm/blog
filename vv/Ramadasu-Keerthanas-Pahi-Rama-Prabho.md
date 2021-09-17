@@ -1147,3 +1147,143 @@ gaTTigaanannu neevupaTTugaavihitamaupaTTugaamammuchepaTTu raamaprabho
 గట్టిగానన్ను నీవుపట్టుగావిహితమౌపట్టుగామమ్ముచేపట్టు రామప్రభో  
 
 
+### English
+
+#### rāmadāsu kīrtana pāhi rāmaprabho
+
+pāhirāmaprabho pāhirāmaprabho pāhi bhadrādri vaidehi rāmaprabho  
+śrīmanmahā guṇastomamābhirāmamīnāma kīrtanalu varṇinturā rāmaprabho  
+indirāhṛdayāravindādhirūḍha sundarākāra sānanda rāmaprabho  
+endunejūḍa mīsundarānandamunu kandunokannulimpapoda śrīrāmaprabho  
+puṇyachāritralāvaṇya kāruṇyagāmbhīryadākśhiṇya śrīrāmachandra  
+kandarpajanakanāyandurañjali sadānanduṇḍu vai pūjalandu rāmaprabho  
+impugā jevulakunvindu gā nīkathal kandugā mimmi sopondarāmaprabho  
+vandanamu chesimunulandaru ghanulai rivindalai naṭṭigovinda rāmaprabho  
+bṛndāra kādibṛndārchita padāravindamula nīsandarśitānanda rāmaprabho  
+tallivīnīvemātaṇḍrivinīve madātavunīvu mābhratarāmaprabho   
+vallavādharalainagolla bhāmalagūḍi yullamalaraṅgarañjilli rāmaprabho  
+mallaraṅgambunandella mallulajīriyallakaṃsuni jampumalla rāmaprabho  
+kollaluganīmāya velliviriyaga jeyunallapamuna krīḍasalpu rāmaprabho  
+tammuḍununīvu pārśvammulaṃ jerivillammu lekkaḍinilchurāmaprabho   
+krammukoni śātruvuluhummanuchu vachchedaru^^immena bāṇammulimmu rāmaprabho  
+rammunākimmabhayammu nīpādamull namminānayya śrīrāmachandra prabho  
+kaṇṭimīśaṅkhammu kantīmīchakramukaṇṭi mīpādamulgaṇṭi rāmaprabho  
+viṇṭi mīmahimā vennaṇṭi mītammuḍunīvu jaṇṭarāvayya nāveṇṭa rāmaprabho   
+memunīvāramaināmaināmurakśhimpu mannāmujāgelaśrīrāmachandra  
+nāmanovīdhininīpremato nuṇḍumībhūmījāsahitajaya rāmaprabho  
+mīmahatvamuvinann manambandu bremambuvemarubuṭṭu śrīrāmaprabho  
+śyāmalasundaraṅkomalañjānakī kāmukantvambhaje rāmachandra prabho  
+kāmitārdhamulichchu nīmahatyamuvinnā morāliñchu nāsvāmi rāmaprabho  
+kāmitaprabhuḍavai prematorakśhiñchusvāmi sāketapuri rāmaprabho  
+annarāvanna nīkannanāmidanevarannavārerirāmanna rāmaprabho  
+ninnegākanumariyanyulagānanan gannataṇḍrivimāyanna rāmaprabho  
+vennadoṅgilitinna chinna kṛśhṇammaninnenna gāvaśamerāmanna rāmaprabho  
+ennennojanmamulanettagājālani ninnenammitini varṇintu rāmaprabho  
+pannagādhipaśāyibhāvanāgata^^āpannanāmanavi vinavanna rāmaprabho  
+eṭivākyambumīsāṭidaivambumummāṭiki bhuviledumeṭi rāmaprabho   
+pāḍudunmimmu goniyāḍudunmodamuna veḍuchunnānu gāpāḍu rāmaprabho  
+veḍukogāne nījoḍukāḍanu nīvukūḍirārayyanātoḍa rāmaprabho  
+neḍunākorkelīḍeragājesi kāpāḍarākarinelujūḍa rāmaprabho  
+mūḍumūrtula kātmamūlamai chennondināḍavani śatrulunnāḍa rāmaprabho   
+chūḍamībhaktulanugūḍamīripulago rāḍumīvallagovinda rāmaprabho  
+puṇḍarīkākśhamārtāṇḍa vaṃśodbhavākhaṇḍalastutyakodaṇḍa rāmaprabho  
+kuṇḍalīśayanabhūmaṇḍaloddharaṇa pāśhāṇḍajanaharaṇakodaṇḍa rāmaprabho  
+niṇḍudayatoḍanāyaṇḍabāyakanu nīvuṇḍigāpāḍu kodaṇḍa rāmaprabho   
+jātakautūhalaṃ setukṛtvāramā pūtasītāpatedāta rāmaprabho  
+pātakulalo modaṭipātukuḍa nāvaṇṭi pātukuni kāchūṭe khyāti rāmaprabho  
+bhūtanādhunivillukhyātigākhaṇḍiñchisīta gaikonnavikhyāti rāmaprabho  
+pūtanākalmaśhoddhūtapen śatrusaṃhārisītāsametarāmaprabho   
+jātinītulu leka bhūtalambunadirugughātakulabarimārchu neta rāmaprabho  
+eppuḍun gaṇṭikin reppavalegāchinanoppugāgāvumāyappa rāmaprabho  
+edayānīdayāyodayāmbhonidhiyādi ledayyanāmīda rāmaprabho  
+ghorarākśhasa garvaharaviśvambharodāravistāra guṇasāndra rāmaprabho   
+modamunanīvunannādukovayya godāvarītīra bhadrādri rāmaprabho  
+nīdubāṇambulanu nāduśatrubaṭṭibādhimpakunnānademi rāmaprabho  
+ādimadhyānta bahirantarātmuṇḍanuchuvādintune jagannātha  
+chālademipadābjātamula sāṭipadunālgulokambulugūḍi rāmaprabho   
+elayīlāgugelajesedu mammelukovayya māpālirāmaprabho  
+pāluvennalumruchchiliñchayaśodarola gaṭṭinamāyajāla rāmaprabho  
+kollalugavrepallepallavādhurulato nalliballiganurañjillu rāmaprabho  
+vāli nokkammuna gūlinesina śauryaśāliyoninudalatujāla   
+sālabhañjikalanirmūlambucheyagājālitivi gopālabāla rāmaprabho  
+tāḻavṛkśhamunokkakola dharagūlaṅgadūlanesina bahuśāli  
+śilayainayahalya śrīpādamulusokanolatayaimimudalacherā  
+vinanayya manavi gaikonavayya tappulan ganakayya sammatiṅgonuchu rāmaprabho   
+dānadharmambuludapajapambulu nīdunāmakīrtanakusarikāvu rāmaprabho  
+mānāvamānamulu mahini nīvaiyuṇḍaganīyeḍanuṇḍamākela  
+GYānayogabhyāsamandunuṇḍeḍivāri kānandamayuḍavaināvu  
+aṇureṇuparipūrṇaḍauhṛdivānigāmanavi vinu devakītanaya rāmaprabho   
+māsyamai yāśritra vadānyamai sujanasanmodamai velugu mūrdhanya rāmaprabho  
+nityamaisatyamainirmalambai mahini divyavaṃśottaṃsamaina rāmaprabho  
+sedyamaimīkadhalbhāvyamai sajjana śrāvyamaiyuṇḍunodivya rāmaprabho  
+gaṭṭigānannu nīvupaṭṭugāvihitamaupaṭṭugāmammuchepaṭṭu rāmaprabho  
+### PlainEnglish
+
+#### raamadaasu keertana paahi raamaprabho
+
+paahiraamaprabho paahiraamaprabho paahi bhadraadri vaidehi raamaprabho  
+shreemanmahaa guNastomamaabhiraamameenaama keertanalu varNiMturaa raamaprabho  
+iMdiraahRRidayaaraviMdaadhirooDha suMdaraakaara saanaMda raamaprabho  
+.eMdunejooDa meesuMdaraanaMdamunu kaMdunokannuliMpap.oda shreeraamaprabho  
+puNyachaaritralaavaNya kaaruNyagaaMbheeryadaakshhiNya shreeraamachaMdra  
+kaMdarpajanakanaayaMduraMjali sadaanaMduMDu vai poojalaMdu raamaprabho  
+iMpugaa j.evulakunviMdu gaa neekathal kaMdugaa mimmi s.op.oMdaraamaprabho  
+vaMdanamu chesimunulaMdaru ghanulai riviMdalai naTTigoviMda raamaprabho  
+bRRiMdaara kaadibRRiMdaarchita padaaraviMdamula neesaMdarshitaanaMda raamaprabho  
+talliveeneev.emaataMDrivineev.e madaatavuneevu maabhrataraamaprabho   
+vallavaadharalainag.olla bhaamalagooDi yullamalaraMgaraMjilli raamaprabho  
+mallaraMgaMbunaMd.ella mallulajeeriyallakaMsuni jaMpumalla raamaprabho  
+k.ollaluganeemaaya v.elliviriyaga jeyunallapamuna kreeDasalpu raamaprabho  
+tammuDununeevu paarshvammulaM jerivillammu l.ekkaDinilchuraamaprabho   
+krammuk.oni shaatruvuluhummanuchu vachch.edaru^^imm.ena baaNammulimmu raamaprabho  
+rammunaakimmabhayammu neepaadamull namminaanayya shreeraamachaMdra prabho  
+kaMTimeeshaMkhammu kaMteemeechakramukaMTi meepaadamulgaMTi raamaprabho  
+viMTi meemahimaa v.ennaMTi meetammuDuneevu jaMTaraavayya naav.eMTa raamaprabho   
+memuneevaaramainaamainaamurakshhiMpu mannaamujaagelashreeraamachaMdra  
+naamanoveedhinineepremato nuMDumeebhoomeejaasahitajaya raamaprabho  
+meemahatvamuvinann manaMbaMdu bremaMbuvemarubuTTu shreeraamaprabho  
+shyaamalasuMdaraMkomalaMjaanakee kaamukaMtvaMbhaje raamachaMdra prabho  
+kaamitaardhamulichchu neemahatyamuvinnaa moraaliMchu naasvaami raamaprabho  
+kaamitaprabhuDavai prematorakshhiMchusvaami saaketapuri raamaprabho  
+annaraavanna neekannanaamidan.evarannavaareriraamanna raamaprabho  
+ninn.egaakanumariyanyulagaananan gannataMDrivimaayanna raamaprabho  
+v.ennad.oMgilitinna chinna kRRishhNammaninn.enna gaavasham.eraamanna raamaprabho  
+.enn.ennojanmamulan.ettagaajaalani ninn.enammitini varNiMtu raamaprabho  
+pannagaadhipashaayibhaavanaagata^^aapannanaamanavi vinavanna raamaprabho  
+eTivaakyaMbumeesaaTidaivaMbumummaaTiki bhuviledumeTi raamaprabho   
+paaDudunmimmu g.oniyaaDudunmodamuna veDuchunnaanu gaapaaDu raamaprabho  
+veDukogaan.e neejoDukaaDanu neevukooDiraarayyanaatoDa raamaprabho  
+neDunaakork.eleeDeragaajesi kaapaaDaraakarinelujooDa raamaprabho  
+mooDumoortula kaatmamoolamai ch.enn.oMdinaaDavani shatrulunnaaDa raamaprabho   
+chooDameebhaktulanugooDameeripulago raaDumeevallagoviMda raamaprabho  
+puMDareekaakshhamaartaaMDa vaMshodbhavaakhaMDalastutyakodaMDa raamaprabho  
+kuMDaleeshayanabhoomaMDaloddharaNa paashhaaMDajanaharaNakodaMDa raamaprabho  
+niMDudayatoDanaayaMDabaayakanu neevuMDigaapaaDu kodaMDa raamaprabho   
+jaatakautoohalaM setukRRitvaaramaa pootaseetaapatedaata raamaprabho  
+paatakulalo m.odaTipaatukuDa naavaMTi paatukuni kaachooTe khyaati raamaprabho  
+bhootanaadhunivillukhyaatigaakhaMDiMchiseeta gaik.onnavikhyaati raamaprabho  
+pootanaakalmashhoddhootap.en shatrusaMhaariseetaasametaraamaprabho   
+jaatineetulu leka bhootalaMbunadirugughaatakulabarimaarchu neta raamaprabho  
+.eppuDun gaMTikin r.eppaval.egaachinan.oppugaagaavumaayappa raamaprabho  
+edayaaneedayaayodayaaMbhonidhiyaadi ledayyanaameeda raamaprabho  
+ghoraraakshhasa garvaharavishvaMbharodaaravistaara guNasaaMdra raamaprabho   
+modamunaneevunannaadukovayya godaavareeteera bhadraadri raamaprabho  
+needubaaNaMbulanu naadushatrubaTTibaadhiMpakunnaanademi raamaprabho  
+aadimadhyaaMta bahiraMtaraatmuMDanuchuvaadiMtune jagannaatha  
+chaalademipadaabjaatamula saaTipadunaalgulokaMbulugooDi raamaprabho   
+elayeelaagugelajesedu mammelukovayya maapaaliraamaprabho  
+paaluv.ennalumruchchiliMchayashodarola gaTTinamaayajaala raamaprabho  
+k.ollalugavrepall.epallavaadhurulato nalliballiganuraMjillu raamaprabho  
+vaali n.okkammuna goolinesina shauryashaaliyoninudalatujaala   
+saalabhaMjikalanirmoolaMbucheyagaajaalitivi gopaalabaala raamaprabho  
+taaLavRRikshhamun.okkakola dharagoolaMgadoolanesina bahushaali  
+shilayainayahalya shreepaadamulusokan.olatayaimimudalach.eraa  
+vinanayya manavi gaik.onavayya tappulan ganakayya sammatiMg.onuchu raamaprabho   
+daanadharmaMbuludapajapaMbulu needunaamakeertanakusarikaavu raamaprabho  
+maanaavamaanamulu mahini neevaiyuMDaganeey.eDanuMDamaakela  
+gnyaanayogabhyaasamaMdunuMD.eDivaari kaanaMdamayuDavainaavu  
+aNureNuparipoorNaDauhRRidivaanigaamanavi vinu devakeetanaya raamaprabho   
+maasyamai yaashritra vadaanyamai sujanasanmodamai v.elugu moordhanya raamaprabho  
+nityamaisatyamainirmalaMbai mahini divyavaMshottaMsamaina raamaprabho  
+sedyamaimeekadhalbhaavyamai sajjana shraavyamaiyuMDunodivya raamaprabho  
+gaTTigaanannu neevupaTTugaavihitamaupaTTugaamammuchepaTTu raamaprabho  

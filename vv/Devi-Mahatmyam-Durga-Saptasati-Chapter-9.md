@@ -1797,3 +1797,363 @@ bhakshhitaashcaapare kaaLeeshivadhootee mRRigaadhipaiH‖41‖
  **ఆహుతి  
 ** ఓం క్లీం జయంతీ సాంగాయై సశక్తికాయై సపరివారాయై సవాహనాయై మహాహుతిం సమర్పయామి నమః స్వాహా ‖  
 
+### English
+
+#### devī mahātmyam durgā saptaśati navamoadhyāyaḥ
+
+niśumbhavadhonāma navamodhyāyaḥ ‖
+
+dhyānaṃ  
+oṃ bandhūka kāñcananibhaṃ rucirākśhamālāṃ   
+pāśāṅkuśau ca varadāṃ nijabāhudaṇḍaiḥ ❘  
+bibhrāṇamindu śakalābharaṇāṃ trinetrāṃ-  
+ardhāmbikeśamaniśaṃ vapurāśrayāmi ‖
+
+rājouvāca
+‖1‖
+
+vicitramidamākhyātaṃ bhagavan bhavatā mama ❘  
+devyāścaritamāhātmyaṃ rakta bījavadhāśritam       
+‖ 2‖
+
+bhūyaścecChāmyahaṃ śrotuṃ raktabīje nipātite ❘  
+cakāra śumbho yatkarma niśumbhaścātikopanaḥ   
+‖3‖
+
+ṛśhiruvāca   
+‖4‖
+
+cakāra kopamatulaṃ raktabīje nipātite❘  
+śumbhāsuro niśumbhaśca hateśhvanyeśhu cāhave   
+‖5‖
+
+hanyamānaṃ mahāsainyaṃ vilokyāmarśhamudvahan❘  
+abhyadāvanniśumboatha mukhyayāsura senayā   
+‖6‖
+
+tasyāgratastathā pṛśhṭhe pārśvayośca mahāsurāḥ  
+sandaśhṭauśhṭhapuṭāḥ kruddhā hantuṃ devīmupāyayuḥ   
+‖7‖
+
+ājagāma mahāvīryaḥ śumbhoapi svabalairvṛtaḥ❘  
+nihantuṃ caṇḍikāṃ kopātkṛtvā yuddaṃ tu mātṛbhiḥ   
+‖8‖
+
+tato yuddhamatīvāsīddevyā śumbhaniśumbhayoḥ❘  
+śaravarśhamatīvograṃ meghayoriva varśhatoḥ   
+‖9‖
+
+cicChedāstāñCharāṃstābhyāṃ caṇḍikā svaśarotkaraiḥ❘  
+tāḍayāmāsa cāṅgeśhu śastraughairasureśvarau   
+‖10‖
+
+niśumbho niśitaṃ khaḍgaṃ carma cādāya suprabham❘  
+atāḍayanmūrdhni siṃhaṃ devyā vāhanamuttamam
+‖11‖
+
+tāḍite vāhane devī kśhura preṇāsimuttamam❘  
+śumbhasyāśu cicCheda carma cāpyaśhṭa candrakam   
+‖12‖
+
+Chinne carmaṇi khaḍge ca śaktiṃ cikśhepa soasuraḥ❘  
+tāmapyasya dvidhā cakre cakreṇābhimukhāgatām
+‖13‖
+
+kopādhmāto niśumbhoatha śūlaṃ jagrāha dānavaḥ❘  
+āyātaṃ muśhṭhipātena devī taccāpyacūrṇayat
+‖14‖
+
+āviddhyātha gadāṃ soapi cikśhepa caṇḍikāṃ prati❘  
+sāpi devyās triśūlena bhinnā bhasmatvamāgatā
+‖15‖
+
+tataḥ paraśuhastaṃ tamāyāntaṃ daityapuṅgavaṃ❘  
+āhatya devī bāṇaughairapātayata bhūtale
+‖16‖
+
+tasminni patite bhūmau niśumbhe bhīmavikrame❘  
+bhrātaryatīva saṅkruddhaḥ prayayau hantumambikām
+‖17‖
+
+sa rathasthastathātyucChai rgṛhītaparamāyudhaiḥ❘  
+bhujairaśhṭābhiratulai rvyāpyā śeśhaṃ babhau nabhaḥ
+‖18‖
+
+tamāyāntaṃ samālokya devī śaṅkhamavādayat❘  
+jyāśabdaṃ cāpi dhanuśha ścakārātīva duḥsaham
+‖19‖
+
+pūrayāmāsa kakubho nijaghaṇṭā svanena ca❘  
+samastadaityasainyānāṃ tejovadhavidhāyinā
+‖20‖
+
+tataḥ siṃho mahānādai styājitebhamahāmadaiḥ❘  
+purayāmāsa gaganaṃ gāṃ tathaiva diśo daśa
+‖21‖
+
+tataḥ kāḻī samutpatya gaganaṃ kśhmāmatāḍayat❘  
+karābhyāṃ tanninādena prāksvanāste tirohitāḥ
+‖22‖
+
+aṭṭāṭṭahāsamaśivaṃ śivadūtī cakāra ha❘  
+vaiḥ śabdairasurāstresuḥ śumbhaḥ kopaṃ paraṃ yayau
+‖23‖
+
+durātmaṃ stiśhṭa tiśhṭheti vyāja hārāmbikā yadā❘  
+tadā jayetyabhihitaṃ devairākāśa saṃsthitaiḥ
+‖24‖
+
+śumbhenāgatya yā śaktirmuktā jvālātibhīśhaṇā❘  
+āyāntī vahnikūṭābhā sā nirastā maholkayā
+‖25‖
+
+siṃhanādena śumbhasya vyāptaṃ lokatrayāntaram❘  
+nirghātaniḥsvano ghoro jitavānavanīpate
+‖26‖
+
+śumbhamuktāñCharāndevī śumbhastatprahitāñCharān❘  
+cicCheda svaśarairugraiḥ śataśoatha sahasraśaḥ
+‖27‖
+
+tataḥ sā caṇḍikā kruddhā śūlenābhijaghāna tam❘  
+sa tadābhi hato bhūmau mūrChito nipapāta ha
+‖28‖
+
+tato niśumbhaḥ samprāpya cetanāmāttakārmukaḥ❘  
+ājaghāna śarairdevīṃ kāḻīṃ kesariṇaṃ tathā
+‖29‖
+
+punaśca kṛtvā bāhunāmayutaṃ danujeśvaraḥ❘  
+cakrāyudhena ditijaścādayāmāsa caṇḍikām
+‖30‖
+
+tato bhagavatī kruddhā durgādurgārti nāśinī❘  
+cicCheda devī cakrāṇi svaśaraiḥ sāyakāṃśca tān
+‖31‖
+
+tato niśumbho vegena gadāmādāya caṇḍikām❘  
+abhyadhāvata vai hantuṃ daitya senāsamāvṛtaḥ
+‖32‖
+
+tasyāpatata evāśu gadāṃ cicCheda caṇḍikā❘  
+khaḍgena śitadhāreṇa sa ca śūlaṃ samādade
+‖33‖
+
+śūlahastaṃ samāyāntaṃ niśumbhamamarārdanam❘  
+hṛdi vivyādha śūlena vegāviddhena caṇḍikā
+‖34‖
+
+khinnasya tasya śūlena hṛdayānniḥsṛtoaparaḥ❘  
+mahābalo mahāvīryastiśhṭheti puruśho vadan
+‖35‖
+
+tasya niśhkrāmato devī prahasya svanavattataḥ❘  
+śiraścicCheda khaḍgena tatoasāvapatadbhuvi
+‖36‖
+
+tataḥ siṃhaśca khādogra daṃśhṭrākśhuṇṇaśirodharān❘  
+asurāṃ stāṃstathā kāḻī śivadūtī tathāparān
+‖37‖
+
+kaumārī śaktinirbhinnāḥ kecinneśurmahāsurāḥ  
+brahmāṇī mantrapūtena toyenānye nirākṛtāḥ
+‖38‖
+
+māheśvarī triśūlena bhinnāḥ petustathāpare❘  
+vārāhītuṇḍaghātena keciccūrṇī kṛtā bhuvi
+‖39‖
+
+khaṇḍaṃ khaṇḍaṃ ca cakreṇa vaiśhṇavyā dānavāḥ kṛtāḥ❘  
+vajreṇa caindrī hastāgra vimuktena tathāpare
+‖40‖
+
+kecidvineśurasurāḥ kecinnaśhṭāmahāhavāt❘  
+bhakśhitāścāpare kāḻīśivadhūtī mṛgādhipaiḥ
+‖41‖
+
+
+‖ svasti śrī mārkaṇḍeya purāṇe sāvarnike manvantare devi mahatmye niśumbhavadhonāma navamodhyāya samāptaṃ ‖
+
+āhuti  
+oṃ klīṃ jayantī sāṅgāyai saśaktikāyai saparivārāyai savāhanāyai mahāhutiṃ samarpayāmi namaḥ svāhā ‖
+
+### PlainEnglish
+
+#### devee mahaatmyam durgaa saptashati navamo.adhyaayaH
+
+nishumbhavadhonaama navamodhyaayaH ‖
+
+dhyaanaM  
+oM baMdhooka kaaMcananibhaM ruciraakshhamaalaaM   
+paashaaMkushau ca varadaaM nijabaahudaMDaiH ❘  
+bibhraaNamiMdu shakalaabharaNaaM trinetraaM-  
+ardhaaMbikeshamanishaM vapuraashrayaami ‖
+
+raajouvaaca
+‖1‖
+
+vicitramidamaakhyaataM bhagavan bhavataa mama ❘  
+devyaashcaritamaahaatmyaM rakta beejavadhaashritam       
+‖ 2‖
+
+bhooyashcecChaamyahaM shrotuM raktabeeje nipaatite ❘  
+cakaara shumbho yatkarma nishumbhashcaatikopanaH   
+‖3‖
+
+RRishhiruvaaca   
+‖4‖
+
+cakaara kopamatulaM raktabeeje nipaatite❘  
+shumbhaasuro nishumbhashca hateshhvanyeshhu caahave   
+‖5‖
+
+hanyamaanaM mahaasainyaM vilokyaamarshhamudvahan❘  
+abhyadaavannishumbo.atha mukhyayaasura senayaa   
+‖6‖
+
+tasyaagratastathaa pRRishhThe paarshvayoshca mahaasuraaH  
+sandashhTaushhThapuTaaH kruddhaa hantuM deveemupaayayuH   
+‖7‖
+
+aajagaama mahaaveeryaH shumbho.api svabalairvRRitaH❘  
+nihantuM caNDikaaM kopaatkRRitvaa yuddaM tu maatRRibhiH   
+‖8‖
+
+tato yuddhamateevaaseeddevyaa shumbhanishumbhayoH❘  
+sharavarshhamateevograM meghayoriva varshhatoH   
+‖9‖
+
+cicChedaastaanCharaaMstaabhyaaM caNDikaa svasharotkaraiH❘  
+taaDayaamaasa caangeshhu shastraughairasureshvarau   
+‖10‖
+
+nishumbho nishitaM khaDgaM carma caadaaya suprabham❘  
+ataaDayanmoordhni siMhaM devyaa vaahanamuttamam
+‖11‖
+
+taaDite vaahane devee kshhura preNaasimuttamam❘  
+shumbhasyaashu cicCheda carma caapyashhTa candrakam   
+‖12‖
+
+Chinne carmaNi khaDge ca shaktiM cikshhepa so.asuraH❘  
+taamapyasya dvidhaa cakre cakreNaabhimukhaagataam
+‖13‖
+
+kopaadhmaato nishumbho.atha shoolaM jagraaha daanavaH❘  
+aayaataM mushhThipaatena devee taccaapyacoorNayat
+‖14‖
+
+aaviddhyaatha gadaaM so.api cikshhepa caNDikaaM prati❘  
+saapi devyaas trishoolena bhinnaa bhasmatvamaagataa
+‖15‖
+
+tataH parashuhastaM tamaayaantaM daityapungavaM❘  
+aahatya devee baaNaughairapaatayata bhootale
+‖16‖
+
+tasminni patite bhoomau nishumbhe bheemavikrame❘  
+bhraataryateeva saMkruddhaH prayayau hantumambikaam
+‖17‖
+
+sa rathasthastathaatyucChai rgRRiheetaparamaayudhaiH❘  
+bhujairashhTaabhiratulai rvyaapyaa sheshhaM babhau nabhaH
+‖18‖
+
+tamaayaantaM samaalokya devee shankhamavaadayat❘  
+jyaashabdaM caapi dhanushha shcakaaraateeva duHsaham
+‖19‖
+
+poorayaamaasa kakubho nijaghaNTaa svanena ca❘  
+samastadaityasainyaanaaM tejovadhavidhaayinaa
+‖20‖
+
+tataH siMho mahaanaadai styaajitebhamahaamadaiH❘  
+purayaamaasa gaganaM gaaM tathaiva disho dasha
+‖21‖
+
+tataH kaaLee samutpatya gaganaM kshhmaamataaDayat❘  
+karaabhyaaM tanninaadena praaksvanaaste tirohitaaH
+‖22‖
+
+aTTaaTTahaasamashivaM shivadootee cakaara ha❘  
+vaiH shabdairasuraastresuH shumbhaH kopaM paraM yayau
+‖23‖
+
+duraatmaM stishhTa tishhTheti vyaaja haaraambikaa yadaa❘  
+tadaa jayetyabhihitaM devairaakaasha saMsthitaiH
+‖24‖
+
+shumbhenaagatya yaa shaktirmuktaa jvaalaatibheeshhaNaa❘  
+aayaantee vahnikooTaabhaa saa nirastaa maholkayaa
+‖25‖
+
+siMhanaadena shumbhasya vyaaptaM lokatrayaantaram❘  
+nirghaataniHsvano ghoro jitavaanavaneepate
+‖26‖
+
+shumbhamuktaanCharaandevee shumbhastatprahitaanCharaan❘  
+cicCheda svasharairugraiH shatasho.atha sahasrashaH
+‖27‖
+
+tataH saa caNDikaa kruddhaa shoolenaabhijaghaana tam❘  
+sa tadaabhi hato bhoomau moorChito nipapaata ha
+‖28‖
+
+tato nishumbhaH sampraapya cetanaamaattakaarmukaH❘  
+aajaghaana sharairdeveeM kaaLeeM kesariNaM tathaa
+‖29‖
+
+punashca kRRitvaa baahunaamayutaM danujeshvaraH❘  
+cakraayudhena ditijashcaadayaamaasa caNDikaam
+‖30‖
+
+tato bhagavatee kruddhaa durgaadurgaarti naashinee❘  
+cicCheda devee cakraaNi svasharaiH saayakaaMshca taan
+‖31‖
+
+tato nishumbho vegena gadaamaadaaya caNDikaam❘  
+abhyadhaavata vai hantuM daitya senaasamaavRRitaH
+‖32‖
+
+tasyaapatata evaashu gadaaM cicCheda caNDikaa❘  
+khaDgena shitadhaareNa sa ca shoolaM samaadade
+‖33‖
+
+shoolahastaM samaayaantaM nishumbhamamaraardanam❘  
+hRRidi vivyaadha shoolena vegaaviddhena caNDikaa
+‖34‖
+
+khinnasya tasya shoolena hRRidayaanniHsRRito.aparaH❘  
+mahaabalo mahaaveeryastishhTheti purushho vadan
+‖35‖
+
+tasya nishhkraamato devee prahasya svanavattataH❘  
+shirashcicCheda khaDgena tato.asaavapatadbhuvi
+‖36‖
+
+tataH siMhashca khaadogra daMshhTraakshhuNNashirodharaan❘  
+asuraaM staaMstathaa kaaLee shivadootee tathaaparaan
+‖37‖
+
+kaumaaree shaktinirbhinnaaH kecinneshurmahaasuraaH  
+brahmaaNee mantrapootena toyenaanye niraakRRitaaH
+‖38‖
+
+maaheshvaree trishoolena bhinnaaH petustathaapare❘  
+vaaraaheetuNDaghaatena keciccoorNee kRRitaa bhuvi
+‖39‖
+
+khaNDaM khaNDaM ca cakreNa vaishhNavyaa daanavaaH kRRitaaH❘  
+vajreNa caindree hastaagra vimuktena tathaapare
+‖40‖
+
+kecidvineshurasuraaH kecinnashhTaamahaahavaat❘  
+bhakshhitaashcaapare kaaLeeshivadhootee mRRigaadhipaiH
+‖41‖
+
+
+‖ svasti shree maarkaNDeya puraaNe saavarnike manvantare devi mahatmye nishumbhavadhonaama navamodhyaaya samaaptaM ‖
+
+aahuti  
+oM kleeM jayaMtee saaMgaayai sashaktikaayai saparivaaraayai savaahanaayai mahaahutiM samarpayaami namaH svaahaa ‖
+

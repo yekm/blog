@@ -315,3 +315,49 @@ saMdi daMDalaku chaaMgubhaLaa ‖
 సంది దండలకు చాంగుభళా ‖  
 
 
+### English
+
+#### annamayya kīrtana chakkani talliki
+
+rāgaṃ: pāḍi  
+chakkani talliki chāṅgubhaḻā tana   
+chakkera moviki chāṅgubhaḻā ‖
+
+kulikeḍi muripepu kummarimpu tana   
+saḻupu jūpulaku chāṅgubhaḻā ❘  
+palukula sompula batito gasareḍi   
+chalamula yalukaku chāṅgubhaḻā ‖
+
+kinnerato pati kelana niluchu tana   
+channu meRugulaku chāṅgubhaḻā ❘  
+unnati batipai noragi niluchu tana   
+sannapu naḍimiki chāṅgubhaḻā ‖
+
+jandepu mutyapu sarulahāramula   
+chandana gandhiki chāṅgubhaḻā ❘  
+vindayi veṅkaṭa vibhubena chinatana  
+sandi daṇḍalaku chāṅgubhaḻā ‖
+
+### PlainEnglish
+
+#### annamayya keertana chakkani talliki
+
+raagaM: paaDi  
+chakkani talliki chaaMgubhaLaa tana   
+chakk.era moviki chaaMgubhaLaa ‖
+
+kulik.eDi murip.epu kummariMpu tana   
+saLupu joopulaku chaaMgubhaLaa ❘  
+palukula s.oMpula batito gasar.eDi   
+chalamula yalukaku chaaMgubhaLaa ‖
+
+kinn.erato pati k.elana niluchu tana   
+channu m.eRugulaku chaaMgubhaLaa ❘  
+unnati batipai n.oragi niluchu tana   
+sannapu naDimiki chaaMgubhaLaa ‖
+
+jaMd.epu mutyapu sarulahaaramula   
+chaMdana gaMdhiki chaaMgubhaLaa ❘  
+viMdayi v.eMkaTa vibhub.ena chinatana  
+saMdi daMDalaku chaaMgubhaLaa ‖
+

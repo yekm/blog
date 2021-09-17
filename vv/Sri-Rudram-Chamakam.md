@@ -393,3 +393,89 @@ oM shaaM _ti_ H shaaM _ti_ H shaaMti'H ‖
 
 ఓం శాం _తిః_ శాం _తిః_ శాంతిః' ‖  
 
+### English
+
+#### śrī rudraṃ chamakam
+
+oṃ agnā'viśhṇo sajośha'semāva'rdhantu vāṃ gira'ḥ ❘  
+dyumnairvāje'bhirāga'tam ❘  
+ vāja'ścha me prasavaścha' me praya'tiścha me prasi'tiścha me dhītiścha' me kratu'ścha me svara'ścha me śloka'ścha me śrāvaścha' me śruti'ścha me jyoti'ścha me suva'ścha me prāṇaścha' meapānaścha' me vyānaścha measu'ścha me chittaṃ cha' ma ādhī'taṃ cha me vākcha' me mana'ścha me chakśhu'ścha me śrotra'ṃ cha me dakśha'ścha me bala'ṃ cha ma oja'ścha me saha'ścha ma āyu'ścha me jarā cha' ma ātmā cha' me tanūścha' me śarma' cha me varma' cha meaṅgā'ni cha me'sthāni' cha me parūg'ṃśhi cha me śarī'rāṇi cha me 
+‖ 1 ‖
+
+jaiśhṭhya'ṃ cha ma ādhi'patyaṃ cha me manyuścha' me bhāma'ścha meama'ścha meambha'ścha me jemā cha' me mahimā cha' me varimā cha' me prathimā cha' me varśhmā cha' me drāghuyā cha' me vṛddhaṃ cha' me vṛddhi'ścha me satyaṃ cha' me śraddhā cha' me jaga'ccha me dhana'ṃ cha me vaśa'ścha me tviśhi'ścha me krīḍā cha' me moda'ścha me jātaṃ cha' me janiśhyamā'ṇaṃ cha me sūktaṃ cha' me sukṛtaṃ cha' me vittaṃ cha' me vedya'ṃ cha me bhūtaṃ cha' me bhaviśhyaccha' me sugaṃ cha' me supatha'ṃ cha ma ṛddhaṃ cha' ma ṛddhi'ścha me kluptaṃ cha' me klupti'ścha me matiścha' me sumatiścha' me 
+‖ 2 ‖
+
+śaṃ cha' me maya'ścha me priyaṃ cha' meanukāmaścha' me kāma'ścha me saumanasaścha' me bhadraṃ cha' me śreya'ścha me vasya'ścha me yaśa'ścha me bhaga'ścha me dravi'ṇaṃ cha me yantā cha' me dhartā cha' me kśhema'ścha me dhṛti'ścha me viśva'ṃ cha me maha'ścha me saṃviccha' me GYātra'ṃ cha me sūścha' me prasūścha' me sīra'ṃ cha me layaścha' ma ṛtaṃ cha' me'mṛta'ṃ cha meayakśhmaṃ cha meanā'mayaccha me jīvātu'ścha me dīrghāyutvaṃ cha' meanamitraṃ cha meabha'yaṃ cha me sugaṃ cha' me śaya'naṃ cha me sūśhā cha' me sudina'ṃ cha me 
+‖ 3 ‖
+
+ūrkcha' me sūnṛtā' cha me paya'ścha me rasa'ścha me ghṛtaṃ cha' me madhu' cha me sagdhi'ścha me sapī'tiścha me kṛśhiścha' me vṛśhṭi'ścha me jaitra'ṃ cha ma audbhi'dyaṃ cha me rayiścha' me rāya'ścha me puśhṭaṃ cha me puśhṭi'ścha me vibhu cha' me prabhu cha' me bahu cha' me bhūya'ścha me pūrṇaṃ cha' me pūrṇata'raṃ cha meakśhi'tiścha me kūya'vāścha meanna'ṃ cha meakśhu'ccha me vrīhaya'ścha me yavā''ścha me māśhā''ścha me tilā''ścha me mudgāścha' me khalvā''ścha me godhūmā''ścha me masurā''ścha me priyaṅga'vaścha meaṇa'vaścha me śyāmākā''ścha me nīvārā''ścha me 
+‖ 4 ‖
+
+aśmā' cha me mṛtti'kā cha me giraya'ścha me parva'tāścha me sika'tāścha me vanaspata'yaścha me hira'ṇyaṃ cha meaya'ścha me sīsa'ṃ cha me trapu'ścha me śyāmaṃ cha' me lohaṃ cha' meagniścha' ma āpa'ścha me vīrudha'ścha ma ośha'dhayaścha me kṛśhṭapachyaṃ cha' meakṛśhṭapachyaṃ cha' me grāmyāścha' me paśava' āraṇyāścha' yaGYena' kalpantāṃ vittaṃ cha' me vitti'ścha me bhūtaṃ cha' me bhūti'ścha me vasu' cha me vasatiścha' me karma' cha me śakti'ścha meartha'ścha ma ema'ścha ma iti'ścha me gati'ścha me 
+‖ 5 ‖
+
+agniścha' ma indra'ścha me soma'ścha ma indra'ścha me savitā cha' ma indra'ścha me sara'svatī cha ma indra'ścha me pūśhā cha' ma indra'ścha me bṛhaspati'ścha ma indra'ścha me mitraścha' ma indra'ścha me varu'ṇaścha ma indra'ścha me tvaśhṭhā' cha ma indra'ścha me dhātā cha' ma indra'ścha me viśhṇu'ścha ma indra'ścha meaśvinau' cha ma indra'ścha me maruta'ścha ma indra'ścha me viśve' cha me devā indra'ścha me pṛthivī cha' ma indra'ścha meantari'kśhaṃ cha ma indra'ścha me dyauścha' ma indra'ścha me diśa'ścha ma indra'ścha me mūrdhā cha' ma indra'ścha me prajāpa'tiścha ma indra'ścha me 
+‖ 6 ‖
+
+agṃśuścha' me raśmiścha meadā''bhyaścha meadhi'patiścha ma upāgṃśuścha' meantaryāmaścha' ma aindravāyavaścha' me maitrāvaruṇaścha' ma āśvinaścha' me pratiprasthāna'ścha me śukraścha' me manthī cha' ma āgrayaṇaścha' me vaiśvadevaścha' me dhruvaścha' me vaiśvānaraścha' ma ṛtugrahāścha' meatigrāhyā''ścha ma aindrāgnaścha' me vaiśvadevaścha' me marutvatīyā''ścha me māhendraścha' ma ādityaścha' me sāvitraścha' me sārasvataścha' me pauśhṇaścha' me pātnīvataścha' me hāriyojanaścha' me 
+‖ 7 ‖
+
+idhmaścha' me barhiścha' me vedi'ścha me diśhṇi'yāścha me srucha'ścha me chamasāścha' me grāvā'ṇaścha me svara'vaścha ma uparavāścha' meadhiśhava'ṇe cha me droṇakalaśaścha' me vāyavyā'ni cha me pūtabhṛccha' ma ādhavanīya'ścha ma āgnī''dhraṃ cha me havirdhāna'ṃ cha me gṛhāścha' me sada'ścha me puroḍāśā''ścha me pachatāścha' meavabhṛthaścha' me svagākāraścha' me 
+‖ 8 ‖
+
+agniścha' me gharmaścha' me'rkaścha' me sūrya'ścha me prāṇaścha' meaśvamedhaścha' me pṛthivī cha meadi'tiścha me diti'ścha me dyauścha' me śakva'rīraṅgula'yo diśa'ścha me yaGYena' kalpantāmṛkcha' me sāma' cha me stoma'ścha me yaju'ścha me dīkśhā cha' me tapa'ścha ma ṛtuścha' me vrataṃ cha' meahorātrayo''r-dṛśhṭyā bṛ'hadrathantare cha me yaGYena' kalpetāṃ 
+‖ 9 ‖
+
+garbhā''ścha me vatsāścha' me tryavi'ścha me tryavīcha' me dityavāṭ cha' me dityauhī cha' me pañchā'viścha me pañchāvī cha' me trivatsaścha' me trivatsā cha' me turyavāṭ cha' me turyauhī cha' me paśhṭhavāṭ cha' me paśhṭhauhī cha' ma ukśhā cha' me vaśā cha' ma ṛśhabhaścha' me vehaccha' meanaḍvāṃ cha me dhenuścha' ma āyu'r-yaGYena' kalpatāṃ prāṇo yaGYena' kalpatām-apāno yaGYena' kalpatāṃ vyāno yaGYena' kalpatāṃ chakśhu'r-yaGYena' kalpatāg śrotra'ṃ yaGYena' kalpatāṃ mano' yaGYena' kalpatāṃ vāg-yaGYena' kalpatām-ātmā yaGYena' kalpatāṃ yaGYo yaGYena' kalpatām 
+‖ 10 ‖
+
+ekā' cha me tisraścha' me pañcha' cha me sapta cha' me nava' cha ma ekā'daśa cha me trayodaśa cha me pañcha'daśa cha me saptada'śa cha me nava'daśa cha ma eka'vigṃśatiścha me trayo'vigṃśatiścha me pañcha'vigṃśatiścha me sapta vig'ṃśatiścha me nava'vigṃśatiścha ma eka'trigṃśaccha me traya'strigṃśaccha me chata's-raścha me'śhṭau cha' me dvāda'śa cha me śhoḍa'śa cha me vigṃśatiścha' me chatu'rvigṃśatiścha me'śhṭāvig'ṃśatiścha me dvātrig'ṃśachcha me śhaṭ-trig'ṃśaccha me chatvārigṃśaccha' me chatu'ś-chatvārigṃśaccha meaśhṭācha'tvārigṃśachcha me vāja'ścha prasavaśchā'pijaścha kratu'ścha suva'ścha mūrdhā cha vyaśni'yaś-chāntyāyanaś-chāntya'ścha bhauvanaścha bhuva'naś-chādhi'patiścha 
+‖ 11 ‖
+
+oṃ iḍā' devahūr-manu'r-yaGYanīr-bṛhaspati'rukthāmadāni' śagṃsiśhad-viśve'-devāḥ sū''ktavāchaḥ pṛthi'vimātarmā mā' higṃsīr-madhu' maniśhye madhu' janiśhye madhu' vakśhyāmi madhu' vadiśhyāmi madhu'matīṃ devebhyo vāchamudyāsagṃśuśrūśheṇyā''m manuśhye''bhyastaṃ mā' devā a'vantu śobhāyai' pitaroanu'madantu ‖
+
+oṃ śāntiḥ śāntiḥ śānti'ḥ  ‖
+
+### PlainEnglish
+
+#### shree rudraM chamakam
+
+oM agnaa'vishhNo sajoshha'semaava'rdhaMtu vaaM gira'H ❘  
+dyumnairvaaje'bhiraaga'tam ❘  
+ vaaja'shcha me prasavashcha' me praya'tishcha me prasi'tishcha me dheetishcha' me kratu'shcha me svara'shcha me shloka'shcha me shraavashcha' me shruti'shcha me jyoti'shcha me suva'shcha me praaNashcha' me.apaanashcha' me vyaanashcha me.asu'shcha me chittaM cha' ma aadhee'taM cha me vaakcha' me mana'shcha me chakshhu'shcha me shrotra'M cha me dakshha'shcha me bala'M cha ma oja'shcha me saha'shcha ma aayu'shcha me jaraa cha' ma aatmaa cha' me tanooshcha' me sharma' cha me varma' cha me.aMgaa'ni cha me.asthaani' cha me paroog'Mshhi cha me sharee'raaNi cha me 
+‖ 1 ‖
+
+jaishhThya'M cha ma aadhi'patyaM cha me manyushcha' me bhaama'shcha me.ama'shcha me.aMbha'shcha me jemaa cha' me mahimaa cha' me varimaa cha' me prathimaa cha' me varshhmaa cha' me draaghuyaa cha' me vRRiddhaM cha' me vRRiddhi'shcha me satyaM cha' me shraddhaa cha' me jaga'ccha me dhana'M cha me vasha'shcha me tvishhi'shcha me kreeDaa cha' me moda'shcha me jaataM cha' me janishhyamaa'NaM cha me sooktaM cha' me sukRRitaM cha' me vittaM cha' me vedya'M cha me bhootaM cha' me bhavishhyaccha' me sugaM cha' me supatha'M cha ma RRiddhaM cha' ma RRiddhi'shcha me kluptaM cha' me klupti'shcha me matishcha' me sumatishcha' me 
+‖ 2 ‖
+
+shaM cha' me maya'shcha me priyaM cha' me.anukaamashcha' me kaama'shcha me saumanasashcha' me bhadraM cha' me shreya'shcha me vasya'shcha me yasha'shcha me bhaga'shcha me dravi'NaM cha me yantaa cha' me dhartaa cha' me kshhema'shcha me dhRRiti'shcha me vishva'M cha me maha'shcha me saMviccha' me gnyaatra'M cha me sooshcha' me prasooshcha' me seera'M cha me layashcha' ma RRitaM cha' me.amRRita'M cha me.ayakshhmaM cha me.anaa'mayaccha me jeevaatu'shcha me deerghaayutvaM cha' me.anamitraM cha me.abha'yaM cha me sugaM cha' me shaya'naM cha me sooshhaa cha' me sudina'M cha me 
+‖ 3 ‖
+
+oorkcha' me soonRRitaa' cha me paya'shcha me rasa'shcha me ghRRitaM cha' me madhu' cha me sagdhi'shcha me sapee'tishcha me kRRishhishcha' me vRRishhTi'shcha me jaitra'M cha ma audbhi'dyaM cha me rayishcha' me raaya'shcha me pushhTaM cha me pushhTi'shcha me vibhu cha' me prabhu cha' me bahu cha' me bhooya'shcha me poorNaM cha' me poorNata'raM cha me.akshhi'tishcha me kooya'vaashcha me.anna'M cha me.akshhu'ccha me vreehaya'shcha me yavaa''shcha me maashhaa''shcha me tilaa''shcha me mudgaashcha' me khalvaa''shcha me godhoomaa''shcha me masuraa''shcha me priyaMga'vashcha me.aNa'vashcha me shyaamaakaa''shcha me neevaaraa''shcha me 
+‖ 4 ‖
+
+ashmaa' cha me mRRitti'kaa cha me giraya'shcha me parva'taashcha me sika'taashcha me vanaspata'yashcha me hira'NyaM cha me.aya'shcha me seesa'M cha me trapu'shcha me shyaamaM cha' me lohaM cha' me.agnishcha' ma aapa'shcha me veerudha'shcha ma oshha'dhayashcha me kRRishhTapachyaM cha' me.akRRishhTapachyaM cha' me graamyaashcha' me pashava' aaraNyaashcha' yagnyena' kalpaMtaaM vittaM cha' me vitti'shcha me bhootaM cha' me bhooti'shcha me vasu' cha me vasatishcha' me karma' cha me shakti'shcha me.artha'shcha ma ema'shcha ma iti'shcha me gati'shcha me 
+‖ 5 ‖
+
+agnishcha' ma iMdra'shcha me soma'shcha ma iMdra'shcha me savitaa cha' ma iMdra'shcha me sara'svatee cha ma iMdra'shcha me pooshhaa cha' ma iMdra'shcha me bRRihaspati'shcha ma iMdra'shcha me mitrashcha' ma iMdra'shcha me varu'Nashcha ma iMdra'shcha me tvashhThaa' cha ma iMdra'shcha me dhaataa cha' ma iMdra'shcha me vishhNu'shcha ma iMdra'shcha me.ashvinau' cha ma iMdra'shcha me maruta'shcha ma iMdra'shcha me vishve' cha me devaa iMdra'shcha me pRRithivee cha' ma iMdra'shcha me.antari'kshhaM cha ma iMdra'shcha me dyaushcha' ma iMdra'shcha me disha'shcha ma iMdra'shcha me moordhaa cha' ma iMdra'shcha me prajaapa'tishcha ma iMdra'shcha me 
+‖ 6 ‖
+
+agMshushcha' me rashmishcha me.adaa''bhyashcha me.adhi'patishcha ma upaagMshushcha' me.antaryaamashcha' ma aiMdravaayavashcha' me maitraavaruNashcha' ma aashvinashcha' me pratiprasthaana'shcha me shukrashcha' me maMthee cha' ma aagrayaNashcha' me vaishvadevashcha' me dhruvashcha' me vaishvaanarashcha' ma RRitugrahaashcha' me.atigraahyaa''shcha ma aiMdraagnashcha' me vaishvadevashcha' me marutvateeyaa''shcha me maaheMdrashcha' ma aadityashcha' me saavitrashcha' me saarasvatashcha' me paushhNashcha' me paatneevatashcha' me haariyojanashcha' me 
+‖ 7 ‖
+
+idhmashcha' me barhishcha' me vedi'shcha me dishhNi'yaashcha me srucha'shcha me chamasaashcha' me graavaa'Nashcha me svara'vashcha ma uparavaashcha' me.adhishhava'Ne cha me droNakalashashcha' me vaayavyaa'ni cha me pootabhRRiccha' ma aadhavaneeya'shcha ma aagnee''dhraM cha me havirdhaana'M cha me gRRihaashcha' me sada'shcha me puroDaashaa''shcha me pachataashcha' me.avabhRRithashcha' me svagaakaarashcha' me 
+‖ 8 ‖
+
+agnishcha' me gharmashcha' me.arkashcha' me soorya'shcha me praaNashcha' me.ashvamedhashcha' me pRRithivee cha me.adi'tishcha me diti'shcha me dyaushcha' me shakva'reeraMgula'yo disha'shcha me yagnyena' kalpantaamRRikcha' me saama' cha me stoma'shcha me yaju'shcha me deekshhaa cha' me tapa'shcha ma RRitushcha' me vrataM cha' me.ahoraatrayo''r-dRRishhTyaa bRRi'hadrathaMtare cha me yagnyena' kalpetaaM 
+‖ 9 ‖
+
+garbhaa''shcha me vatsaashcha' me tryavi'shcha me tryaveecha' me dityavaaT cha' me dityauhee cha' me paMchaa'vishcha me paMchaavee cha' me trivatsashcha' me trivatsaa cha' me turyavaaT cha' me turyauhee cha' me pashhThavaaT cha' me pashhThauhee cha' ma ukshhaa cha' me vashaa cha' ma RRishhabhashcha' me vehaccha' me.anaDvaaM cha me dhenushcha' ma aayu'r-yagnyena' kalpataaM praaNo yagnyena' kalpataam-apaano yagnyena' kalpataaM vyaano yagnyena' kalpataaM chakshhu'r-yagnyena' kalpataag shrotra'M yagnyena' kalpataaM mano' yagnyena' kalpataaM vaag-yagnyena' kalpataam-aatmaa yagnyena' kalpataaM yagnyo yagnyena' kalpataam 
+‖ 10 ‖
+
+ekaa' cha me tisrashcha' me paMcha' cha me sapta cha' me nava' cha ma ekaa'dasha cha me trayodasha cha me paMcha'dasha cha me saptada'sha cha me nava'dasha cha ma eka'vigMshatishcha me trayo'vigMshatishcha me paMcha'vigMshatishcha me sapta vig'Mshatishcha me nava'vigMshatishcha ma eka'trigMshaccha me traya'strigMshaccha me chata's-rashcha me.ashhTau cha' me dvaada'sha cha me shhoDa'sha cha me vigMshatishcha' me chatu'rvigMshatishcha me.ashhTaavig'Mshatishcha me dvaatrig'Mshachcha me shhaT-trig'Mshaccha me chatvaarigMshaccha' me chatu'sh-chatvaarigMshaccha me.ashhTaacha'tvaarigMshachcha me vaaja'shcha prasavashchaa'pijashcha kratu'shcha suva'shcha moordhaa cha vyashni'yash-chaantyaayanash-chaaMtya'shcha bhauvanashcha bhuva'nash-chaadhi'patishcha 
+‖ 11 ‖
+
+oM iDaa' devahoor-manu'r-yagnyaneer-bRRihaspati'rukthaamadaani' shagMsishhad-vishve'-devaaH soo''ktavaachaH pRRithi'vimaatarmaa maa' higMseer-madhu' manishhye madhu' janishhye madhu' vakshhyaami madhu' vadishhyaami madhu'mateeM devebhyo vaachamudyaasagMshushrooshheNyaa''m manushhye''bhyastaM maa' devaa a'vaMtu shobhaayai' pitaro.anu'madaMtu ‖
+
+oM shaaMtiH shaaMtiH shaaMti'H  ‖
+

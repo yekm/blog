@@ -679,3 +679,135 @@ iti shree sarasvatyashhT.ottarashatanaamast.otram sampoorNam ‖
 
 ఇతి శ్రీ సరస్వత్యష్టొత్తరశతనామస్తొత్రమ్ సంపూర్ణమ్ ‖  
 
+### English
+
+#### śrī sarasvatī aśhṭottara śata nāma stotram
+
+sarasvatī mahābhadrā mahāmāyā varapradā ❘  
+śrīpradā padmanilayā padmākśhī padmavaktragā 
+‖ 1 ‖
+
+śivānujā pustakadhṛt GYānamudrā ramā parā ❘  
+kāmarūpā mahāvidyā mahāpātakanāśinī 
+‖ 2 ‖
+
+mahāśrayā mālinī ca mahābhogā mahābhujā ❘  
+mahābhāgā mahotsāhā divyāṅgā suravanditā 
+‖ 3 ‖
+
+mahākālī mahāpāśā mahākārā mahāṅkuśā ❘  
+sītā ca vimalā viśvā vidyunmālā ca vaiśhṇavī 
+‖ 4 ‖
+
+candrikā candravadanā candralekhāvibhūśhitā ❘  
+sāvitrī surasā devī divyālaṅkārabhūśhitā 
+‖ 5 ‖
+
+vāgdevī vasudhā tīvrā mahābhadrā mahābalā ❘  
+bhogadā bhāratī bhāmā govindā gomatī śivā 
+‖ 6 ‖
+
+jaṭilā vindhyavāsā ca vindhyācalavirājitā ❘  
+caṇḍikā vaiśhṇavī brāhmī brahmaGYānaikasādhanā 
+‖ 7 ‖
+
+saudāminī sudhāmūrtissubhadrā surapūjitā ❘  
+suvāsinī sunāsā ca vinidrā padmalocanā 
+‖ 8 ‖
+
+vidyārūpā viśālākśhī brahmajāyā mahāphalā ❘  
+trayīmūrtī trikālaGYā triguṇā śāstrarūpiṇī 
+‖ 9 ‖
+
+śumbhāsurapramathinī śubhadā ca sarvātmikā ❘  
+raktabījanihantrī ca cāmuṇḍā cāmbikā tathā 
+‖ 10 ‖
+
+muṇḍakāya praharaṇā dhūmralocanamardanā ❘  
+sarvadevastutā saumyā surāsuranamaskṛtā 
+‖ 11 ‖
+
+kālarātrī kalādhārā rūpa saubhāgyadāyinī ❘  
+vāgdevī ca varārohā vārāhī vārijāsanā 
+‖ 12 ‖
+
+citrāmbarā citragandhā citramālyavibhūśhitā ❘  
+kāntā kāmapradā vandyā vidyādharā sūpūjitā 
+‖ 13 ‖
+
+śvetāsanā nīlabhujā caturvargaphalapradā ❘  
+caturānanasāmrājyā raktamadhyā nirañjanā 
+‖ 14 ‖
+
+haṃsāsanā nīlajaṅghā brahmaviśhṇuśivātmikā ❘  
+evaṃ sarasvatī devyā nāmnāmaśhṭottaraśatam 
+‖ 15 ‖
+
+iti śrī sarasvatyaśhṭottaraśatanāmastotram sampūrṇam ‖
+
+### PlainEnglish
+
+#### shree sarasvatee ashhTottara shata naama stotram
+
+sarasvatee mahaabhadraa mahaamaayaa varapradaa ❘  
+shreepradaa padmanilayaa padmaakshhee padmavaktragaa 
+‖ 1 ‖
+
+shivaanujaa pustakadhRRit gnyaanamudraa ramaa paraa ❘  
+kaamaroopaa mahaavidyaa mahaapaatakanaashinee 
+‖ 2 ‖
+
+mahaashrayaa maalinee ca mahaabh.ogaa mahaabhujaa ❘  
+mahaabhaagaa mah.otsaahaa divyaangaa suravaMditaa 
+‖ 3 ‖
+
+mahaakaalee mahaapaashaa mahaakaaraa mahaankushaa ❘  
+seetaa ca vimalaa vishvaa vidyunmaalaa ca vaishhNavee 
+‖ 4 ‖
+
+caMdrikaa caMdravadanaa caMdral.ekhaavibhooshhitaa ❘  
+saavitree surasaa d.evee divyaalaMkaarabhooshhitaa 
+‖ 5 ‖
+
+vaagd.evee vasudhaa teevraa mahaabhadraa mahaabalaa ❘  
+bh.ogadaa bhaaratee bhaamaa g.oviMdaa g.omatee shivaa 
+‖ 6 ‖
+
+jaTilaa viMdhyavaasaa ca viMdhyaacalaviraajitaa ❘  
+caMDikaa vaishhNavee braahmee brahmagnyaanaikasaadhanaa 
+‖ 7 ‖
+
+saudaaminee sudhaamoortissubhadraa surapoojitaa ❘  
+suvaasinee sunaasaa ca vinidraa padmal.ocanaa 
+‖ 8 ‖
+
+vidyaaroopaa vishaalaakshhee brahmajaayaa mahaaphalaa ❘  
+trayeemoortee trikaalagnyaa triguNaa shaastraroopiNee 
+‖ 9 ‖
+
+shuMbhaasurapramathinee shubhadaa ca sarvaatmikaa ❘  
+raktabeejanihaMtree ca caamuNDaa caaMbikaa tathaa 
+‖ 10 ‖
+
+muNDakaaya praharaNaa dhoomral.ocanamardanaa ❘  
+sarvad.evastutaa saumyaa suraasuranamaskRRitaa 
+‖ 11 ‖
+
+kaalaraatree kalaadhaaraa roopa saubhaagyadaayinee ❘  
+vaagd.evee ca varaar.ohaa vaaraahee vaarijaasanaa 
+‖ 12 ‖
+
+citraaMbaraa citragaMdhaa citramaalyavibhooshhitaa ❘  
+kaaMtaa kaamapradaa vaMdyaa vidyaadharaa soopoojitaa 
+‖ 13 ‖
+
+shv.etaasanaa neelabhujaa caturvargaphalapradaa ❘  
+caturaananasaamraajyaa raktamadhyaa niraMjanaa 
+‖ 14 ‖
+
+haMsaasanaa neelajanghaa brahmavishhNushivaatmikaa ❘  
+.evaM sarasvatee d.evyaa naamnaamashhT.ottarashatam 
+‖ 15 ‖
+
+iti shree sarasvatyashhT.ottarashatanaamast.otram sampoorNam ‖
+

@@ -289,3 +289,47 @@ niguDu nija shobhanapu neeraajanaM ‖
 జగతి నలమేల్మంగ చక్కదనములకెల్ల  
 నిగుడు నిజ శోభనపు నీరాజనం ‖  
 
+### English
+
+#### annamayya kīrtana kśhīrābdhi kanyakaku
+
+kśhīrābdhi kanyakaku śrī mahālakśhmikini   
+nīrajālayamunaku nīrājanaṃ ‖
+
+jalajākśhi momunaku jakkava kuchambulaku   
+nelakonna kappurapu nīrājanaṃ ❘  
+aliveṇi turumunaku hastakamalambulaku   
+niluvumāṇikyamula nīrājanaṃ ‖
+
+charaṇa kisalayamulaku sakiyarambhorulaku   
+niratamagu muttela nīrājanaṃ ❘  
+aridi jaghanambunaku ativanijanābhikini   
+nirati nānāvarṇa nīrājanaṃ ‖
+
+pagaṭu śrīveṅkaṭeśu paṭṭapurāṇiyai  
+negaḍu satikaḻalakunu nīrājanaṃ ❘  
+jagati nalamelmaṅga chakkadanamulakella  
+niguḍu nija śobhanapu nīrājanaṃ ‖
+
+### PlainEnglish
+
+#### annamayya keertana kshheeraabdhi kanyakaku
+
+kshheeraabdhi kanyakaku shree mahaalakshhmikini   
+neerajaalayamunaku neeraajanaM ‖
+
+jalajaakshhi momunaku jakkava kuchaMbulaku   
+n.elak.onna kappurapu neeraajanaM ❘  
+aliveNi turumunaku hastakamalaMbulaku   
+niluvumaaNikyamula neeraajanaM ‖
+
+charaNa kisalayamulaku sakiyaraMbhorulaku   
+niratamagu muttela neeraajanaM ❘  
+aridi jaghanaMbunaku ativanijanaabhikini   
+nirati naanaavarNa neeraajanaM ‖
+
+pagaTu shreeveMkaTeshu paTTapuraaNiyai  
+n.egaDu satikaLalakunu neeraajanaM ❘  
+jagati nalamelmaMga chakkadanamulak.ella  
+niguDu nija shobhanapu neeraajanaM ‖
+

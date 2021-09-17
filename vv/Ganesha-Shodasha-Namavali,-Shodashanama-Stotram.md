@@ -445,3 +445,73 @@ saMgraame sarva kaaryeshhu vighnastasya na jaayate ‖ 3 ‖
 సంగ్రామే సర్వ కార్యేషు విఘ్నస్తస్య న జాయతే ‖ 3 ‖  
 
 
+### English
+
+#### gaṇeśa śhoḍaśa nāmāvaḻi, śhoḍaśanāma stotram
+
+śrī vighneśvara śhoḍaśa nāmāvaḻiḥ  
+oṃ sumukhāya namaḥ  
+oṃ ekadantāya namaḥ  
+oṃ kapilāya namaḥ  
+oṃ gajakarṇakāya namaḥ  
+oṃ lambodarāya namaḥ  
+oṃ vikaṭāya namaḥ  
+oṃ vighnarājāya namaḥ  
+oṃ gaṇādhipāya namaḥ  
+oṃ dhūmraketave namaḥ  
+oṃ gaṇādhyakśhāya namaḥ  
+oṃ phālacandrāya namaḥ  
+oṃ gajānanāya namaḥ  
+oṃ vakratuṇḍāya namaḥ  
+oṃ śūrpakarṇāya namaḥ  
+oṃ herambāya namaḥ  
+oṃ skandapūrvajāya namaḥ  
+śrī vighneśvara śhoḍaśanāma stotram  
+sumukhaścaikadantaśca kapilo gajakarṇakaḥ ❘  
+lambodaraśca vikaṭo vighnarājo gaṇādhipaḥ 
+‖ 1 ‖
+
+dhūmra ketuḥ gaṇādhyakśho phālacandro gajānanaḥ ❘  
+vakratuṇḍa śśūrpakarṇo herambaḥ skandapūrvajaḥ 
+‖ 2 ‖
+
+śhoḍaśaitāni nāmāni yaḥ paṭhet śṛṇu yādapi ❘  
+vidyārambhe vivāhe ca praveśe nirgame tathā ❘  
+saṅgrāme sarva kāryeśhu vighnastasya na jāyate 
+‖ 3 ‖
+
+### PlainEnglish
+
+#### gaNesha shhoDasha naamaavaLi, shhoDashanaama stotram
+
+shree vighneshvara shhoDasha naamaavaLiH  
+oM sumukhaaya namaH  
+oM ekadaMtaaya namaH  
+oM kapilaaya namaH  
+oM gajakarNakaaya namaH  
+oM laMbodaraaya namaH  
+oM vikaTaaya namaH  
+oM vighnaraajaaya namaH  
+oM gaNaadhipaaya namaH  
+oM dhoomraketave namaH  
+oM gaNaadhyakshhaaya namaH  
+oM phaalacaMdraaya namaH  
+oM gajaananaaya namaH  
+oM vakratuMDaaya namaH  
+oM shoorpakarNaaya namaH  
+oM heraMbaaya namaH  
+oM skaMdapoorvajaaya namaH  
+shree vighneshvara shhoDashanaama stotram  
+sumukhashcaikadaMtashca kapilo gajakarNakaH ❘  
+laMbodarashca vikaTo vighnaraajo gaNaadhipaH 
+‖ 1 ‖
+
+dhoomra ketuH gaNaadhyakshho phaalacaMdro gajaananaH ❘  
+vakratuMDa shshoorpakarNo heraMbaH skaMdapoorvajaH 
+‖ 2 ‖
+
+shhoDashaitaani naamaani yaH paThet shRRiNu yaadapi ❘  
+vidyaaraMbhe vivaahe ca praveshe nirgame tathaa ❘  
+saMgraame sarva kaaryeshhu vighnastasya na jaayate 
+‖ 3 ‖
+

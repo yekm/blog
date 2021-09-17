@@ -1433,3 +1433,263 @@ jaya jaya he mahishhaasura-mardini ramyakapardini shailasute ‖ 21 ‖
 జయ జయ హే మహిషాసుర-మర్దిని రమ్యకపర్దిని శైలసుతే ‖ 21 ‖  
 
 
+### English
+
+#### śrī mahiśhāsura mardinī stotram
+
+ayi girinandini nanditamedini viśva-vinodini nandanute  
+girivara vindhya-śiroadhi-nivāsini viśhṇu-vilāsini jiśhṇunute ❘  
+bhagavati he śitikaṇṭha-kuṭumbiṇi bhūrikuṭumbiṇi bhūrikṛte  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 1 ‖
+
+suravara-harśhiṇi durdhara-dharśhiṇi durmukha-marśhiṇi harśharate  
+tribhuvana-pośhiṇi śaṅkara-tośhiṇi kalmaśha-mośhiṇi ghośharate ❘  
+danuja-nirośhiṇi ditisuta-rośhiṇi durmada-śośhiṇi sindhusute  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 2 ‖
+
+ayi jagadamba madamba kadambavana-priyavāsini hāsarate  
+śikhari-śiromaṇi tuṅa-himālaya-śṛṅganijālaya-madhyagate ❘  
+madhumadhure madhu-kaitabha-gañjini kaitabha-bhañjini rāsarate  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 3 ‖
+
+ayi śatakhaṇḍa-vikhaṇḍita-ruṇḍa-vituṇḍita-śuṇḍa-gajādhipate  
+ripu-gaja-gaṇḍa-vidāraṇa-chaṇḍaparākrama-śauṇḍa-mṛgādhipate ❘  
+nija-bhujadaṇḍa-nipāṭita-chaṇḍa-nipāṭita-muṇḍa-bhaṭādhipate  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 4 ‖
+
+ayi raṇadurmada-śatru-vadhodita-durdhara-nirjara-śakti-bhṛte  
+chatura-vichāra-dhurīṇa-mahāśaya-dūta-kṛta-pramathādhipate ❘  
+durita-durīha-durāśaya-durmati-dānava-dūta-kṛtāntamate  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 5 ‖
+
+ayi nija huṅkṛtimātra-nirākṛta-dhūmravilochana-dhūmraśate  
+samara-viśośhita-śoṇitabīja-samudbhavaśoṇita-bīja-late ❘  
+śiva-śiva-śumbhaniśumbha-mahāhava-tarpita-bhūtapiśācha-pate  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 6 ‖
+
+dhanuranusaṅgaraṇa-kśhaṇa-saṅga-parisphuradaṅga-naṭatkaṭake  
+kanaka-piśaṅga-pṛśhatka-niśhaṅga-rasadbhaṭa-śṛṅga-hatāvaṭuke ❘  
+kṛta-chaturaṅga-balakśhiti-raṅga-ghaṭad-bahuraṅga-raṭad-baṭuke  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 7 ‖
+
+ayi śaraṇāgata-vairivadhū-varavīravarābhaya-dāyikare  
+tribhuvanamastaka-śūla-virodhi-śirodhi-kṛtā'mala-śūlakare ❘  
+dumi-dumi-tāmara-dundubhi-nāda-maho-mukharīkṛta-diṅnikare  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 8 ‖
+
+suralalanā-tatatheyi-tatheyi-tathābhinayodara-nṛtya-rate  
+hāsavilāsa-hulāsa-mayipraṇa-tārtajanemita-premabhare ❘  
+dhimikiṭa-dhikkaṭa-dhikkaṭa-dhimidhvani-ghoramṛdaṅga-ninādarate  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 9 ‖
+
+jaya-jaya-japya-jaye-jaya-śabda-parastuti-tatpara-viśvanute  
+jhaṇajhaṇa-jhiñjhimi-jhiṅkṛta-nūpura-śiñjita-mohitabhūtapate ❘  
+naṭita-naṭārdha-naṭīnaṭa-nāyaka-nāṭakanāṭita-nāṭyarate  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 10 ‖
+
+ayi sumanaḥ sumanaḥ sumanaḥ sumanaḥ sumanohara kāntiyute  
+śritarajanīraja-nīraja-nīrajanī-rajanīkara-vaktravṛte ❘  
+sunayanavibhrama-rabhra-mara-bhramara-bhrama-rabhramarādhipate  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 11 ‖
+
+mahita-mahāhava-mallamatallika-mallita-rallaka-malla-rate  
+virachitavallika-pallika-mallika-jhillika-bhillika-vargavṛte ❘  
+sita-kṛtaphulla-samullasitā'ruṇa-tallaja-pallava-sallalite  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 12 ‖
+
+aviraḻa-gaṇḍagaḻan-mada-medura-matta-mataṅgajarāja-pate  
+tribhuvana-bhūśhaṇabhūta-kaḻānidhirūpa-payonidhirājasute ❘  
+ayi sudatījana-lālasa-mānasa-mohana-manmadharāja-sute  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 13 ‖
+
+kamaladaḻāmala-komala-kānti-kalākalitā'mala-bhālatale  
+sakala-vilāsakaḻā-nilayakrama-keḻikalat-kalahaṃsakule ❘  
+alikula-saṅkula-kuvalayamaṇḍala-mauḻimilad-vakulālikule  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 14 ‖
+
+kara-muraḻī-rava-vījita-kūjita-lajjita-kokila-mañjurute  
+milita-milinda-manohara-guñjita-rañjita-śailanikuñja-gate ❘  
+nijagaṇabhūta-mahāśabarīgaṇa-raṅgaṇa-sambhṛta-keḻitate  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 15 ‖
+
+kaṭitaṭa-pīta-dukūla-vichitra-mayūkha-tiraskṛta-chandraruche  
+praṇatasurāsura-mauḻimaṇisphurad-aṃśulasan-nakhasāndraruche ❘  
+jita-kanakāchalamauḻi-madorjita-nirjarakuñjara-kumbha-kuche  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 16 ‖
+
+vijita-sahasrakaraika-sahasrakaraika-sahasrakaraikanute  
+kṛta-suratāraka-saṅgara-tāraka saṅgara-tārakasūnu-sute ❘  
+suratha-samādhi-samāna-samādhi-samādhisamādhi-sujāta-rate  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 17 ‖
+
+padakamalaṃ karuṇānilaye varivasyati yoanudinaṃ na śive  
+ayi kamale kamalānilaye kamalānilayaḥ sa kathaṃ na bhavet ❘  
+tava padameva parampada-mityanuśīlayato mama kiṃ na śive  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 18 ‖
+
+kanakalasatkala-sindhujalairanuśhiñjati te guṇaraṅgabhuvaṃ  
+bhajati sa kiṃ nu śachīkuchakumbhata-taṭīpari-rambha-sukhānubhavaṃ ❘  
+tava charaṇaṃ śaraṇaṃ karavāṇi natāmaravāṇi nivāśi śivaṃ  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 19 ‖
+
+tava vimaleandukalaṃ vadanendumalaṃ sakalaṃ nanu kūlayate  
+kimu puruhūta-purīndumukhī-sumukhībhirasau-vimukhī-kriyate ❘  
+mama tu mataṃ śivanāma-dhane bhavatī-kṛpayā kimuta kriyate  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 20 ‖
+
+ayi mayi dīnadayāḻutayā karuṇāparayā bhavitavyamume  
+ayi jagato jananī kṛpayāsi yathāsi tathānumitāsi rame ❘  
+yaduchitamatra bhavatyurarī kurutā-durutāpamapā-kurute  
+jaya jaya he mahiśhāsura-mardini ramyakapardini śailasute 
+‖ 21 ‖
+
+### PlainEnglish
+
+#### shree mahishhaasura mardinee stotram
+
+ayi girinandini nanditamedini vishva-vinodini nandanute  
+girivara vindhya-shiro.adhi-nivaasini vishhNu-vilaasini jishhNunute ❘  
+bhagavati he shitikaNTha-kuTumbiNi bhoorikuTumbiNi bhoorikRRite  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 1 ‖
+
+suravara-harshhiNi durdhara-dharshhiNi durmukha-marshhiNi harshharate  
+tribhuvana-poshhiNi shankara-toshhiNi kalmashha-moshhiNi ghoshharate ❘  
+danuja-niroshhiNi ditisuta-roshhiNi durmada-shoshhiNi siMdhusute  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 2 ‖
+
+ayi jagadamba madamba kadambavana-priyavaasini haasarate  
+shikhari-shiromaNi tuna-himaalaya-shRRinganijaalaya-madhyagate ❘  
+madhumadhure madhu-kaitabha-ganjini kaitabha-bhanjini raasarate  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 3 ‖
+
+ayi shatakhaNDa-vikhaNDita-ruNDa-vituNDita-shuNDa-gajaadhipate  
+ripu-gaja-gaNDa-vidaaraNa-chaNDaparaakrama-shauNDa-mRRigaadhipate ❘  
+nija-bhujadaMDa-nipaaTita-chaNDa-nipaaTita-muNDa-bhaTaadhipate  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 4 ‖
+
+ayi raNadurmada-shatru-vadhodita-durdhara-nirjara-shakti-bhRRite  
+chatura-vichaara-dhureeNa-mahaashaya-doota-kRRita-pramathaadhipate ❘  
+durita-dureeha-duraashaya-durmati-daanava-doota-kRRitaantamate  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 5 ‖
+
+ayi nija huMkRRitimaatra-niraakRRita-dhoomravilochana-dhoomrashate  
+samara-vishoshhita-shoNitabeeja-samudbhavashoNita-beeja-late ❘  
+shiva-shiva-shumbhanishuMbha-mahaahava-tarpita-bhootapishaacha-pate  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 6 ‖
+
+dhanuranusangaraNa-kshhaNa-sanga-parisphuradanga-naTatkaTake  
+kanaka-pishanga-pRRishhatka-nishhanga-rasadbhaTa-shRRinga-hataavaTuke ❘  
+kRRita-chaturanga-balakshhiti-ranga-ghaTad-bahuranga-raTad-baTuke  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 7 ‖
+
+ayi sharaNaagata-vairivadhoo-varaveeravaraabhaya-daayikare  
+tribhuvanamastaka-shoola-virodhi-shirodhi-kRRitaa.amala-shoolakare ❘  
+dumi-dumi-taamara-dundubhi-naada-maho-mukhareekRRita-dinnikare  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 8 ‖
+
+suralalanaa-tatatheyi-tatheyi-tathaabhinayodara-nRRitya-rate  
+haasavilaasa-hulaasa-mayipraNa-taartajanemita-premabhare ❘  
+dhimikiTa-dhikkaTa-dhikkaTa-dhimidhvani-ghoramRRidanga-ninaadarate  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 9 ‖
+
+jaya-jaya-japya-jaye-jaya-shabda-parastuti-tatpara-vishvanute  
+jhaNajhaNa-jhinjhimi-jhinkRRita-noopura-shinjita-mohitabhootapate ❘  
+naTita-naTaardha-naTeenaTa-naayaka-naaTakanaaTita-naaTyarate  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 10 ‖
+
+ayi sumanaH sumanaH sumanaH sumanaH sumanohara kaantiyute  
+shritarajaneeraja-neeraja-neerajanee-rajaneekara-vaktravRRite ❘  
+sunayanavibhrama-rabhra-mara-bhramara-bhrama-rabhramaraadhipate  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 11 ‖
+
+mahita-mahaahava-mallamatallika-mallita-rallaka-malla-rate  
+virachitavallika-pallika-mallika-jhillika-bhillika-vargavRRite ❘  
+sita-kRRitaphulla-samullasitaa.aruNa-tallaja-pallava-sallalite  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 12 ‖
+
+aviraLa-gaNDagaLan-mada-medura-matta-matangajaraaja-pate  
+tribhuvana-bhooshhaNabhoota-kaLaanidhiroopa-payonidhiraajasute ❘  
+ayi sudateejana-laalasa-maanasa-mohana-manmadharaaja-sute  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 13 ‖
+
+kamaladaLaamala-komala-kaanti-kalaakalitaa.amala-bhaalatale  
+sakala-vilaasakaLaa-nilayakrama-keLikalat-kalahaMsakule ❘  
+alikula-saMkula-kuvalayamaMDala-mauLimilad-vakulaalikule  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 14 ‖
+
+kara-muraLee-rava-veejita-koojita-lajjita-kokila-manjurute  
+milita-milinda-manohara-gunjita-ranjita-shailanikunja-gate ❘  
+nijagaNabhoota-mahaashabareegaNa-raMgaNa-saMbhRRita-keLitate  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 15 ‖
+
+kaTitaTa-peeta-dukoola-vichitra-mayookha-tiraskRRita-chandraruche  
+praNatasuraasura-mauLimaNisphurad-aMshulasan-nakhasaaMdraruche ❘  
+jita-kanakaachalamauLi-madorjita-nirjarakunjara-kumbha-kuche  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 16 ‖
+
+vijita-sahasrakaraika-sahasrakaraika-sahasrakaraikanute  
+kRRita-surataaraka-sangara-taaraka sangara-taarakasoonu-sute ❘  
+suratha-samaadhi-samaana-samaadhi-samaadhisamaadhi-sujaata-rate  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 17 ‖
+
+padakamalaM karuNaanilaye varivasyati yo.anudinaM na shive  
+ayi kamale kamalaanilaye kamalaanilayaH sa kathaM na bhavet ❘  
+tava padameva parampada-mityanusheelayato mama kiM na shive  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 18 ‖
+
+kanakalasatkala-sindhujalairanushhinjati t.e guNarangabhuvaM  
+bhajati sa kiM nu shacheekuchakumbhata-taTeepari-rambha-sukhaanubhavaM ❘  
+tava charaNaM sharaNaM karavaaNi nataamaravaaNi nivaashi shivaM  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 19 ‖
+
+tava vimale.andukalaM vadanendumalaM sakalaM nanu koolayate  
+kimu puruhoota-pureeMdumukhee-sumukheebhirasau-vimukhee-kriyate ❘  
+mama tu mataM shivanaama-dhane bhavatee-kRRipayaa kimuta kriyate  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 20 ‖
+
+ayi mayi deenadayaaLutayaa karuNaaparayaa bhavitavyamume  
+ayi jagato jananee kRRipayaasi yathaasi tathaanumitaasi rame ❘  
+yaduchitamatra bhavatyuraree kurutaa-durutaapamapaa-kurute  
+jaya jaya he mahishhaasura-mardini ramyakapardini shailasute 
+‖ 21 ‖
+

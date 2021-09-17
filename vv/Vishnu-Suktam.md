@@ -211,3 +211,93 @@ oM shaaM _ti_ H shaaM _ti_ H shaaMti'H ‖
 
 ఓం శాం _తిః_ శాం _తిః_ శాంతిః' ‖  
 
+### English
+
+#### viśhṇu sūktam
+
+oṃ viśhṇornuka'ṃ vīryā'ṇi pravo'chaṃ yaḥ pārthi'vāni vimame rājāgṃ'si yo aska'bhāyadutta'ragṃ sadhastha'ṃ vichakramāṇastredhoru'gāyo viśhṇo'rarāṭa'masi viśhṇo''ḥ pṛśhṭhama'si viśhṇoḥ śnaptre''stho viśhṇossyūra'si viśhṇo''rdhruvama'si vaiśhṇavama'si viśhṇa've tvā ‖
+
+tada'sya priyamabhipātho' aśyām ❘  
+naro yatra' devayavo mada'nti ❘  
+urukramasya sa hi bandhu'ritthā ❘  
+viśhṇo'' pade pa'rame madhva uthsa'ḥ ❘  
+pratadviśhṇu'sstavate vīryā'ya ❘  
+mṛgo na bhīmaḥ ku'charo gi'riśhṭhāḥ ❘  
+yasyoruśhu' triśhu vikrama'ṇeśhu ❘  
+adhi'kśhayanti bhuva'nāni viśvā'' ❘  
+paro mātra'yā tanuvā' vṛdhāna ❘  
+na te' mahitvamanva'śnuvanti ‖
+
+ubhe te' vidmā raja'sī pṛthivyā viśhṇo' devatvam ❘  
+paramasya' vithse ❘  
+vicha'krame pṛthivīmeśha etām ❘  
+kśhetrā'ya viśhṇurmanu'śhe daśasyan ❘  
+dhruvāso' asya kīrayo janā'saḥ ❘  
+ūrukśhitigṃ sujani'māchakāra ❘  
+trirdevaḥ pṛ'thivīmeśha etām ❘  
+vicha'krame śatarcha'saṃ mahitvā ❘  
+praviśhṇu'rastu tavasastavī'yān ❘  
+tveśhagg hya'sya  sthavi'rasya nāma' ‖
+
+ato' devā a'vantu no yato viśhṇu'rvichakrame ❘  
+pṛthivyāḥ saptadhāma'bhiḥ ❘  
+idaṃ viśhṇurvicha'krame tredhā nida'dhe padam ❘  
+samū'ḍhamasya pāgṃ sure 
+‖ trīṇi' padā vicha'krame viśhṇu'rgopā adā''bhyaḥ ❘  
+tato dharmā'ṇi dhārayan' ❘  
+viśhṇoḥ karmā'ṇi paśyata yato'' vratāni' paspṛśe ❘  
+indra'sya yujyaḥ sakhā'' ‖
+
+tadviśhṇo''ḥ paramaṃ padagṃ sadā' paśyanti sūraya'ḥ ❘  
+divīva  chakśhurāta'tam ❘  
+tadviprā'so vipanyavo' jāgṛvāgṃ sassami'ndhate ❘  
+viśhṇoryatpa'ramaṃ padam ❘  
+paryā''ptyā ana'ntarāyāya sarva'stomoati rātra u'ttama maha'rbhavati sarvasyāptyai sarva'sya jittyai sarva'meva tenā''pnoti sarvaṃ' jayati ‖
+
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+### PlainEnglish
+
+#### vishhNu sooktam
+
+oM vishhNornuka'M veeryaa'Ni pravo'chaM yaH paarthi'vaani vimame raajaagM'si yo aska'bhaayadutta'ragM sadhastha'M vichakramaaNastredhoru'gaayo vishhNo'raraaTa'masi vishhNo''H pRRishhThama'si vishhNoH shnaptre''stho vishhNossyoora'si vishhNo''rdhruvama'si vaishhNavama'si vishhNa've tvaa ‖
+
+tada'sya priyamabhipaatho' ashyaam ❘  
+naro yatra' devayavo mada'nti ❘  
+urukramasya sa hi bandhu'ritthaa ❘  
+vishhNo'' pade pa'rame madhva uthsa'H ❘  
+pratadvishhNu'sstavate veeryaa'ya ❘  
+mRRigo na bheemaH ku'charo gi'rishhThaaH ❘  
+yasyorushhu' trishhu vikrama'Neshhu ❘  
+adhi'kshhayanti bhuva'naani vishvaa'' ❘  
+paro maatra'yaa tanuvaa' vRRidhaana ❘  
+na te' mahitvamanva'shnuvanti ‖
+
+ubhe te' vidmaa raja'see pRRithivyaa vishhNo' devatvam ❘  
+paramasya' vithse ❘  
+vicha'krame pRRithiveemeshha etaam ❘  
+kshhetraa'ya vishhNurmanu'shhe dashasyan ❘  
+dhruvaaso' asya keerayo janaa'saH ❘  
+oorukshhitigM sujani'maachakaara ❘  
+trirdevaH pRRi'thiveemeshha etaam ❘  
+vicha'krame shatarcha'saM mahitvaa ❘  
+pravishhNu'rastu tavasastavee'yaan ❘  
+tveshhagg hya'sya  sthavi'rasya naama' ‖
+
+ato' devaa a'vaMtu no yato vishhNu'rvichakrame ❘  
+pRRithivyaaH saptadhaama'bhiH ❘  
+idaM vishhNurvicha'krame tredhaa nida'dhe padam ❘  
+samoo'Dhamasya paagM sure 
+‖ treeNi' padaa vicha'krame vishhNu'rgopaa adaa''bhyaH ❘  
+tato dharmaa'Ni dhaarayan' ❘  
+vishhNoH karmaa'Ni pashyata yato'' vrataani' paspRRishe ❘  
+indra'sya yujyaH sakhaa'' ‖
+
+tadvishhNo''H paramaM padagM sadaa' pashyanti sooraya'H ❘  
+diveeva  chakshhuraata'tam ❘  
+tadvipraa'so vipanyavo' jaagRRivaagM sassami'ndhate ❘  
+vishhNoryatpa'ramaM padam ❘  
+paryaa''ptyaa ana'ntaraayaaya sarva'stomo.ati raatra u'ttama maha'rbhavati sarvasyaaptyai sarva'sya jittyai sarva'meva tenaa''pnoti sarvaM' jayati ‖
+
+oM shaaMtiH shaaMtiH shaaMti'H ‖
+

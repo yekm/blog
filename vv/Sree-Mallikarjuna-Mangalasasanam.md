@@ -341,3 +341,51 @@ moordeMdugaMgaM madanaaMga bhaMgaM shreeshailaliMgaM shirasaa namaami ‖
 
 
 
+### English
+
+#### śrī mallikārjuna maṅgaḻāśāsanam
+
+umākāntāya kāntāya kāmitārtha pradāyine   
+śrīgirīśāya devāya mallināthāya maṅgaḻam ‖
+
+sarvamaṅgaḻa rūpāya śrī nagendra nivāsine   
+gaṅgādharāya nāthāya śrīgirīśāya maṅgaḻam ‖
+
+satyānanda svarūpāya nityānanda vidhāyane   
+stutyāya śrutigamyāya śrīgirīśāya maṅgaḻam ‖
+
+muktipradāya mukhyāya bhaktānugrahakāriṇe   
+sundareśāya saumyāya śrīgirīśāya maṅgaḻam ‖
+
+śrīśaile śikhareśvaraṃ gaṇapatiṃ śrī haṭakeśaṃ   
+punassāraṅgeśvara bindutīrthamamalaṃ ghaṇṭārka siddheśvaram ❘  
+gaṅgāṃ śrī bhramarāmbikāṃ girisutāmārāmavīreśvaraṃ   
+śaṅkhañcakra varāhatīrthamaniśaṃ śrīśailanāthaṃ bhaje ‖
+
+hastekuraṅgaṃ girimadhyaraṅgaṃ śṛṅgāritāṅgaṃ girijānuśhaṅgam   
+mūrdendugaṅgaṃ madanāṅga bhaṅgaṃ śrīśailaliṅgaṃ śirasā namāmi ‖
+
+### PlainEnglish
+
+#### shree mallikaarjuna maMgaLaashaasanam
+
+umaakaaMtaaya kaaMtaaya kaamitaartha pradaayine   
+shreegireeshaaya devaaya mallinaathaaya maMgaLam ‖
+
+sarvamaMgaLa roopaaya shree nageMdra nivaasine   
+gaMgaadharaaya naathaaya shreegireeshaaya maMgaLam ‖
+
+satyaanaMda svaroopaaya nityaanaMda vidhaayane   
+stutyaaya shrutigamyaaya shreegireeshaaya maMgaLam ‖
+
+muktipradaaya mukhyaaya bhaktaanugrahakaariNe   
+suMdareshaaya saumyaaya shreegireeshaaya maMgaLam ‖
+
+shreeshaile shikhareshvaraM gaNapatiM shree haTakeshaM   
+punassaaraMgeshvara biMduteerthamamalaM ghaMTaarka siddheshvaram ❘  
+gaMgaaM shree bhramaraaMbikaaM girisutaamaaraamaveereshvaraM   
+shaMkhaMcakra varaahateerthamanishaM shreeshailanaathaM bhaje ‖
+
+hastekuraMgaM girimadhyaraMgaM shRRiMgaaritaaMgaM girijaanushhaMgam   
+moordeMdugaMgaM madanaaMga bhaMgaM shreeshailaliMgaM shirasaa namaami ‖
+

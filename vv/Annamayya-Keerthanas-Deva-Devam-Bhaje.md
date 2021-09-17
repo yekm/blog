@@ -315,3 +315,49 @@ v.eMkaTeshaM saadhu vibudha vinutaM ‖
 లంకా విశోషణం లాలితవిభీషణం  
 వెంకటేశం సాధు విబుధ వినుతం ‖  
 
+### English
+
+#### annamayya kīrtana deva devaṃ bhaje
+
+rāgaṃ: dhannāsi   
+deva devaṃ bhaje divyaprabhāvaṃ ❘  
+rāvaṇāsuravairi raṇapuṅgavaṃ ‖
+
+rājavaraśekharaṃ ravikulasudhākaraṃ  
+ājānubāhu nīlābhrakāyaṃ ❘  
+rājāri kodaṇḍa rāja dīkśhāguruṃ  
+rājīvalocanaṃ rāmacandraṃ ‖
+
+nīlajīmūta sannibhaśarīraṃ ghanavi-  
+śālavakśhaṃ vimala jalajanābhaṃ ❘  
+tālāhinagaharaṃ dharmasaṃsthāpanaṃ  
+bhūlalanādhipaṃ bhogiśayanaṃ ‖
+
+paṅkajāsanavinuta paramanārāyaṇaṃ  
+śaṅkarārjita janaka cāpadaḻanaṃ ❘  
+laṅkā viśośhaṇaṃ lālitavibhīśhaṇaṃ  
+veṅkaṭeśaṃ sādhu vibudha vinutaṃ ‖
+
+### PlainEnglish
+
+#### annamayya keertana deva devaM bhaje
+
+raagaM: dhannaasi   
+deva devaM bhaje divyaprabhaavaM ❘  
+raavaNaasuravairi raNapuMgavaM ‖
+
+raajavarashekharaM ravikulasudhaakaraM  
+aajaanubaahu neelaabhrakaayaM ❘  
+raajaari kodaMDa raaja deekshhaaguruM  
+raajeevalocanaM raamacaMdraM ‖
+
+neelajeemoota sannibhashareeraM ghanavi-  
+shaalavakshhaM vimala jalajanaabhaM ❘  
+taalaahinagaharaM dharmasaMsthaapanaM  
+bhoolalanaadhipaM bhogishayanaM ‖
+
+paMkajaasanavinuta paramanaaraayaNaM  
+shaMkaraarjita janaka caapadaLanaM ❘  
+laMkaa vishoshhaNaM laalitavibheeshhaNaM  
+v.eMkaTeshaM saadhu vibudha vinutaM ‖
+

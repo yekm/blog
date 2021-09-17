@@ -1121,3 +1121,217 @@ daivaasurasaMpadvibhaagayogo naama shhoDasho.adhyaayaH ‖16 ‖
 దైవాసురసంపద్విభాగయోగో నామ షోడశోఽధ్యాయః ‖16 ‖  
 \చ్f1  
 
+### English
+
+#### śrīmad bhagavad gīta śhoḍaśoadhyāyaḥ
+
+atha śhoḍaśoadhyāyaḥ ❘  
+śrībhagavānuvācha ❘  
+abhayaṃ sattvasaṃśuddhirGYānayogavyavasthitiḥ ❘  
+dānaṃ damaścha yaGYaścha svādhyāyastapa ārjavam 
+‖ 1 ‖
+
+ahiṃsā satyamakrodhastyāgaḥ śāntirapaiśunam ❘  
+dayā bhūteśhvaloluptvaṃ mārdavaṃ hrīrachāpalam 
+‖ 2 ‖
+
+tejaḥ kśhamā dhṛtiḥ śauchamadroho nātimānitā ❘  
+bhavanti sampadaṃ daivīmabhijātasya bhārata 
+‖ 3 ‖
+
+dambho darpoabhimānaścha krodhaḥ pāruśhyameva cha ❘  
+aGYānaṃ chābhijātasya pārtha sampadamāsurīm 
+‖ 4 ‖
+
+daivī sampadvimokśhāya nibandhāyāsurī matā ❘  
+mā śuchaḥ sampadaṃ daivīmabhijātoasi pāṇḍava 
+‖ 5 ‖
+
+dvau bhūtasargau lokeasmindaiva āsura eva cha ❘  
+daivo vistaraśaḥ prokta āsuraṃ pārtha me śṛṇu 
+‖ 6 ‖
+
+pravṛttiṃ cha nivṛttiṃ cha janā na vidurāsurāḥ ❘  
+na śauchaṃ nāpi chāchāro na satyaṃ teśhu vidyate 
+‖ 7 ‖
+
+asatyamapratiśhṭhaṃ te jagadāhuranīśvaram ❘  
+aparasparasambhūtaṃ kimanyatkāmahaitukam 
+‖ 8 ‖
+
+etāṃ dṛśhṭimavaśhṭabhya naśhṭātmānoalpabuddhayaḥ ❘  
+prabhavantyugrakarmāṇaḥ kśhayāya jagatoahitāḥ 
+‖ 9 ‖
+
+kāmamāśritya duśhpūraṃ dambhamānamadānvitāḥ ❘  
+mohādgṛhītvāsadgrāhānpravartanteaśuchivratāḥ 
+‖ 10 ‖
+
+chintāmaparimeyāṃ cha pralayāntāmupāśritāḥ ❘  
+kāmopabhogaparamā etāvaditi niśchitāḥ 
+‖ 11 ‖
+
+āśāpāśaśatairbaddhāḥ kāmakrodhaparāyaṇāḥ ❘  
+īhante kāmabhogārthamanyāyenārthasañchayān 
+‖ 12 ‖
+
+idamadya mayā labdhamimaṃ prāpsye manoratham ❘  
+idamastīdamapi me bhaviśhyati punardhanam 
+‖ 13 ‖
+
+asau mayā hataḥ śatrurhaniśhye chāparānapi ❘  
+īśvaroahamahaṃ bhogī siddhoahaṃ balavānsukhī 
+‖ 14 ‖
+
+āḍhyoabhijanavānasmi koanyosti sadṛśo mayā ❘  
+yakśhye dāsyāmi modiśhya ityaGYānavimohitāḥ 
+‖ 15 ‖
+
+anekachittavibhrāntā mohajālasamāvṛtāḥ ❘  
+prasaktāḥ kāmabhogeśhu patanti narakeaśuchau 
+‖ 16 ‖
+
+ātmasambhāvitāḥ stabdhā dhanamānamadānvitāḥ ❘  
+yajante nāmayaGYaiste dambhenāvidhipūrvakam 
+‖ 17 ‖
+
+ahaṅkāraṃ balaṃ darpaṃ kāmaṃ krodhaṃ cha saṃśritāḥ ❘  
+māmātmaparadeheśhu pradviśhantoabhyasūyakāḥ 
+‖ 18 ‖
+
+tānahaṃ dviśhataḥ krūrānsaṃsāreśhu narādhamān ❘  
+kśhipāmyajasramaśubhānāsurīśhveva yoniśhu 
+‖ 19 ‖
+
+āsurīṃ yonimāpannā mūḍhā janmani janmani ❘  
+māmaprāpyaiva kaunteya tato yāntyadhamāṃ gatim 
+‖ 20 ‖
+
+trividhaṃ narakasyedaṃ dvāraṃ nāśanamātmanaḥ ❘  
+kāmaḥ krodhastathā lobhastasmādetattrayaṃ tyajet 
+‖ 21 ‖
+
+etairvimuktaḥ kaunteya tamodvāraistribhirnaraḥ ❘  
+ācharatyātmanaḥ śreyastato yāti parāṃ gatim 
+‖ 22 ‖
+
+yaḥ śāstravidhimutsṛjya vartate kāmakārataḥ ❘  
+na sa siddhimavāpnoti na sukhaṃ na parāṃ gatim 
+‖ 23 ‖
+
+tasmāchChāstraṃ pramāṇaṃ te kāryākāryavyavasthitau ❘  
+GYātvā śāstravidhānoktaṃ karma kartumihārhasi 
+‖ 24 ‖
+
+oṃ tatsaditi śrīmadbhagavadgītāsūpaniśhatsu brahmavidyāyāṃ yogaśāstre śrīkṛśhṇārjunasaṃvāde   
+daivāsurasampadvibhāgayogo nāma śhoḍaśoadhyāyaḥ 
+‖16 ‖
+
+\cf1  
+### PlainEnglish
+
+#### shreemad bhagavad geeta shhoDasho.adhyaayaH
+
+atha shhoDasho.adhyaayaH ❘  
+shreebhagavaanuvaacha ❘  
+abhayaM sattvasaMshuddhirgnyaanayogavyavasthitiH ❘  
+daanaM damashcha yagnyashcha svaadhyaayastapa aarjavam 
+‖ 1 ‖
+
+ahiMsaa satyamakrodhastyaagaH shaantirapaishunam ❘  
+dayaa bhooteshhvaloluptvaM maardavaM hreerachaapalam 
+‖ 2 ‖
+
+tejaH kshhamaa dhRRitiH shauchamadroho naatimaanitaa ❘  
+bhavanti saMpadaM daiveemabhijaatasya bhaarata 
+‖ 3 ‖
+
+dambho darpo.abhimaanashcha krodhaH paarushhyameva cha ❘  
+agnyaanaM chaabhijaatasya paartha saMpadamaasureem 
+‖ 4 ‖
+
+daivee saMpadvimokshhaaya nibandhaayaasuree mataa ❘  
+maa shuchaH saMpadaM daiveemabhijaato.asi paaMDava 
+‖ 5 ‖
+
+dvau bhootasargau loke.asmindaiva aasura eva cha ❘  
+daivo vistarashaH prokta aasuraM paartha me shRRiNu 
+‖ 6 ‖
+
+pravRRittiM cha nivRRittiM cha janaa na viduraasuraaH ❘  
+na shauchaM naapi chaachaaro na satyaM teshhu vidyate 
+‖ 7 ‖
+
+asatyamapratishhThaM te jagadaahuraneeshvaram ❘  
+aparasparasaMbhootaM kimanyatkaamahaitukam 
+‖ 8 ‖
+
+etaaM dRRishhTimavashhTabhya nashhTaatmaano.alpabuddhayaH ❘  
+prabhavantyugrakarmaaNaH kshhayaaya jagato.ahitaaH 
+‖ 9 ‖
+
+kaamamaashritya dushhpooraM dambhamaanamadaanvitaaH ❘  
+mohaadgRRiheetvaasadgraahaanpravartante.ashuchivrataaH 
+‖ 10 ‖
+
+chintaamaparimeyaaM cha pralayaantaamupaashritaaH ❘  
+kaamopabhogaparamaa etaavaditi nishchitaaH 
+‖ 11 ‖
+
+aashaapaashashatairbaddhaaH kaamakrodhaparaayaNaaH ❘  
+eehante kaamabhogaarthamanyaayenaarthasaMchayaan 
+‖ 12 ‖
+
+idamadya mayaa labdhamimaM praapsye manoratham ❘  
+idamasteedamapi me bhavishhyati punardhanam 
+‖ 13 ‖
+
+asau mayaa hataH shatrurhanishhye chaaparaanapi ❘  
+eeshvaro.ahamahaM bhogee siddho.ahaM balavaansukhee 
+‖ 14 ‖
+
+aaDhyo.abhijanavaanasmi ko.anyosti sadRRisho mayaa ❘  
+yakshhye daasyaami modishhya ityagnyaanavimohitaaH 
+‖ 15 ‖
+
+anekachittavibhraantaa mohajaalasamaavRRitaaH ❘  
+prasaktaaH kaamabhogeshhu patanti narake.ashuchau 
+‖ 16 ‖
+
+aatmasaMbhaavitaaH stabdhaa dhanamaanamadaanvitaaH ❘  
+yajante naamayagnyaiste dambhenaavidhipoorvakam 
+‖ 17 ‖
+
+ahaMkaaraM balaM darpaM kaamaM krodhaM cha saMshritaaH ❘  
+maamaatmaparadeheshhu pradvishhanto.abhyasooyakaaH 
+‖ 18 ‖
+
+taanahaM dvishhataH krooraansaMsaareshhu naraadhamaan ❘  
+kshhipaamyajasramashubhaanaasureeshhveva yonishhu 
+‖ 19 ‖
+
+aasureeM yonimaapannaa mooDhaa janmani janmani ❘  
+maamapraapyaiva kaunteya tato yaantyadhamaaM gatim 
+‖ 20 ‖
+
+trividhaM narakasyedaM dvaaraM naashanamaatmanaH ❘  
+kaamaH krodhastathaa lobhastasmaadetattrayaM tyajet 
+‖ 21 ‖
+
+etairvimuktaH kaunteya tamodvaaraistribhirnaraH ❘  
+aacharatyaatmanaH shreyastato yaati paraaM gatim 
+‖ 22 ‖
+
+yaH shaastravidhimutsRRijya vartate kaamakaarataH ❘  
+na sa siddhimavaapnoti na sukhaM na paraaM gatim 
+‖ 23 ‖
+
+tasmaachChaastraM pramaaNaM te kaaryaakaaryavyavasthitau ❘  
+gnyaatvaa shaastravidhaanoktaM karma kartumihaarhasi 
+‖ 24 ‖
+
+oM tatsaditi shreemadbhagavadgeetaasoopanishhatsu brahmavidyaayaaM yogashaastre shreekRRishhNaarjunasaMvaade   
+daivaasurasaMpadvibhaagayogo naama shhoDasho.adhyaayaH 
+‖16 ‖
+
+\cf1  

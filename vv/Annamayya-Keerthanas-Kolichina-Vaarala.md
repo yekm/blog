@@ -302,3 +302,47 @@ prakaTita dasharatha bhaagyaMbitaDu ‖
 ప్రకటిత దశరథ భాగ్యంబితడు ‖  
 
 
+### English
+
+#### annamayya kīrtana kolichina vārala
+
+kolicina vārala koṅgupaiḍitaḍu ❘  
+balimi tāraka brahmamītaḍu ‖
+
+inavaṃśāmbudhi negasina tejamu ❘  
+ghanayaGYambula gala phalamu ❘  
+manujarūpamuna maniyeḍi brahmamu ❘  
+ninuvula raghukula nidhānamītaḍu ‖
+
+paramānnamulopali sārapujavi ❘  
+paraginadivijula bhayaharamu ❘  
+mariginasītā maṅgaḻasūtramu ❘  
+dharalo rāmāvatārambitaḍu ‖
+
+cakitadānavula saṃhāracakramu ❘  
+sakala vanacarula jayakaramu ❘  
+vikasitamagu śrīveṅkaṭa nilayamu ❘  
+prakaṭita daśaratha bhāgyambitaḍu ‖
+
+### PlainEnglish
+
+#### annamayya keertana k.olichina vaarala
+
+k.olicina vaarala k.oMgupaiDitaDu ❘  
+balimi taaraka brahmameetaDu ‖
+
+inavaMshaaMbudhi n.egasina tejamu ❘  
+ghanayagnyaMbula gala phalamu ❘  
+manujaroopamuna maniy.eDi brahmamu ❘  
+ninuvula raghukula nidhaanameetaDu ‖
+
+paramaannamulopali saarapujavi ❘  
+paraginadivijula bhayaharamu ❘  
+mariginaseetaa maMgaLasootramu ❘  
+dharalo raamaavataaraMbitaDu ‖
+
+cakitadaanavula saMhaaracakramu ❘  
+sakala vanacarula jayakaramu ❘  
+vikasitamagu shreeveMkaTa nilayamu ❘  
+prakaTita dasharatha bhaagyaMbitaDu ‖
+

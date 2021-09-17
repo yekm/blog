@@ -2421,3 +2421,461 @@ trailokyalakshhmeeM bubhuje vinirjitya.amRRidhesuraan ‖42‖
 ( శ్రీమద్భాగవత స్కంధ 6,అ❘ 8 )  
 
 
+### English
+
+#### nārāyaṇa kavacham
+
+nyāsaḥ%  
+aṅganyāsaḥ  
+oṃ oṃ pādayoḥ namaḥ ❘  
+oṃ naṃ jānunoḥ namaḥ ❘  
+oṃ moṃ ūrvoḥ namaḥ ❘  
+oṃ nāṃ udare namaḥ ❘  
+oṃ rāṃ hṛdi namaḥ ❘  
+oṃ yaṃ urasi namaḥ ❘  
+oṃ ṇāṃ mukhe namaḥ ❘  
+oṃ yaṃ śirasi namaḥ ❘  
+karanyāsaḥ  
+oṃ oṃ dakśhiṇatarjanyām namaḥ ❘  
+oṃ naṃ dakśhiṇamadhyamāyām namaḥ ❘  
+oṃ moṃ dakśhiṇānāmikāyām namaḥ ❘  
+oṃ bhaṃ dakśhiṇakaniśhṭhikāyām namaḥ ❘  
+oṃ gaṃ vāmakaniśhṭhikāyām namaḥ ❘  
+oṃ vaṃ vāmānikāyām namaḥ ❘  
+oṃ teṃ vāmamadhyamāyām namaḥ ❘  
+oṃ vāṃ vāmatarjanyām namaḥ ❘  
+oṃ suṃ dakśhiṇāṅguśhṭhordhvaparvaṇi namaḥ ❘  
+oṃ deṃ dakśhiṇāṅguśhṭhādhaḥ parvaṇi namaḥ ❘  
+oṃ vāṃ vāmāṅguśhṭhordhvaparvaṇi namaḥ ❘  
+oṃ yaṃ vāmāṅguśhṭhādhaḥ parvaṇi namaḥ ❘  
+viśhṇuśhaḍakśharanyāsaḥ%  
+oṃ oṃ hṛdaye namaḥ ❘  
+oṃ viṃ mūrdhnai namaḥ ❘  
+oṃ śhaṃ bhrurvormadhye namaḥ ❘  
+oṃ ṇaṃ śikhāyām namaḥ ❘  
+oṃ veṃ netrayoḥ namaḥ ❘  
+oṃ naṃ sarvasandhiśhu namaḥ ❘  
+oṃ maḥ prācyām astrāya phaṭ ❘  
+oṃ maḥ āgneyyām astrāya phaṭ ❘  
+oṃ maḥ dakśhiṇasyām astrāya phaṭ ❘  
+oṃ maḥ naiṛtye astrāya phaṭ ❘  
+oṃ maḥ pratīcyām astrāya phaṭ ❘  
+oṃ maḥ vāyavye astrāya phaṭ ❘  
+oṃ maḥ udīcyām astrāya phaṭ ❘  
+oṃ maḥ aiśānyām astrāya phaṭ ❘  
+oṃ maḥ ūrdhvāyām astrāya phaṭ ❘  
+oṃ maḥ adharāyām astrāya phaṭ ❘  
+śrī hariḥ  
+atha śrīnārāyaṇakavaca  
+
+‖rājovāca‖
+
+yayā guptaḥ sahastrākśhaḥ savāhān ripusainikān❘  
+krīḍanniva vinirjitya trilokyā bubhuje śriyam
+‖1‖
+
+bhagavaṃstanmamākhyāhi varma nārāyaṇātmakam❘  
+yathāsstatāyinaḥ śatrūn yena guptosjayanmṛdhe
+‖2‖
+
+
+‖śrīśuka uvāca‖
+
+vṛtaḥ purohitostvāśhṭro mahendrāyānupṛcChate❘  
+nārāyaṇākhyaṃ varmāha tadihaikamanāḥ śṛṇu
+‖3‖
+
+viśvarūpa uvācadhautāṅghripāṇirācamya sapavitra udaṅ mukhaḥ❘  
+kṛtasvāṅgakaranyāso mantrābhyāṃ vāgyataḥ śuciḥ
+‖4‖
+
+nārāyaṇamayaṃ varma saṃnahyed bhaya āgate❘  
+pādayorjānunorūrvorūdare hṛdyathorasi
+‖5‖
+
+mukhe śirasyānupūrvyādoṅkārādīni vinyaset❘  
+oṃ namo nārāyaṇāyeti viparyayamathāpi vā
+‖6‖
+
+karanyāsaṃ tataḥ kuryād dvādaśākśharavidyayā❘  
+praṇavādiyakārantamaṅgulyaṅguśhṭhaparvasu
+‖7‖
+
+nyased hṛdaya oṅkāraṃ vikāramanu mūrdhani❘  
+śhakāraṃ tu bhruvormadhye ṇakāraṃ śikhayā diśet
+‖8‖
+
+vekāraṃ netrayoryuñjyānnakāraṃ sarvasandhiśhu❘  
+makāramastramuddiśya mantramūrtirbhaved budhaḥ
+‖9‖
+
+savisargaṃ phaḍantaṃ tat sarvadikśhu vinirdiśet❘  
+oṃ viśhṇave nama iti 
+‖10‖
+
+ātmānaṃ paramaṃ dhyāyeda dhyeyaṃ śhaṭśaktibhiryutam❘  
+vidyātejastapomūrtimimaṃ mantramudāhareta 
+‖11‖
+
+oṃ harirvidadhyānmama sarvarakśhāṃ nyastāṅghripadmaḥ patagendrapṛśhṭhe❘  
+darāricarmāsigadeśhucāpāśān dadhānosśhṭaguṇosśhṭabāhuḥ 
+‖12‖
+
+jaleśhu māṃ rakśhatu matsyamūrtiryādogaṇebhyo varūṇasya pāśāt❘  
+sthaleśhu māyāvaṭuvāmanosvyāt trivikramaḥ kheavatu viśvarūpaḥ 
+‖13‖
+
+durgeśhvaṭavyājimukhādiśhu prabhuḥ pāyānnṛsiṃhoasurayuthapāriḥ❘  
+vimuñcato yasya mahāṭṭahāsaṃ diśo vinedurnyapataṃśca garbhāḥ 
+‖14‖
+
+rakśhatvasau mādhvani yaGYakalpaḥ svadaṃśhṭrayonnītadharo varāhaḥ❘  
+rāmoadrikūṭeśhvatha vipravāse salakśhmaṇosvyād bharatāgrajossmān 
+‖15‖
+
+māmugradharmādakhilāt pramādānnārāyaṇaḥ pātu naraśca hāsāt❘  
+dattastvayogādatha yoganāthaḥ pāyād guṇeśaḥ kapilaḥ karmabandhāt 
+‖16‖
+
+sanatkumāro vatu kāmadevāddhayaśīrśhā māṃ pathi devahelanāt❘  
+devarśhivaryaḥ purūśhārcanāntarāt kūrmo harirmāṃ nirayādaśeśhāt 
+‖17‖
+
+dhanvantarirbhagavān pātvapathyād dvandvād bhayādṛśhabho nirjitātmā❘  
+yaGYaśca lokādavatājjanāntād balo gaṇāt krodhavaśādahīndraḥ 
+‖18‖
+
+dvaipāyano bhagavānaprabodhād buddhastu pākhaṇḍagaṇāt pramādāt❘  
+kalkiḥ kale kālamalāt prapātu dharmāvanāyorūkṛtāvatāraḥ 
+‖19‖
+
+māṃ keśavo gadayā prātaravyād govinda āsaṅgavamāttaveṇuḥ❘  
+nārāyaṇa prāhṇa udāttaśaktirmadhyandine viśhṇurarīndrapāṇiḥ 
+‖20‖
+
+devosparāhṇe madhuhogradhanvā sāyaṃ tridhāmāvatu mādhavo mām❘  
+dośhe hṛśhīkeśa utārdharātre niśītha ekosvatu padmanābhaḥ 
+‖21‖
+
+śrīvatsadhāmāpararātra īśaḥ pratyūśha īśoasidharo janārdanaḥ❘  
+dāmodaroavyādanusandhyaṃ prabhāte viśveśvaro bhagavān kālamūrtiḥ 
+‖22‖
+
+cakraṃ yugāntānalatigmanemi bhramat samantād bhagavatprayuktam❘  
+dandagdhi dandagdhyarisainyamāsu kakśhaṃ yathā vātasakho hutāśaḥ 
+‖23‖
+
+gadeaśanisparśanavisphuliṅge niśhpiṇḍhi niśhpiṇḍhyajitapriyāsi❘  
+kūśhmāṇḍavaināyakayakśharakśhobhūtagrahāṃścūrṇaya cūrṇayārīn 
+‖24‖
+
+tvaṃ yātudhānapramathapretamātṛpiśācavipragrahaghoradṛśhṭīn❘  
+darendra vidrāvaya kṛśhṇapūrito bhīmasvanoarerhṛdayāni kampayan 
+‖25‖
+
+tvaṃ tigmadhārāsivarārisainyamīśaprayukto mama Chindhi Chindhi❘  
+carmañChatacandra Chādaya dviśhāmaghonāṃ hara pāpacakśhuśhām 
+‖26‖
+
+yanno bhayaṃ grahebhyo bhūt ketubhyo nṛbhya eva ca❘  
+sarīsṛpebhyo daṃśhṭribhyo bhūtebhyoṃ'hobhya eva vā 
+‖27‖
+
+sarvāṇyetāni bhagannāmarūpāstrakīrtanāt❘  
+prayāntu saṅkśhayaṃ sadyo ye naḥ śreyaḥ pratīpakāḥ 
+‖28‖
+
+garūḍxo bhagavān stotrastobhaśChandomayaḥ prabhuḥ❘  
+rakśhatvaśeśhakṛcChrebhyo viśhvaksenaḥ svanāmabhiḥ 
+‖29‖
+
+sarvāpadbhyo harernāmarūpayānāyudhāni naḥ❘  
+buddhindriyamanaḥ prāṇān pāntu pārśhadabhūśhaṇāḥ 
+‖30‖
+
+yathā hi bhagavāneva vastutaḥ sadsacca yat❘  
+satyanānena naḥ sarve yāntu nāśamupādravāḥ 
+‖31‖
+
+yathaikātmyānubhāvānāṃ vikalparahitaḥ svayam❘  
+bhūśhaṇāyuddhaliṅgākhyā dhatte śaktīḥ svamāyayā 
+‖32‖
+
+tenaiva satyamānena sarvaGYo bhagavān hariḥ❘  
+pātu sarvaiḥ svarūpairnaḥ sadā sarvatra sarvagaḥ ‖
+
+33  
+vidikśhu dikśhūrdhvamadhaḥ samantādantarbahirbhagavān nārasiṃhaḥ❘  
+prahāpayaṃllokabhayaṃ svanena grastasamastatejāḥ 
+‖34‖
+
+maghavannidamākhyātaṃ varma nārayaṇātmakam❘  
+vijeśhyasyañjasā yena daṃśitoasurayūthapān 
+‖35‖
+
+etad dhārayamāṇastu yaṃ yaṃ paśyati cakśhuśhā❘  
+padā vā saṃspṛśet sadyaḥ sādhvasāt sa vimucyate 
+‖36‖
+
+na kutaścita bhayaṃ tasya vidyāṃ dhārayato bhavet❘  
+rājadasyugrahādibhyo vyāghrādibhyaśca karhicit 
+‖37‖
+
+imāṃ vidyāṃ purā kaścit kauśiko dhārayan dvijaḥ❘  
+yogadhāraṇayā svāṅgaṃ jahau sa marūdhanvani 
+‖38‖
+
+tasyopari vimānena gandharvapatirekadā❘  
+yayau citrarathaḥ strīrbhivṛto yatra dvijakśhayaḥ 
+‖39‖
+
+gaganānnyapatat sadyaḥ savimāno hyavāk śirāḥ❘  
+sa vālakhilyavacanādasthīnyādāya vismitaḥ❘  
+prāsya prācīsarasvatyāṃ snātvā dhāma svamanvagāt 
+‖40‖
+
+
+‖śrīśuka uvāca‖
+
+ya idaṃ śṛṇuyāt kāle yo dhārayati cādṛtaḥ❘  
+taṃ namasyanti bhūtāni mucyate sarvato bhayāt 
+‖41‖
+
+etāṃ vidyāmadhigato viśvarūpācChatakratuḥ❘  
+trailokyalakśhmīṃ bubhuje vinirjitya'mṛdhesurān 
+‖42‖
+
+
+‖iti śrīnārāyaṇakavacaṃ sampūrṇam‖
+
+( śrīmadbhāgavata skandha 6,a❘  
+8 )  
+### PlainEnglish
+
+#### naaraayaNa kavacham
+
+nyaasaH%  
+aMganyaasaH  
+oM oM paadayoH namaH ❘  
+oM naM jaanunoH namaH ❘  
+oM moM oorvoH namaH ❘  
+oM naaM udare namaH ❘  
+oM raaM hRRidi namaH ❘  
+oM yaM urasi namaH ❘  
+oM NaaM mukhe namaH ❘  
+oM yaM shirasi namaH ❘  
+karanyaasaH  
+oM oM dakshhiNatarjanyaam namaH ❘  
+oM naM dakshhiNamadhyamaayaam namaH ❘  
+oM moM dakshhiNaanaamikaayaam namaH ❘  
+oM bhaM dakshhiNakanishhThikaayaam namaH ❘  
+oM gaM vaamakanishhThikaayaam namaH ❘  
+oM vaM vaamaanikaayaam namaH ❘  
+oM teM vaamamadhyamaayaam namaH ❘  
+oM vaaM vaamatarjanyaam namaH ❘  
+oM suM dakshhiNaangushhThordhvaparvaNi namaH ❘  
+oM deM dakshhiNaangushhThaadhaH parvaNi namaH ❘  
+oM vaaM vaamaangushhThordhvaparvaNi namaH ❘  
+oM yaM vaamaangushhThaadhaH parvaNi namaH ❘  
+vishhNushhaDakshharanyaasaH%  
+oM oM hRRidaye namaH ❘  
+oM viM moordhnai namaH ❘  
+oM shhaM bhrurvormadhye namaH ❘  
+oM NaM shikhaayaam namaH ❘  
+oM veM netrayoH namaH ❘  
+oM naM sarvasandhishhu namaH ❘  
+oM maH praacyaam astraaya phaT ❘  
+oM maH aagneyyaam astraaya phaT ❘  
+oM maH dakshhiNasyaam astraaya phaT ❘  
+oM maH naiRRitye astraaya phaT ❘  
+oM maH prateecyaam astraaya phaT ❘  
+oM maH vaayavye astraaya phaT ❘  
+oM maH udeecyaam astraaya phaT ❘  
+oM maH aishaanyaam astraaya phaT ❘  
+oM maH oordhvaayaam astraaya phaT ❘  
+oM maH adharaayaam astraaya phaT ❘  
+shree hariH  
+atha shreenaaraayaNakavaca  
+
+‖raajovaaca‖
+
+yayaa guptaH sahastraakshhaH savaahaan ripusainikaan❘  
+kreeDanniva vinirjitya trilokyaa bubhuje shriyam
+‖1‖
+
+bhagavaMstanmamaakhyaahi varma naaraayaNaatmakam❘  
+yathaasstataayinaH shatroon yena guptosjayanmRRidhe
+‖2‖
+
+
+‖shreeshuka uvaaca‖
+
+vRRitaH purohitostvaashhTro mahendraayaanupRRicChate❘  
+naaraayaNaakhyaM varmaaha tadihaikamanaaH shRRiNu
+‖3‖
+
+vishvaroopa uvaacadhautaanghripaaNiraacamya sapavitra udan mukhaH❘  
+kRRitasvaangakaranyaaso mantraabhyaaM vaagyataH shuciH
+‖4‖
+
+naaraayaNamayaM varma saMnahyed bhaya aagate❘  
+paadayorjaanunoroorvoroodare hRRidyathorasi
+‖5‖
+
+mukhe shirasyaanupoorvyaadoMkaaraadeeni vinyaset❘  
+oM namo naaraayaNaayeti viparyayamathaapi vaa
+‖6‖
+
+karanyaasaM tataH kuryaad dvaadashaakshharavidyayaa❘  
+praNavaadiyakaarantamangulyangushhThaparvasu
+‖7‖
+
+nyased hRRidaya onkaaraM vikaaramanu moordhani❘  
+shhakaaraM tu bhruvormadhye NakaaraM shikhayaa dishet
+‖8‖
+
+vekaaraM netrayoryunjyaannakaaraM sarvasandhishhu❘  
+makaaramastramuddishya mantramoortirbhaved budhaH
+‖9‖
+
+savisargaM phaDantaM tat sarvadikshhu vinirdishet❘  
+oM vishhNave nama iti 
+‖10‖
+
+aatmaanaM paramaM dhyaayeda dhyeyaM shhaTshaktibhiryutam❘  
+vidyaatejastapomoortimimaM mantramudaahareta 
+‖11‖
+
+oM harirvidadhyaanmama sarvarakshhaaM nyastaanghripadmaH patagendrapRRishhThe❘  
+daraaricarmaasigadeshhucaapaashaan dadhaanosshhTaguNosshhTabaahuH 
+‖12‖
+
+jaleshhu maaM rakshhatu matsyamoortiryaadogaNebhyo varooNasya paashaat❘  
+sthaleshhu maayaavaTuvaamanosvyaat trivikramaH khe.avatu vishvaroopaH 
+‖13‖
+
+durgeshhvaTavyaajimukhaadishhu prabhuH paayaannRRisiMho.asurayuthapaariH❘  
+vimuncato yasya mahaaTTahaasaM disho vinedurnyapataMshca garbhaaH 
+‖14‖
+
+rakshhatvasau maadhvani yagnyakalpaH svadaMshhTrayonneetadharo varaahaH❘  
+raamo.adrikooTeshhvatha vipravaase salakshhmaNosvyaad bharataagrajossmaan 
+‖15‖
+
+maamugradharmaadakhilaat pramaadaannaaraayaNaH paatu narashca haasaat❘  
+dattastvayogaadatha yoganaathaH paayaad guNeshaH kapilaH karmabandhaat 
+‖16‖
+
+sanatkumaaro vatu kaamadevaaddhayasheershhaa maaM pathi devahelanaat❘  
+devarshhivaryaH purooshhaarcanaantaraat koormo harirmaaM nirayaadasheshhaat 
+‖17‖
+
+dhanvantarirbhagavaan paatvapathyaad dvandvaad bhayaadRRishhabho nirjitaatmaa❘  
+yagnyashca lokaadavataajjanaantaad balo gaNaat krodhavashaadaheendraH 
+‖18‖
+
+dvaipaayano bhagavaanaprabodhaad buddhastu paakhaNDagaNaat pramaadaat❘  
+kalkiH kale kaalamalaat prapaatu dharmaavanaayorookRRitaavataaraH 
+‖19‖
+
+maaM keshavo gadayaa praataravyaad govinda aasangavamaattaveNuH❘  
+naaraayaNa praahNa udaattashaktirmadhyandine vishhNurareendrapaaNiH 
+‖20‖
+
+devosparaahNe madhuhogradhanvaa saayaM tridhaamaavatu maadhavo maam❘  
+doshhe hRRishheekesha utaardharaatre nisheetha ekosvatu padmanaabhaH 
+‖21‖
+
+shreevatsadhaamaapararaatra eeshaH pratyooshha eesho.asidharo janaardanaH❘  
+daamodaro.avyaadanusandhyaM prabhaate vishveshvaro bhagavaan kaalamoortiH 
+‖22‖
+
+cakraM yugaantaanalatigmanemi bhramat samantaad bhagavatprayuktam❘  
+dandagdhi dandagdhyarisainyamaasu kakshhaM yathaa vaatasakho hutaashaH 
+‖23‖
+
+gade.ashanisparshanavisphulinge nishhpiNDhi nishhpiNDhyajitapriyaasi❘  
+kooshhmaaNDavainaayakayakshharakshhobhootagrahaaMshcoorNaya coorNayaareen 
+‖24‖
+
+tvaM yaatudhaanapramathapretamaatRRipishaacavipragrahaghoradRRishhTeen❘  
+darendra vidraavaya kRRishhNapoorito bheemasvano.arerhRRidayaani kampayan 
+‖25‖
+
+tvaM tigmadhaaraasivaraarisainyameeshaprayukto mama Chindhi Chindhi❘  
+carmanChatacandra Chaadaya dvishhaamaghonaaM hara paapacakshhushhaam 
+‖26‖
+
+yanno bhayaM grahebhyo bhoot ketubhyo nRRibhya eva ca❘  
+sareesRRipebhyo daMshhTribhyo bhootebhyoM.ahobhya eva vaa 
+‖27‖
+
+sarvaaNyetaani bhagannaamaroopaastrakeertanaat❘  
+prayaantu saMkshhayaM sadyo ye naH shreyaH prateepakaaH 
+‖28‖
+
+garooDxo bhagavaan stotrastobhashChandomayaH prabhuH❘  
+rakshhatvasheshhakRRicChrebhyo vishhvaksenaH svanaamabhiH 
+‖29‖
+
+sarvaapadbhyo harernaamaroopayaanaayudhaani naH❘  
+buddhindriyamanaH praaNaan paantu paarshhadabhooshhaNaaH 
+‖30‖
+
+yathaa hi bhagavaaneva vastutaH sadsacca yat❘  
+satyanaanena naH sarve yaantu naashamupaadravaaH 
+‖31‖
+
+yathaikaatmyaanubhaavaanaaM vikalparahitaH svayam❘  
+bhooshhaNaayuddhalingaakhyaa dhatte shakteeH svamaayayaa 
+‖32‖
+
+tenaiva satyamaanena sarvagnyo bhagavaan hariH❘  
+paatu sarvaiH svaroopairnaH sadaa sarvatra sarvagaH ‖
+
+33  
+vidikshhu dikshhoordhvamadhaH samantaadantarbahirbhagavaan naarasiMhaH❘  
+prahaapayaMllokabhayaM svanena grastasamastatejaaH 
+‖34‖
+
+maghavannidamaakhyaataM varma naarayaNaatmakam❘  
+vijeshhyasyanjasaa yena daMshito.asurayoothapaan 
+‖35‖
+
+etad dhaarayamaaNastu yaM yaM pashyati cakshhushhaa❘  
+padaa vaa saMspRRishet sadyaH saadhvasaat sa vimucyate 
+‖36‖
+
+na kutashcita bhayaM tasya vidyaaM dhaarayato bhavet❘  
+raajadasyugrahaadibhyo vyaaghraadibhyashca karhicit 
+‖37‖
+
+imaaM vidyaaM puraa kashcit kaushiko dhaarayan dvijaH❘  
+yogadhaaraNayaa svaangaM jahau sa maroodhanvani 
+‖38‖
+
+tasyopari vimaanena gandharvapatirekadaa❘  
+yayau citrarathaH streerbhivRRito yatra dvijakshhayaH 
+‖39‖
+
+gaganaannyapatat sadyaH savimaano hyavaak shiraaH❘  
+sa vaalakhilyavacanaadastheenyaadaaya vismitaH❘  
+praasya praaceesarasvatyaaM snaatvaa dhaama svamanvagaat 
+‖40‖
+
+
+‖shreeshuka uvaaca‖
+
+ya idaM shRRiNuyaat kaale yo dhaarayati caadRRitaH❘  
+taM namasyanti bhootaani mucyate sarvato bhayaat 
+‖41‖
+
+etaaM vidyaamadhigato vishvaroopaacChatakratuH❘  
+trailokyalakshhmeeM bubhuje vinirjitya.amRRidhesuraan 
+‖42‖
+
+
+‖iti shreenaaraayaNakavacaM sampoorNam‖
+
+( shreemadbhaagavata skandha 6,a❘  
+8 )  

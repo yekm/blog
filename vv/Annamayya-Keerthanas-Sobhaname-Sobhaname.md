@@ -302,3 +302,47 @@ shree veMkaTagiri shreenidhiki ‖
 శ్రీ వేంకటగిరి శ్రీనిధికి ‖  
 
 
+### English
+
+#### annamayya kīrtana śobhaname śobhaname
+
+śobhaname śobhaname   
+vaibhavamula pāvana mūrtiki ‖
+
+aruduga munu narakāsuruḍu ❘  
+sirulato jeralu dechchina satula ❘  
+paruvapu vayasula badāru velanu ❘  
+soridi beṇḍlāḍina sumukhuniki ‖
+
+chendina veḍuka śiśupāluḍu ❘  
+andi peṇḍlāḍaga navagaḻiñchi ❘  
+vinduvalene tā vichchesi rukumiṇi ❘  
+sandaḍi beṇḍlāḍina sarasunuki ‖
+
+devadānavula dhīratanu ❘  
+dāvatipaḍi vārthi darupaganu ❘  
+śrī vanitāmaṇi jelagi peṇḍlāḍina ❘  
+śrī veṅkaṭagiri śrīnidhiki ‖
+
+### PlainEnglish
+
+#### annamayya keertana shobhaname shobhaname
+
+shobhaname shobhaname   
+vaibhavamula paavana moortiki ‖
+
+aruduga munu narakaasuruDu ❘  
+sirulato j.eralu d.echchina satula ❘  
+paruvapu vayasula badaaru velanu ❘  
+s.oridi b.eMDlaaDina sumukhuniki ‖
+
+ch.eMdina veDuka shishupaaluDu ❘  
+aMdi p.eMDlaaDaga navagaLiMchi ❘  
+viMduval.en.e taa vichchesi rukumiNi ❘  
+saMdaDi b.eMDlaaDina sarasunuki ‖
+
+devadaanavula dheeratanu ❘  
+daavatipaDi vaarthi darupaganu ❘  
+shree vanitaamaNi j.elagi p.eMDlaaDina ❘  
+shree veMkaTagiri shreenidhiki ‖
+

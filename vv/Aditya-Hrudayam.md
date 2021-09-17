@@ -1394,3 +1394,275 @@ ityaarshhe shreemadraamaayaNe vaalmikeeye aadikaavye yuddakaaNDe saptottara shat
 
 ఇత్యార్షే శ్రీమద్రామాయణే వాల్మికీయే ఆదికావ్యే యుద్దకాండే సప్తోత్తర శతతమః సర్గః ‖  
 
+### English
+
+#### āditya hṛdayam
+
+dhyānam  
+namassavitre jagadeka chakśhuse  
+jagatprasūti sthiti nāśahetave  
+trayīmayāya triguṇātma dhāriṇe  
+viriñchi nārāyaṇa śaṅkarātmane  
+tato yuddha pariśrāntaṃ samare chintayā sthitam ❘  
+rāvaṇaṃ chāgrato dṛśhṭvā yuddhāya samupasthitam 
+‖ 1 ‖
+
+daivataiścha samāgamya draśhṭumabhyāgato raṇam ❘  
+upagamyā bravīdrāmam agastyo bhagavān ṛśhiḥ 
+‖ 2 ‖
+
+rāma rāma mahābāho śṛṇu guhyaṃ sanātanam ❘  
+yena sarvānarīn vatsa samare vijayiśhyasi 
+‖ 3 ‖
+
+āditya hṛdayaṃ puṇyaṃ sarvaśatru vināśanam ❘  
+jayāvahaṃ japennityaṃ akśhayyaṃ paramaṃ śivam 
+‖ 4 ‖
+
+sarvamaṅgalda māṅgaldyaṃ sarva pāpa praṇāśanam ❘  
+chintāśoka praśamanaṃ āyurvardhana muttamam 
+‖ 5 ‖
+
+raśmimantaṃ samudyantaṃ devāsura namaskṛtam ❘  
+pūjayasva vivasvantaṃ bhāskaraṃ bhuvaneśvaram 
+‖ 6 ‖
+
+sarvadevātmako hyeśha tejasvī raśmibhāvanaḥ ❘  
+eśha devāsura gaṇān lokān pāti gabhastibhiḥ 
+‖ 7 ‖
+
+eśha brahmā cha viśhṇuścha śivaḥ skandaḥ prajāpatiḥ ❘  
+mahendro dhanadaḥ kālo yamaḥ somo hyapāṃ patiḥ 
+‖ 8 ‖
+
+pitaro vasavaḥ sādhyā hyaśvinau maruto manuḥ ❘  
+vāyurvahniḥ prajāprāṇaḥ ṛtukartā prabhākaraḥ 
+‖ 9 ‖
+
+ādityaḥ savitā sūryaḥ khagaḥ pūśhā gabhastimān ❘  
+suvarṇasadṛśo bhānuḥ hiraṇyaretā divākaraḥ 
+‖ 10 ‖
+
+haridaśvaḥ sahasrārchiḥ saptasapti-rmarīchimān ❘  
+timironmathanaḥ śambhuḥ tvaśhṭā mārtāṇḍakoṃ'śumān 
+‖ 11 ‖
+
+hiraṇyagarbhaḥ śiśiraḥ tapano bhāskaro raviḥ ❘  
+agnigarbhoaditeḥ putraḥ śaṅkhaḥ śiśiranāśanaḥ 
+‖ 12 ‖
+
+vyomanātha stamobhedī ṛgyajuḥsāma-pāragaḥ ❘  
+ghanavṛśhṭi rapāṃ mitro vindhyavīthī plavaṅgamaḥ 
+‖ 13 ‖
+
+ātapī maṇḍalī mṛtyuḥ piṅgaldaḥ sarvatāpanaḥ ❘  
+kavirviśvo mahātejā raktaḥ sarvabhavodbhavaḥ 
+‖ 14 ‖
+
+nakśhatra graha tārāṇām adhipo viśvabhāvanaḥ ❘  
+tejasāmapi tejasvī dvādaśātman-namoastu te 
+‖ 15 ‖
+
+namaḥ pūrvāya giraye paśchimāyādraye namaḥ ❘  
+jyotirgaṇānāṃ pataye dinādhipataye namaḥ 
+‖ 16 ‖
+
+jayāya jayabhadrāya haryaśvāya namo namaḥ ❘  
+namo namaḥ sahasrāṃśo ādityāya namo namaḥ 
+‖ 17 ‖
+
+nama ugrāya vīrāya sāraṅgāya namo namaḥ ❘  
+namaḥ padmaprabodhāya mārtāṇḍāya namo namaḥ 
+‖ 18 ‖
+
+brahmeśānāchyuteśāya sūryāyāditya-varchase ❘  
+bhāsvate sarvabhakśhāya raudrāya vapuśhe namaḥ 
+‖ 19 ‖
+
+tamoghnāya himaghnāya śatrughnāyā mitātmane ❘  
+kṛtaghnaghnāya devāya jyotiśhāṃ pataye namaḥ 
+‖ 20 ‖
+
+tapta chāmīkarābhāya vahnaye viśvakarmaṇe ❘  
+namastamoabhi nighnāya ruchaye lokasākśhiṇe 
+‖ 21 ‖
+
+nāśayatyeśha vai bhūtaṃ tadeva sṛjati prabhuḥ ❘  
+pāyatyeśha tapatyeśha varśhatyeśha gabhastibhiḥ 
+‖ 22 ‖
+
+eśha supteśhu jāgarti bhūteśhu pariniśhṭhitaḥ ❘  
+eśha evāgnihotraṃ cha phalaṃ chaivāgni hotriṇām 
+‖ 23 ‖
+
+vedāścha kratavaśchaiva kratūnāṃ phalameva cha ❘  
+yāni kṛtyāni lokeśhu sarva eśha raviḥ prabhuḥ 
+‖ 24 ‖
+
+phalaśrutiḥ  
+ena māpatsu kṛchChreśhu kāntāreśhu bhayeśhu cha ❘  
+kīrtayan puruśhaḥ kaśchin-nāvaśīdati rāghava 
+‖ 25 ‖
+
+pūjayasvaina mekāgro devadevaṃ jagatpatim ❘  
+etat triguṇitaṃ japtvā yuddheśhu vijayiśhyasi 
+‖ 26 ‖
+
+asmin kśhaṇe mahābāho rāvaṇaṃ tvaṃ vadhiśhyasi ❘  
+evamuktvā tadāgastyo jagāma cha yathāgatam 
+‖ 27 ‖
+
+etachChrutvā mahātejāḥ naśhṭaśokoabhavat-tadā ❘  
+dhārayāmāsa suprīto rāghavaḥ prayatātmavān 
+‖ 28 ‖
+
+ādityaṃ prekśhya japtvā tu paraṃ harśhamavāptavān ❘  
+trirāchamya śuchirbhūtvā dhanurādāya vīryavān 
+‖ 29 ‖
+
+rāvaṇaṃ prekśhya hṛśhṭātmā yuddhāya samupāgamat ❘  
+sarvayatnena mahatā vadhe tasya dhṛtoabhavat 
+‖ 30 ‖
+
+adha raviravadan-nirīkśhya rāmaṃ muditamanāḥ paramaṃ prahṛśhyamāṇaḥ ❘  
+niśicharapati saṅkśhayaṃ viditvā suragaṇa madhyagato vachastvareti 
+‖ 31 ‖
+
+ityārśhe śrīmadrāmāyaṇe vālmikīye ādikāvye yuddakāṇḍe saptottara śatatamaḥ sargaḥ ‖
+
+### PlainEnglish
+
+#### aaditya hRRidayam
+
+dhyaanam  
+namassavitre jagadeka chakshhuse  
+jagatprasooti sthiti naashahetave  
+trayeemayaaya triguNaatma dhaariNe  
+viriMchi naaraayaNa shaMkaraatmane  
+tato yuddha parishraantaM samare chiMtayaa sthitam ❘  
+raavaNaM chaagrato dRRishhTvaa yuddhaaya samupasthitam 
+‖ 1 ‖
+
+daivataishcha samaagamya drashhTumabhyaagato raNam ❘  
+upagamyaa braveedraamam agastyo bhagavaan RRishhiH 
+‖ 2 ‖
+
+raama raama mahaabaaho shRRiNu guhyaM sanaatanam ❘  
+yena sarvaanareen vatsa samare vijayishhyasi 
+‖ 3 ‖
+
+aaditya hRRidayaM puNyaM sarvashatru vinaashanam ❘  
+jayaavahaM japennityaM akshhayyaM paramaM shivam 
+‖ 4 ‖
+
+sarvamaMgalda maangaldyaM sarva paapa praNaashanam ❘  
+chiMtaashoka prashamanaM aayurvardhana muttamam 
+‖ 5 ‖
+
+rashmimaMtaM samudyantaM devaasura namaskRRitam ❘  
+poojayasva vivasvantaM bhaaskaraM bhuvaneshvaram 
+‖ 6 ‖
+
+sarvadevaatmako hyeshha tejasvee rashmibhaavanaH ❘  
+eshha devaasura gaNaan lokaan paati gabhastibhiH 
+‖ 7 ‖
+
+eshha brahmaa cha vishhNushcha shivaH skandaH prajaapatiH ❘  
+mahendro dhanadaH kaalo yamaH somo hyapaaM patiH 
+‖ 8 ‖
+
+pitaro vasavaH saadhyaa hyashvinau maruto manuH ❘  
+vaayurvahniH prajaapraaNaH RRitukartaa prabhaakaraH 
+‖ 9 ‖
+
+aadityaH savitaa sooryaH khagaH pooshhaa gabhastimaan ❘  
+suvarNasadRRisho bhaanuH hiraNyaretaa divaakaraH 
+‖ 10 ‖
+
+haridashvaH sahasraarchiH saptasapti-rmareechimaan ❘  
+timironmathanaH shaMbhuH tvashhTaa maartaaNDakoM.ashumaan 
+‖ 11 ‖
+
+hiraNyagarbhaH shishiraH tapano bhaaskaro raviH ❘  
+agnigarbho.aditeH putraH shankhaH shishiranaashanaH 
+‖ 12 ‖
+
+vyomanaatha stamobhedee RRigyajuHsaama-paaragaH ❘  
+ghanavRRishhTi rapaaM mitro vindhyaveethee plavangamaH 
+‖ 13 ‖
+
+aatapee maMDalee mRRityuH pingaldaH sarvataapanaH ❘  
+kavirvishvo mahaatejaa raktaH sarvabhavodbhavaH 
+‖ 14 ‖
+
+nakshhatra graha taaraaNaam adhipo vishvabhaavanaH ❘  
+tejasaamapi tejasvee dvaadashaatman-namo.astu te 
+‖ 15 ‖
+
+namaH poorvaaya giraye pashchimaayaadraye namaH ❘  
+jyotirgaNaanaaM pataye dinaadhipataye namaH 
+‖ 16 ‖
+
+jayaaya jayabhadraaya haryashvaaya namo namaH ❘  
+namo namaH sahasraaMsho aadityaaya namo namaH 
+‖ 17 ‖
+
+nama ugraaya veeraaya saarangaaya namo namaH ❘  
+namaH padmaprabodhaaya maartaaNDaaya namo namaH 
+‖ 18 ‖
+
+brahmeshaanaachyuteshaaya sooryaayaaditya-varchase ❘  
+bhaasvate sarvabhakshhaaya raudraaya vapushhe namaH 
+‖ 19 ‖
+
+tamoghnaaya himaghnaaya shatrughnaayaa mitaatmane ❘  
+kRRitaghnaghnaaya devaaya jyotishhaaM pataye namaH 
+‖ 20 ‖
+
+tapta chaameekaraabhaaya vahnaye vishvakarmaNe ❘  
+namastamo.abhi nighnaaya ruchaye lokasaakshhiNe 
+‖ 21 ‖
+
+naashayatyeshha vai bhootaM tadeva sRRijati prabhuH ❘  
+paayatyeshha tapatyeshha varshhatyeshha gabhastibhiH 
+‖ 22 ‖
+
+eshha supteshhu jaagarti bhooteshhu parinishhThitaH ❘  
+eshha evaagnihotraM cha phalaM chaivaagni hotriNaam 
+‖ 23 ‖
+
+vedaashcha kratavashchaiva kratoonaaM phalameva cha ❘  
+yaani kRRityaani lokeshhu sarva eshha raviH prabhuH 
+‖ 24 ‖
+
+phalashrutiH  
+ena maapatsu kRRichChreshhu kaantaareshhu bhayeshhu cha ❘  
+keertayan purushhaH kashchin-naavasheedati raaghava 
+‖ 25 ‖
+
+poojayasvaina mekaagro devadevaM jagatpatim ❘  
+etat triguNitaM japtvaa yuddheshhu vijayishhyasi 
+‖ 26 ‖
+
+asmin kshhaNe mahaabaaho raavaNaM tvaM vadhishhyasi ❘  
+evamuktvaa tadaagastyo jagaama cha yathaagatam 
+‖ 27 ‖
+
+etachChrutvaa mahaatejaaH nashhTashoko.abhavat-tadaa ❘  
+dhaarayaamaasa supreeto raaghavaH prayataatmavaan 
+‖ 28 ‖
+
+aadityaM prekshhya japtvaa tu paraM harshhamavaaptavaan ❘  
+triraachamya shuchirbhootvaa dhanuraadaaya veeryavaan 
+‖ 29 ‖
+
+raavaNaM prekshhya hRRishhTaatmaa yuddhaaya samupaagamat ❘  
+sarvayatnena mahataa vadhe tasya dhRRito.abhavat 
+‖ 30 ‖
+
+adha raviravadan-nireekshhya raamaM muditamanaaH paramaM prahRRishhyamaaNaH ❘  
+nishicharapati saMkshhayaM viditvaa suragaNa madhyagato vachastvareti 
+‖ 31 ‖
+
+ityaarshhe shreemadraamaayaNe vaalmikeeye aadikaavye yuddakaaNDe saptottara shatatamaH sargaH ‖
+

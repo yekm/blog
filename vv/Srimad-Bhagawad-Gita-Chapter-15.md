@@ -965,3 +965,183 @@ purushhottamayogo naama panchadasho.adhyaayaH ‖15 ‖
 పురుషోత్తమయోగో నామ పంచదశోఽధ్యాయః ‖15 ‖  
 
 
+### English
+
+#### śrīmad bhagavad gīta panchadaśoadhyāyaḥ
+
+atha pañchadaśoadhyāyaḥ ❘  
+śrībhagavānuvācha ❘  
+ūrdhvamūlamadhaḥśākhamaśvatthaṃ prāhuravyayam ❘  
+Chandāṃsi yasya parṇāni yastaṃ veda sa vedavit 
+‖ 1 ‖
+
+adhaśchordhvaṃ prasṛtāstasya śākhā guṇapravṛddhā viśhayapravālāḥ❘  
+adhaścha mūlānyanusantatāni karmānubandhīni manuśhyaloke 
+‖ 2 ‖
+
+na rūpamasyeha tathopalabhyate nānto na chādirna cha sampratiśhṭhā❘  
+aśvatthamenaṃ suvirūḍhamūlamasaṅgaśastreṇa dṛḍhena Chittvā 
+‖ 3 ‖
+
+tataḥ padaṃ tatparimārgitavyaṃ yasmingatā na nivartanti bhūyaḥ❘  
+tameva chādyaṃ puruśhaṃ prapadye yataḥ pravṛttiḥ prasṛtā purāṇī 
+‖ 4 ‖
+
+nirmānamohā jitasaṅgadośhā adhyātmanityā vinivṛttakāmāḥ❘  
+dvandvairvimuktāḥ sukhaduḥkhasaṃGYairgachChantyamūḍhāḥ padamavyayaṃ tat 
+‖ 5 ‖
+
+na tadbhāsayate sūryo na śaśāṅko na pāvakaḥ ❘  
+yadgatvā na nivartante taddhāma paramaṃ mama 
+‖ 6 ‖
+
+mamaivāṃśo jīvaloke jīvabhūtaḥ sanātanaḥ ❘  
+manaḥśhaśhṭhānīndriyāṇi prakṛtisthāni karśhati 
+‖ 7 ‖
+
+śarīraṃ yadavāpnoti yachchāpyutkrāmatīśvaraḥ ❘  
+gṛhītvaitāni saṃyāti vāyurgandhānivāśayāt 
+‖ 8 ‖
+
+śrotraṃ chakśhuḥ sparśanaṃ cha rasanaṃ ghrāṇameva cha ❘  
+adhiśhṭhāya manaśchāyaṃ viśhayānupasevate 
+‖ 9 ‖
+
+utkrāmantaṃ sthitaṃ vāpi bhuñjānaṃ vā guṇānvitam ❘  
+vimūḍhā nānupaśyanti paśyanti GYānachakśhuśhaḥ 
+‖ 10 ‖
+
+yatanto yoginaśchainaṃ paśyantyātmanyavasthitam ❘  
+yatantoapyakṛtātmāno nainaṃ paśyantyachetasaḥ 
+‖ 11 ‖
+
+yadādityagataṃ tejo jagadbhāsayateakhilam ❘  
+yachchandramasi yachchāgnau tattejo viddhi māmakam 
+‖ 12 ‖
+
+gāmāviśya cha bhūtāni dhārayāmyahamojasā ❘  
+puśhṇāmi chauśhadhīḥ sarvāḥ somo bhūtvā rasātmakaḥ 
+‖ 13 ‖
+
+ahaṃ vaiśvānaro bhūtvā prāṇināṃ dehamāśritaḥ ❘  
+prāṇāpānasamāyuktaḥ pachāmyannaṃ chaturvidham 
+‖ 14 ‖
+
+sarvasya chāhaṃ hṛdi sanniviśhṭo mattaḥ smṛtirGYānamapohanaṃ cha❘  
+vedaiścha sarvairahameva vedyo vedāntakṛdvedavideva chāham 
+‖ 15 ‖
+
+dvāvimau puruśhau loke kśharaśchākśhara eva cha ❘  
+kśharaḥ sarvāṇi bhūtāni kūṭasthoakśhara uchyate 
+‖ 16 ‖
+
+uttamaḥ puruśhastvanyaḥ paramātmetyudhāhṛtaḥ ❘  
+yo lokatrayamāviśya bibhartyavyaya īśvaraḥ 
+‖ 17 ‖
+
+yasmātkśharamatītoahamakśharādapi chottamaḥ ❘  
+atoasmi loke vede cha prathitaḥ puruśhottamaḥ 
+‖ 18 ‖
+
+yo māmevamasaṃmūḍho jānāti puruśhottamam ❘  
+sa sarvavidbhajati māṃ sarvabhāvena bhārata 
+‖ 19 ‖
+
+iti guhyatamaṃ śāstramidamuktaṃ mayānagha ❘  
+etadbuddhvā buddhimānsyātkṛtakṛtyaścha bhārata 
+‖ 20 ‖
+
+oṃ tatsaditi śrīmadbhagavadgītāsūpaniśhatsu brahmavidyāyāṃ yogaśāstre śrīkṛśhṇārjunasaṃvāde   
+puruśhottamayogo nāma pañchadaśoadhyāyaḥ 
+‖15 ‖
+
+### PlainEnglish
+
+#### shreemad bhagavad geeta panchadasho.adhyaayaH
+
+atha panchadasho.adhyaayaH ❘  
+shreebhagavaanuvaacha ❘  
+oordhvamoolamadhaHshaakhamashvatthaM praahuravyayam ❘  
+ChandaaMsi yasya parNaani yastaM veda sa vedavit 
+‖ 1 ‖
+
+adhashchordhvaM prasRRitaastasya shaakhaa guNapravRRiddhaa vishhayapravaalaaH❘  
+adhashcha moolaanyanusaMtataani karmaanubandheeni manushhyaloke 
+‖ 2 ‖
+
+na roopamasyeha tathopalabhyate naanto na chaadirna cha saMpratishhThaa❘  
+ashvatthamenaM suvirooDhamoolamasangashastreNa dRRiDhena Chittvaa 
+‖ 3 ‖
+
+tataH padaM tatparimaargitavyaM yasmingataa na nivartanti bhooyaH❘  
+tameva chaadyaM purushhaM prapadye yataH pravRRittiH prasRRitaa puraaNee 
+‖ 4 ‖
+
+nirmaanamohaa jitasangadoshhaa adhyaatmanityaa vinivRRittakaamaaH❘  
+dvandvairvimuktaaH sukhaduHkhasaMgnyairgachChantyamooDhaaH padamavyayaM tat 
+‖ 5 ‖
+
+na tadbhaasayate sooryo na shashaanko na paavakaH ❘  
+yadgatvaa na nivartante taddhaama paramaM mama 
+‖ 6 ‖
+
+mamaivaaMsho jeevaloke jeevabhootaH sanaatanaH ❘  
+manaHshhashhThaaneendriyaaNi prakRRitisthaani karshhati 
+‖ 7 ‖
+
+shareeraM yadavaapnoti yachchaapyutkraamateeshvaraH ❘  
+gRRiheetvaitaani saMyaati vaayurgandhaanivaashayaat 
+‖ 8 ‖
+
+shrotraM chakshhuH sparshanaM cha rasanaM ghraaNameva cha ❘  
+adhishhThaaya manashchaayaM vishhayaanupasevate 
+‖ 9 ‖
+
+utkraamantaM sthitaM vaapi bhunjaanaM vaa guNaanvitam ❘  
+vimooDhaa naanupashyanti pashyanti gnyaanachakshhushhaH 
+‖ 10 ‖
+
+yatanto yoginashchainaM pashyantyaatmanyavasthitam ❘  
+yatanto.apyakRRitaatmaano nainaM pashyantyachetasaH 
+‖ 11 ‖
+
+yadaadityagataM tejo jagadbhaasayate.akhilam ❘  
+yachchandramasi yachchaagnau tattejo viddhi maamakam 
+‖ 12 ‖
+
+gaamaavishya cha bhootaani dhaarayaamyahamojasaa ❘  
+pushhNaami chaushhadheeH sarvaaH somo bhootvaa rasaatmakaH 
+‖ 13 ‖
+
+ahaM vaishvaanaro bhootvaa praaNinaaM dehamaashritaH ❘  
+praaNaapaanasamaayuktaH pachaamyannaM chaturvidham 
+‖ 14 ‖
+
+sarvasya chaahaM hRRidi sannivishhTo mattaH smRRitirgnyaanamapohanaM cha❘  
+vedaishcha sarvairahameva vedyo vedaantakRRidvedavideva chaaham 
+‖ 15 ‖
+
+dvaavimau purushhau loke kshharashchaakshhara eva cha ❘  
+kshharaH sarvaaNi bhootaani kooTastho.akshhara uchyate 
+‖ 16 ‖
+
+uttamaH purushhastvanyaH paramaatmetyudhaahRRitaH ❘  
+yo lokatrayamaavishya bibhartyavyaya eeshvaraH 
+‖ 17 ‖
+
+yasmaatkshharamateeto.ahamakshharaadapi chottamaH ❘  
+ato.asmi loke vede cha prathitaH purushhottamaH 
+‖ 18 ‖
+
+yo maamevamasaMmooDho jaanaati purushhottamam ❘  
+sa sarvavidbhajati maaM sarvabhaavena bhaarata 
+‖ 19 ‖
+
+iti guhyatamaM shaastramidamuktaM mayaanagha ❘  
+etadbuddhvaa buddhimaansyaatkRRitakRRityashcha bhaarata 
+‖ 20 ‖
+
+oM tatsaditi shreemadbhagavadgeetaasoopanishhatsu brahmavidyaayaaM yogashaastre shreekRRishhNaarjunasaMvaade   
+purushhottamayogo naama panchadasho.adhyaayaH 
+‖15 ‖
+

@@ -289,3 +289,47 @@ manubhaviMchina yaataDappuDe ghanuDu ‖
 ఎనలేని తిరు వేంకటేశు ప్రసాదాన్న  
 మనుభవించిన యాతడప్పుడే ఘనుడు ‖  
 
+### English
+
+#### annamayya kīrtana ekkuva kulajuḍaina
+
+ekkuva kulajuḍaina hīna kulajuḍaina  
+nikkamerigina mahā nityuḍe ghanuḍu ‖
+
+vedamulu chadiviyunu vimukhuḍai haribhakti   
+yādariñchani somayāji kaṇṭe ❘  
+ediyunu leni kula hīnuḍainanu viśhṇu   
+pādamulu seviñchu bhaktuḍe ghanuḍu ‖
+
+parama magu vedānta paṭhana dorikiyu sadā   
+hari bhakti leni sanyāsi kaṇṭe ❘  
+saravi mālina antya jāti kulajuḍaina  
+narasi viśhṇuni vedaku nātaḍe ghanuḍu ‖
+
+viniyu chadiviyu, śrī vibhuni dāsuḍu gāka  
+tanuvu vepuchu nuṇḍu tapasi kaṇṭe ❘  
+enaleni tiru veṅkaṭeśu prasādānna  
+manubhaviñchina yātaḍappuḍe ghanuḍu ‖
+
+### PlainEnglish
+
+#### annamayya keertana .ekkuva kulajuDaina
+
+.ekkuva kulajuDaina heena kulajuDaina  
+nikkam.erigina mahaa nityuDe ghanuDu ‖
+
+vedamulu chadiviyunu vimukhuDai haribhakti   
+yaadariMchani somayaaji kaMT.e ❘  
+ediyunu leni kula heenuDainanu vishhNu   
+paadamulu seviMchu bhaktuDe ghanuDu ‖
+
+parama magu vedaaMta paThana d.orikiyu sadaa   
+hari bhakti leni sanyaasi kaMT.e ❘  
+saravi maalina aMtya jaati kulajuDaina  
+narasi vishhNuni v.edaku naataDe ghanuDu ‖
+
+viniyu chadiviyu, shree vibhuni daasuDu gaaka  
+tanuvu vepuchu nuMDu tapasi kaMT.e ❘  
+.enaleni tiru veMkaTeshu prasaadaanna  
+manubhaviMchina yaataDappuDe ghanuDu ‖
+

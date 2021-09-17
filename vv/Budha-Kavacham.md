@@ -432,3 +432,81 @@ yaH paThecChRRiNuyaadvaapi sarvatra vijayee bhavet ‖ 7 ‖
 ‖ ఇతి శ్రీబ్రహ్మవైవర్తపురాణే బుధకవచం సంపూర్ణమ్ ‖  
 
 
+### English
+
+#### budha kavacham
+
+asya śrībudhakavacastotramantrasya, kaśyapa ṛśhiḥ,  
+anuśhṭup Chandaḥ, budho devatā, budhaprītyarthaṃ jape viniyogaḥ ❘  
+atha budha kavacam   
+budhastu pustakadharaḥ kuṅkumasya samadyutiḥ ❘  
+pītāmbaradharaḥ pātu pītamālyānulepanaḥ 
+‖ 1 ‖
+
+kaṭiṃ ca pātu me saumyaḥ śirodeśaṃ budhastathā ❘  
+netre GYānamayaḥ pātu śrotre pātu niśāpriyaḥ 
+‖ 2 ‖
+
+ghrāṇaṃ gandhapriyaḥ pātu jihvāṃ vidyāprado mama ❘  
+kaṇṭhaṃ pātu vidhoḥ putro bhujau pustakabhūśhaṇaḥ 
+‖ 3 ‖
+
+vakśhaḥ pātu varāṅgaśca hṛdayaṃ rohiṇīsutaḥ ❘  
+nābhiṃ pātu surārādhyo madhyaṃ pātu khageśvaraḥ 
+‖ 4 ‖
+
+jānunī rauhiṇeyaśca pātu jaṅghe??ukhilapradaḥ ❘  
+pādau me bodhanaḥ pātu pātu saumyo??ukhilaṃ vapuḥ 
+‖ 5 ‖
+
+atha phalaśrutiḥ  
+etaddhi kavacaṃ divyaṃ sarvapāpapraṇāśanam ❘  
+sarvarogapraśamanaṃ sarvaduḥkhanivāraṇam 
+‖ 6 ‖
+
+āyurārogyaśubhadaṃ putrapautrapravardhanam ❘  
+yaḥ paṭhecChṛṇuyādvāpi sarvatra vijayī bhavet 
+‖ 7 ‖
+
+
+‖ iti śrībrahmavaivartapurāṇe budhakavacaṃ sampūrṇam ‖
+
+### PlainEnglish
+
+#### budha kavacham
+
+asya shreebudhakavacastotramaMtrasya, kashyapa RRishhiH,  
+anushhTup ChaMdaH, budho devataa, budhapreetyarthaM jape viniyogaH ❘  
+atha budha kavacam   
+budhastu pustakadharaH kuMkumasya samadyutiH ❘  
+peetaaMbaradharaH paatu peetamaalyaanulepanaH 
+‖ 1 ‖
+
+kaTiM ca paatu me saumyaH shirodeshaM budhastathaa ❘  
+netre gnyaanamayaH paatu shrotre paatu nishaapriyaH 
+‖ 2 ‖
+
+ghraaNaM gaMdhapriyaH paatu jihvaaM vidyaaprado mama ❘  
+kaMThaM paatu vidhoH putro bhujau pustakabhooshhaNaH 
+‖ 3 ‖
+
+vakshhaH paatu varaaMgashca hRRidayaM rohiNeesutaH ❘  
+naabhiM paatu suraaraadhyo madhyaM paatu khageshvaraH 
+‖ 4 ‖
+
+jaanunee rauhiNeyashca paatu jaMghe??ukhilapradaH ❘  
+paadau me bodhanaH paatu paatu saumyo??ukhilaM vapuH 
+‖ 5 ‖
+
+atha phalashrutiH  
+etaddhi kavacaM divyaM sarvapaapapraNaashanam ❘  
+sarvarogaprashamanaM sarvaduHkhanivaaraNam 
+‖ 6 ‖
+
+aayuraarogyashubhadaM putrapautrapravardhanam ❘  
+yaH paThecChRRiNuyaadvaapi sarvatra vijayee bhavet 
+‖ 7 ‖
+
+
+‖ iti shreebrahmavaivartapuraaNe budhakavacaM saMpoorNam ‖
+

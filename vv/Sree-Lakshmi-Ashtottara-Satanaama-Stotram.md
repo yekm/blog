@@ -1316,3 +1316,257 @@ iti shree lakshhmee ashhTottara shatanaama stotraM saMpoorNam
 
 ఇతి శ్రీ లక్ష్మీ అష్టోత్తర శతనామ స్తోత్రం సంపూర్ణమ్  
 
+### English
+
+#### śrī lakśhmī aśhṭottara śatanāma stotram
+
+devyuvācha  
+devadeva! mahādeva! trikālaGYa! maheśvara!  
+karuṇākara deveśa! bhaktānugrahakāraka! ‖
+
+aśhṭottara śataṃ lakśhmyāḥ śrotumicChāmi tattvataḥ ‖
+
+īśvara uvācha  
+devi! sādhu mahābhāge mahābhāgya pradāyakaṃ ❘  
+sarvaiśvaryakaraṃ puṇyaṃ sarvapāpa praṇāśanam ‖
+
+sarvadāridrya śamanaṃ śravaṇādbhukti muktidam ❘  
+rājavaśyakaraṃ divyaṃ guhyād-guhyataraṃ paraṃ ‖
+
+durlabhaṃ sarvadevānāṃ chatuśhśhaśhṭi kaḻāspadam ❘  
+padmādīnāṃ varāntānāṃ nidhīnāṃ nityadāyakam ‖
+
+samasta deva saṃsevyaṃ aṇimādyaśhṭa siddhidaṃ ❘  
+kimatra bahunoktena devī pratyakśhadāyakaṃ ‖
+
+tava prītyādya vakśhyāmi samāhitamanāśśṛṇu ❘  
+aśhṭottara śatasyāsya mahālakśhmistu devatā ‖
+
+klīṃ bīja padamityuktaṃ śaktistu bhuvaneśvarī ❘  
+aṅganyāsaḥ karanyāsaḥ sa ityādi prakīrtitaḥ ‖
+
+dhyānam  
+vande padmakarāṃ prasannavadanāṃ saubhāgyadāṃ bhāgyadāṃ   
+hastābhyāmabhayapradāṃ maṇigaṇaiḥ nānāvidhaiḥ bhūśhitāṃ ❘  
+bhaktābhīśhṭa phalapradāṃ harihara brahmādhibhissevitāṃ  
+pārśve paṅkaja śaṅkhapadma nidhibhiḥ yuktāṃ sadā śaktibhiḥ ‖
+
+sarasija nayane sarojahaste dhavaḻa tarāṃśuka gandhamālya śobhe ❘  
+bhagavati harivallabhe manoGYe tribhuvana bhūtikari prasīdamahyam ‖
+
+oṃ  
+prakṛtiṃ, vikṛtiṃ, vidyāṃ, sarvabhūta hitapradāṃ ❘  
+śraddhāṃ, vibhūtiṃ, surabhiṃ, namāmi paramātmikām 
+‖ 1 ‖
+
+vāchaṃ, padmālayāṃ, padmāṃ, śuchiṃ, svāhāṃ, svadhāṃ, sudhāṃ ❘  
+dhanyāṃ, hiraṇyayīṃ, lakśhmīṃ, nityapuśhṭāṃ, vibhāvarīm 
+‖ 2 ‖
+
+aditiṃ cha, ditiṃ, dīptāṃ, vasudhāṃ, vasudhāriṇīṃ ❘  
+namāmi kamalāṃ, kāntāṃ, kśhamāṃ, kśhīroda sambhavām 
+‖ 3 ‖
+
+anugrahaparāṃ, buddhiṃ, anaghāṃ, harivallabhāṃ ❘  
+aśokā,mamṛtāṃ dīptāṃ, lokaśoka vināśinīm 
+‖ 4 ‖
+
+namāmi dharmanilayāṃ, karuṇāṃ, lokamātaraṃ ❘  
+padmapriyāṃ, padmahastāṃ, padmākśhīṃ, padmasundarīm 
+‖ 5 ‖
+
+padmodbhavāṃ, padmamukhīṃ, padmanābhapriyāṃ, ramāṃ ❘  
+padmamālādharāṃ, devīṃ, padminīṃ, padmagandhinīm 
+‖ 6 ‖
+
+puṇyagandhāṃ, suprasannāṃ, prasādābhimukhīṃ, prabhāṃ ❘  
+namāmi chandravadanāṃ, chandrāṃ, chandrasahodarīm 
+‖ 7 ‖
+
+chaturbhujāṃ, chandrarūpāṃ, indirā,minduśītalāṃ ❘  
+āhlāda jananīṃ, puśhṭiṃ, śivāṃ, śivakarīṃ, satīm 
+‖ 8 ‖
+
+vimalāṃ, viśvajananīṃ, tuśhṭiṃ, dāridrya nāśinīṃ ❘  
+prīti puśhkariṇīṃ, śāntāṃ, śuklamālyāmbarāṃ, śriyam 
+‖ 9 ‖
+
+bhāskarīṃ, bilvanilayāṃ, varārohāṃ, yaśasvinīṃ ❘  
+vasundharā, mudārāṅgāṃ, hariṇīṃ, hemamālinīm 
+‖ 10 ‖
+
+dhanadhānyakarīṃ, siddhiṃ, sraiṇasaumyāṃ, śubhapradāṃ ❘  
+nṛpaveśma gatānandāṃ, varalakśhmīṃ, vasupradām 
+‖ 11 ‖
+
+śubhāṃ, hiraṇyaprākārāṃ, samudratanayāṃ, jayāṃ ❘  
+namāmi maṅgaḻāṃ devīṃ, viśhṇu vakśhaḥsthala sthitām 
+‖ 12 ‖
+
+viśhṇupatnīṃ, prasannākśhīṃ, nārāyaṇa samāśritāṃ ❘  
+dāridrya dhvaṃsinīṃ, devīṃ, sarvopadrava vāriṇīm 
+‖ 13 ‖
+
+navadurgāṃ, mahākāḻīṃ, brahma viśhṇu śivātmikāṃ ❘  
+trikālaGYāna sampannāṃ, namāmi bhuvaneśvarīm 
+‖ 14 ‖
+
+lakśhmīṃ kśhīrasamudrarāja tanayāṃ śrīraṅgadhāmeśvarīṃ ❘  
+dāsībhūta samastadeva vanitāṃ lokaika dīpāṅkurām ‖
+
+śrīmanmanda kaṭākśha labdha vibhavad-brahmendra gaṅgādharāṃ ❘  
+tvāṃ trailokya kuṭumbinīṃ sarasijāṃ vande mukundapriyām 
+‖ 15 ‖
+
+mātarnamāmi! kamale! kamalāyatākśhi!  
+śrī viśhṇu hṛt-kamalavāsini! viśvamātaḥ!  
+kśhīrodaje kamala komala garbhagauri!  
+lakśhmī! prasīda satataṃ samatāṃ śaraṇye 
+‖ 16 ‖
+
+trikālaṃ yo japet vidvān śhaṇmāsaṃ vijitendriyaḥ ❘  
+dāridrya dhvaṃsanaṃ kṛtvā sarvamāpnot-yayatnataḥ ❘  
+devīnāma sahasreśhu puṇyamaśhṭottaraṃ śataṃ ❘  
+yena śriya mavāpnoti koṭijanma daridrataḥ 
+‖ 17 ‖
+
+bhṛguvāre śataṃ dhīmān paṭhet vatsaramātrakaṃ ❘  
+aśhṭaiśvarya mavāpnoti kubera iva bhūtale ‖
+
+dāridrya mochanaṃ nāma stotramambāparaṃ śataṃ ❘  
+yena śriya mavāpnoti koṭijanma daridrataḥ 
+‖ 18 ‖
+
+bhuktvātu vipulān bhogān ante sāyujyamāpnuyāt ❘  
+prātaḥkāle paṭhennityaṃ sarva duḥkhopa śāntaye ❘  
+paṭhantu chintayeddevīṃ sarvābharaṇa bhūśhitām 
+‖ 19 ‖
+
+iti śrī lakśhmī aśhṭottara śatanāma stotraṃ sampūrṇam  
+### PlainEnglish
+
+#### shree lakshhmee ashhTottara shatanaama stotram
+
+devyuvaacha  
+devadeva! mahaadeva! trikaalagnya! maheshvara!  
+karuNaakara devesha! bhaktaanugrahakaaraka! ‖
+
+ashhTottara shataM lakshhmyaaH shrotumicChaami tattvataH ‖
+
+eeshvara uvaacha  
+devi! saadhu mahaabhaage mahaabhaagya pradaayakaM ❘  
+sarvaishvaryakaraM puNyaM sarvapaapa praNaashanam ‖
+
+sarvadaaridrya shamanaM shravaNaadbhukti muktidam ❘  
+raajavashyakaraM divyaM guhyaad-guhyataraM paraM ‖
+
+durlabhaM sarvadevaanaaM chatushhshhashhTi kaLaaspadam ❘  
+padmaadeenaaM varaaMtaanaaM nidheenaaM nityadaayakam ‖
+
+samasta deva saMsevyaM aNimaadyashhTa siddhidaM ❘  
+kimatra bahunoktena devee pratyakshhadaayakaM ‖
+
+tava preetyaadya vakshhyaami samaahitamanaashshRRiNu ❘  
+ashhTottara shatasyaasya mahaalakshhmistu devataa ‖
+
+kleeM beeja padamityuktaM shaktistu bhuvaneshvaree ❘  
+aMganyaasaH karanyaasaH sa ityaadi prakeertitaH ‖
+
+dhyaanam  
+vaMde padmakaraaM prasannavadanaaM saubhaagyadaaM bhaagyadaaM   
+hastaabhyaamabhayapradaaM maNigaNaiH naanaavidhaiH bhooshhitaaM ❘  
+bhaktaabheeshhTa phalapradaaM harihara brahmaadhibhissevitaaM  
+paarshve paMkaja shaMkhapadma nidhibhiH yuktaaM sadaa shaktibhiH ‖
+
+sarasija nayane sarojahaste dhavaLa taraaMshuka gaMdhamaalya shobhe ❘  
+bhagavati harivallabhe manognye tribhuvana bhootikari praseedamahyam ‖
+
+oM  
+prakRRitiM, vikRRitiM, vidyaaM, sarvabhoota hitapradaaM ❘  
+shraddhaaM, vibhootiM, surabhiM, namaami paramaatmikaam 
+‖ 1 ‖
+
+vaachaM, padmaalayaaM, padmaaM, shuchiM, svaahaaM, svadhaaM, sudhaaM ❘  
+dhanyaaM, hiraNyayeeM, lakshhmeeM, nityapushhTaaM, vibhaavareem 
+‖ 2 ‖
+
+aditiM cha, ditiM, deeptaaM, vasudhaaM, vasudhaariNeeM ❘  
+namaami kamalaaM, kaaMtaaM, kshhamaaM, kshheeroda saMbhavaam 
+‖ 3 ‖
+
+anugrahaparaaM, buddhiM, anaghaaM, harivallabhaaM ❘  
+ashokaa,mamRRitaaM deeptaaM, lokashoka vinaashineem 
+‖ 4 ‖
+
+namaami dharmanilayaaM, karuNaaM, lokamaataraM ❘  
+padmapriyaaM, padmahastaaM, padmaakshheeM, padmasuMdareem 
+‖ 5 ‖
+
+padmodbhavaaM, padmamukheeM, padmanaabhapriyaaM, ramaaM ❘  
+padmamaalaadharaaM, deveeM, padmineeM, padmagaMdhineem 
+‖ 6 ‖
+
+puNyagaMdhaaM, suprasannaaM, prasaadaabhimukheeM, prabhaaM ❘  
+namaami chaMdravadanaaM, chaMdraaM, chaMdrasahodareem 
+‖ 7 ‖
+
+chaturbhujaaM, chaMdraroopaaM, iMdiraa,miMdusheetalaaM ❘  
+aahlaada jananeeM, pushhTiM, shivaaM, shivakareeM, sateem 
+‖ 8 ‖
+
+vimalaaM, vishvajananeeM, tushhTiM, daaridrya naashineeM ❘  
+preeti pushhkariNeeM, shaaMtaaM, shuklamaalyaaMbaraaM, shriyam 
+‖ 9 ‖
+
+bhaaskareeM, bilvanilayaaM, varaarohaaM, yashasvineeM ❘  
+vasuMdharaa, mudaaraaMgaaM, hariNeeM, hemamaalineem 
+‖ 10 ‖
+
+dhanadhaanyakareeM, siddhiM, sraiNasaumyaaM, shubhapradaaM ❘  
+nRRipaveshma gataanaMdaaM, varalakshhmeeM, vasupradaam 
+‖ 11 ‖
+
+shubhaaM, hiraNyapraakaaraaM, samudratanayaaM, jayaaM ❘  
+namaami maMgaLaaM deveeM, vishhNu vakshhaHsthala sthitaam 
+‖ 12 ‖
+
+vishhNupatneeM, prasannaakshheeM, naaraayaNa samaashritaaM ❘  
+daaridrya dhvaMsineeM, deveeM, sarvopadrava vaariNeem 
+‖ 13 ‖
+
+navadurgaaM, mahaakaaLeeM, brahma vishhNu shivaatmikaaM ❘  
+trikaalagnyaana saMpannaaM, namaami bhuvaneshvareem 
+‖ 14 ‖
+
+lakshhmeeM kshheerasamudraraaja tanayaaM shreeraMgadhaameshvareeM ❘  
+daaseebhoota samastadeva vanitaaM lokaika deepaaMkuraam ‖
+
+shreemanmaMda kaTaakshha labdha vibhavad-brahmeMdra gaMgaadharaaM ❘  
+tvaaM trailokya kuTuMbineeM sarasijaaM vaMde mukuMdapriyaam 
+‖ 15 ‖
+
+maatarnamaami! kamale! kamalaayataakshhi!  
+shree vishhNu hRRit-kamalavaasini! vishvamaataH!  
+kshheerodaje kamala komala garbhagauri!  
+lakshhmee! praseeda satataM samataaM sharaNye 
+‖ 16 ‖
+
+trikaalaM yo japet vidvaan shhaNmaasaM vijiteMdriyaH ❘  
+daaridrya dhvaMsanaM kRRitvaa sarvamaapnot-yayatnataH ❘  
+deveenaama sahasreshhu puNyamashhTottaraM shataM ❘  
+yena shriya mavaapnoti koTijanma daridrataH 
+‖ 17 ‖
+
+bhRRiguvaare shataM dheemaan paThet vatsaramaatrakaM ❘  
+ashhTaishvarya mavaapnoti kubera iva bhootale ‖
+
+daaridrya mochanaM naama stotramaMbaaparaM shataM ❘  
+yena shriya mavaapnoti koTijanma daridrataH 
+‖ 18 ‖
+
+bhuktvaatu vipulaan bhogaan aMte saayujyamaapnuyaat ❘  
+praataHkaale paThennityaM sarva duHkhopa shaaMtaye ❘  
+paThaMtu chiMtayeddeveeM sarvaabharaNa bhooshhitaam 
+‖ 19 ‖
+
+iti shree lakshhmee ashhTottara shatanaama stotraM saMpoorNam  

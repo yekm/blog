@@ -302,3 +302,47 @@ k.oMDalayyakunu g.obbillo ‖
 కొండలయ్యకును గొబ్బిల్లో ‖  
 
 
+### English
+
+#### annamayya kīrtana kolani dopariki
+
+kolani dopariki gobbillo yadu ❘  
+kula svāmikini gobbillo ‖
+
+koṇḍa goḍugugā govula gāchina ❘  
+koṇḍoka śiśuvunaku gobbillo ❘  
+daṇḍagampu daityula kellanu tala ❘  
+guṇḍu gaṇḍaniki gobbillo ‖
+
+pāpa vidhula śiśupāluni tiṭṭula ❘  
+kopagānikini gobbillo ❘  
+yepuna kaṃsuni yiḍumala beṭṭina ❘  
+gopa bāluniki gobbillo ‖
+
+daṇḍivairulanu tarimina danujula ❘  
+guṇḍe digulunaku gobbillo ❘  
+veṇḍipaiḍi yagu veṅkaṭa giripai ❘  
+koṇḍalayyakunu gobbillo ‖
+
+### PlainEnglish
+
+#### annamayya keertana k.olani dopariki
+
+k.olani dopariki g.obbillo yadu ❘  
+kula svaamikini g.obbillo ‖
+
+k.oMDa g.oDugugaa govula gaachina ❘  
+k.oMD.oka shishuvunaku g.obbillo ❘  
+daMDagaMpu daityula k.ellanu tala ❘  
+guMDu gaMDaniki g.obbillo ‖
+
+paapa vidhula shishupaaluni tiTTula ❘  
+kopagaanikini g.obbillo ❘  
+yepuna kaMsuni yiDumala b.eTTina ❘  
+gopa baaluniki g.obbillo ‖
+
+daMDivairulanu tarimina danujula ❘  
+guMD.e digulunaku g.obbillo ❘  
+v.eMDipaiDi yagu veMkaTa giripai ❘  
+k.oMDalayyakunu g.obbillo ‖
+

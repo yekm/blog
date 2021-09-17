@@ -3656,3 +3656,863 @@ hariH oM tatsat ❘ tatsarvaM shree parameshvaraarpaNamastu |
 హరిః ఓం తత్సత్ ❘ తత్సర్వం శ్రీ పరమేశ్వరార్పణమస్తు |  
 
 
+### English
+
+#### nitya sandhyā vandanam
+
+śarīra śuddhi  
+apavitraḥ pavitro vā sarvāvasthā''ṃ gatoapivā ❘  
+yaḥ smaret puṇḍarīkākśhaṃ sa bāhyābhyantara śśuchiḥ ‖
+
+puṇḍarīkākśha ! puṇḍarīkākśha ! puṇḍarīkākśhāya namaḥ ❘  
+āchamanaḥ  
+oṃ āchamya  
+oṃ keśavāya svāhā  
+oṃ nārāyaṇāya svāhā  
+oṃ mādhavāya svāhā (iti trirāchamya)  
+oṃ govindāya namaḥ  (pāṇī mārjayitvā)  
+oṃ viśhṇave namaḥ  
+oṃ madhusūdanāya namaḥ  (ośhṭhau mārjayitvā)   
+oṃ trivikramāya namaḥ  
+oṃ vāmanāya namaḥ  (śirasi jalaṃ prokśhya)   
+oṃ śrīdharāya namaḥ   
+oṃ hṛśhīkeśāya namaḥ  (vāmahaste jalaṃ prokśhya)   
+oṃ padmanābhāya namaḥ  (pādayoḥ jalaṃ prokśhya)   
+oṃ dāmodarāya namaḥ  (śirasi jalaṃ prokśhya)   
+oṃ saṅkarśhaṇāya namaḥ  (aṅguḻibhiśchibukaṃ jalaṃ prokśhya)   
+oṃ vāsudevāya namaḥ    
+oṃ pradyumnāya namaḥ  (nāsikāṃ spṛśhṭvā)   
+oṃ aniruddhāya namaḥ  
+oṃ puruśhottamāya namaḥ   
+oṃ adhokśhajāya namaḥ   
+oṃ nārasiṃhāya namaḥ  (netre śrotre ca spṛśhṭvā)   
+oṃ achyutāya namaḥ  (nābhiṃ spṛśhṭvā)   
+oṃ janārdhanāya namaḥ  (hṛdayaṃ spṛśhṭvā)   
+oṃ upendrāya namaḥ  (hastaṃ śirasi nikśhipya)   
+oṃ haraye namaḥ   
+oṃ śrīkṛśhṇāya namaḥ  (aṃsau spṛśhṭvā)   
+oṃ śrīkṛśhṇa parabrahmaṇe namo namaḥ  
+(etānyuccārya upyakta prakāraṃ kṛte aṅgāni śuddhāni bhaveyuḥ)  
+bhūtocchāṭana  
+uttiśhṭhantu ❘  
+bhūta piśāchāḥ ❘  
+ye te bhūmibhārakāḥ ❘  
+ye teśhāmavirodhena ❘  
+brahmakarma samārabhe ❘  
+oṃ bhūrbhuvassuvaḥ ❘  
+daivī gāyatrī chandaḥ prāṇāyāme viniyogaḥ  
+(prāṇāyāmaṃ kṛtvā kumbhake imaṃ gāyatrī mantramucCharet)  
+prāṇāyāmaḥ  
+oṃ bhūḥ ❘  
+oṃ bhuvaḥ ❘  
+ogṃ suvaḥ ❘  
+oṃ mahaḥ ❘  
+oṃ janaḥ ❘  
+oṃ tapaḥ ❘  
+ogṃ satyam ❘  
+oṃ tathsa'viturvare''ṇyaṃ bhargo' devasya' dhīmahi ❘  
+dhiyo yo na'ḥ prachodayā''t ‖
+
+omāpo jyotī raso'mṛtaṃ brahma bhū-rbhuva-ssuvarom ‖
+
+  (tai. ara. 10-27)  
+saṅkalpaḥ  
+mamopātta, durita kśhayadvārā, śrī parameśvara muddisya, śrī parameśvara prītyarthaṃ, śubhe, śobhane, abhyudaya muhūrte, śrī mahāviśhṇo rāGYayā, pravarta mānasya, adya brahmaṇaḥ, dvitīya parārthe, śvetavarāha kalpe, vaivaśvata manvantare, kaliyuge, prathama pāde, (bhārata deśaḥ - jambū dvīpe, bharata varśhe, bharata khaṇḍe, meroḥ dakśhiṇa/uttara digbhāge; amerikā - krauñcha dvīpe, ramaṇaka varśhe, aindrika khaṇḍe, sapta samudrāntare, kapilāraṇye), śobhana gṛhe, samasta devatā brāhmaṇa, harihara gurucharaṇa sannithau, asmin, vartamāna, vyāvahārika, chāndramāna, ... saṃvatsare, ... ayane, ... ṛte, ... māse, ... pakśhe, ... tithau, ... vāsare, ... śubha nakśhatra, śubha yoga, śubha karaṇa, evaṅguṇa, viśeśhaṇa, viśiśhṭhāyāṃ, śubha tithau, śrīmān, ... gotraḥ, ... nāmadheyaḥ, ... gotrasya, ... nāmadheyohaṃḥ prātaḥ/madhyāhnika/sāyaṃ sandhyām upāsiśhye ‖
+
+mārjanaḥ  
+oṃ āpohiśhṭhā ma'yobhuva'ḥ ❘  
+tā na' ūrje da'dhātana ❘  
+maheraṇā'ya chakśha'se ❘  
+yo va'ḥ śivata'mo rasa'ḥ ❘  
+tasya' bhājayate ha naḥ ❘  
+uśatīri'va mātara'ḥ ❘  
+tasmā ara'ṅga māma vaḥ ❘  
+ yasya kśhayā'ya jinva'tha ❘  
+āpo' janaya'thā cha naḥ ❘  
+ (tai. ara. 4-42)  
+(iti śirasi mārjayet)   
+(hastena jalaṃ gṛhītvā)  
+prātaḥ kāla mantrāchamanaḥ  
+sūrya ścha, māmanyu ścha, manyupataya ścha, manyu'kṛtebhyaḥ ❘  
+pāpebhyo' rakśhantām ❘  
+yadrātryā pāpa' makārśhaṃ ❘  
+manasā vāchā' hastābhyāṃ ❘  
+padbhyā mudare'ṇa śiśñchā ❘  
+rātri stada'valumpatu ❘  
+yatkiñcha' duritaṃ mayi' ❘  
+idamahaṃ mā mamṛ'ta yo nau ❘  
+sūrye jyotiśhi juho'mi svāhā'' ‖
+
+  (tai. ara. 10. 24)  
+madhyāhna kāla mantrāchamanaḥ  
+āpa'ḥ punantu pṛthivīṃ pṛ'thivī pūtā pu'nātu māṃ ❘  
+punantu brahma'ṇaspati rbrahmā' pūtā pu'nātu māṃ ❘  
+yaducChi'śhṭa mabho''jyaṃ  yadvā' duśchari'taṃ mama' ❘  
+sarva'ṃ punantu mā māpo''satā ñcha' pratigrahagg svāhā'' ‖
+
+   (tai. ara. pariśiśhṭaḥ 10. 30)  
+sāyaṅkāla mantrāchamanaḥ  
+agni ścha mā manyu ścha manyupataya ścha manyu'kṛtebhyaḥ ❘  
+pāpebhyo' rakśhantāṃ ❘  
+yadahnā pāpa' makārśhaṃ ❘  
+manasā vāchā' hastābhyāṃ ❘  
+padbhyā mudare'ṇa śiśñchā ❘  
+aha stada'valumpatu ❘  
+ya tkiñcha' duritaṃ mayi' ❘  
+ida mahaṃ mā mamṛ'ta yonau ❘  
+satye jyotiśhi juhomi svāhā ‖
+
+  (tai. ara. 10. 24)  
+(iti mantreṇa jalaṃ pibet)  
+āchamya (oṃ keśavāya svāhā, ... śrī kṛśhṇa parabrahmaṇe namo namaḥ)  
+dvitīya mārjanaḥ  
+dadhi krāvaṇṇo' akāriśhaṃ ❘  
+jiśhṇo raśva'sya vāji'naḥ ❘  
+surabhino mukhā'karatpraṇa āyūg'ṃśhi tāriśhat ‖
+
+(sūryapakśhe lokayātrā nirvāhaka ityarthaḥ)  
+oṃ āpo hiśhṭhā ma'yobhuva'ḥ ❘  
+tā na' ūrje da'dhātana ❘  
+maheraṇā'ya chakśha'se ❘  
+yo va'ḥ śivata'mo rasa'ḥ ❘  
+tasya' bhājayate ha naḥ ❘  
+uśatīri'va mātara'ḥ ❘  
+tasmā ara'ṅga māma vaḥ ❘  
+ yasya kśhayā'ya jinva'tha ❘  
+āpo' janaya'thā cha naḥ ‖
+
+  (tai. ara. 4. 42)  
+punaḥ mārjanaḥ  
+hira'ṇyavarṇā śśucha'yaḥ pāvakāḥ yā su'jātaḥ kaśyapo yā svindra'ḥ ❘  
+agniṃ yā garbha'n-dadhire virū'pā stāna āpaśśagg syonā bha'vantu ❘  
+yā sāgṃ rājā varu'ṇo yāti madhye' satyānṛte a'vapaśyaṃ janā'nāṃ ❘  
+madhu śchutaśśucha'yo yāḥ pā'vakā stāna āpaśśagg syonā bha'vantu ❘  
+yāsā''ṃ devā divi kṛṇvanti' bhakśhaṃ yā antari'kśhe bahuthā bhava'nti ❘  
+yāḥ pṛ'thivīṃ paya'sondanti' śśukrāstāna āpaśagg syonā bha'vantu ❘  
+yāḥ śivena' mā chakśhu'śhā paśyatāpaśśivayā' tanu vopa'spṛśata tvacha' mme ❘  
+sarvāg'ṃ agnīgṃ ra'psuśhado' huve vo mayi varcho bala mojo nidha'tta ‖
+
+  (tai. saṃ. 5. 6. 1)  
+(mārjanaṃ kuryāt)  
+aghamarśhaṇa mantraḥ pāpavimochanaṃ  
+(hastena jalamādāya niśśvasya vāmato nikśhitapet)  
+drupadā di'va muñchatu ❘  
+drupadā dive nmu'muchānaḥ ❘  
+svinna ssnātvī malā' divaḥ ❘  
+pūtaṃ pavitre'ṇe vājya''ṃ āpa' śśundantu maina'saḥ ‖
+
+  (tai. brā. 266)  
+āchamya (oṃ keśavāya svāhā, ... śrī kṛśhṇa parabrahmaṇe namo namaḥ)  
+prāṇāyāmamya  
+laghusaṅkalpaḥ  
+pūrvokta evaṅguṇa viśeśhaṇa viśiśhṭhāyāṃ śubhatithau mamopātta durita kśhayadvārā śrī parameśvara muddisya śrī parameśvara prītyarthaṃ prātassandhyāṅga yathā kālochita arghyapradānaṃ kariśhye ‖
+
+prātaḥ kālārghya mantraṃ  
+oṃ bhūrbhuvassuva'ḥ 
+‖ tathsa'viturvare''ṇyaṃ bhargo' devasya' dhīmahi ❘  
+dhiyo yo na'ḥ prachodayā''t ‖
+
+ 3 ‖
+
+madhyāhnārghya mantraṃ  
+oṃ hagṃ saśśu'chiśha dvasu'rantarikśhasa ddotā' vediśhadati'thi rduroṇasat ❘  
+nṛśha dva'rasa dṛ'tasa dvyo'ma sadabjā gojā ṛ'tajā a'drijā ṛtam-bṛhat ‖
+
+  (tai. ara. 10. 4)  
+sāyaṃ kālārghya mantraṃ  
+oṃ bhūrbhuvassuva'ḥ 
+‖ tathsa'viturvare''ṇyaṃ bhargo' devasya' dhīmahi ❘  
+dhiyo yo na'ḥ prachodayā''t ‖
+
+ oṃ bhūḥ ❘  
+oṃ bhuvaḥ ❘  
+ogṃ suvaḥ ❘  
+oṃ mahaḥ ❘  
+oṃ janaḥ ❘  
+oṃ tapaḥ ❘  
+ogṃ satyam ❘  
+oṃ tathsa'viturvare''ṇyaṃ bhargo' devasya' dhīmahi ❘  
+dhiyo yo na'ḥ prachodayā''t 
+‖ omāpo jyotī raso'mṛtaṃ brahma bhū-rbhuva-ssuvarom ‖
+
+(ityañjalitrayaṃ visṛjet)  
+kālātikramaṇa prāyaśchittaṃ  
+āchamya...   
+pūrvokta evaṅguṇa viśeśhaṇa viśiśhṭhāyāṃ śubhatithau mamopātta durita kśhayadvārā śrī parameśvara muddisya śrī parameśvara prītyarthaṃ kālātikrama dośhaparihārārthaṃ chaturthā arghyapradānaṃ kariśhye ‖
+
+oṃ bhūrbhuvassuva'ḥ 
+‖ tathsa'viturvare''ṇyaṃ bhargo' devasya' dhīmahi ❘  
+dhiyo yo na'ḥ prachodayā''t ‖
+
+ oṃ bhūḥ ❘  
+oṃ bhuvaḥ ❘  
+ogṃ suvaḥ ❘  
+oṃ mahaḥ ❘  
+oṃ janaḥ ❘  
+oṃ tapaḥ ❘  
+ogṃ satyam ❘  
+oṃ tathsa'viturvare''ṇyaṃ bhargo' devasya' dhīmahi ❘  
+dhiyo yo na'ḥ prachodayā''t 
+‖ omāpo jyotī raso'mṛtaṃ brahma bhū-rbhuva-ssuvarom ‖
+
+(iti jalaṃ visṛjet)  
+sajala pradakśhiṇaṃ  
+oṃ udyanta'mastaṃ yanta' māditya ma'bhithyāya nkurvan-brā''hmaṇo vidvān tsakala'm-bhadrama'śnute asāvā'dityo brahmeti 
+‖ brahmaiva san-brahmāpyeti ya evaṃ veda ‖
+
+ asāvādityo brahma ‖
+
+  (tai. ara. 2. 2)  
+(evaṃ arghyatrayaṃ dadyāt kālātikramaṇe pūrvavat)  
+(paśchāt hastena jalamādāya pradakśhiṇaṃ kuryāt)  
+(dvirāchamya prāṇāyāma trayaṃ kṛtvā)  
+āchamya (oṃ keśavāya svāhā, ... śrī kṛśhṇa parabrahmaṇe namo namaḥ)  
+sandhyāṅga tarpaṇaṃ  
+prātaḥkāla tarpaṇaṃ  
+sandhyāṃ tarpayāmi, gāyatrīṃ tarpayāmi, brāhmīṃ tarpayāmi, nimṛjīṃ tarpayāmi ‖
+
+madhyāhna tarpaṇaṃ  
+sandhyāṃ tarpayāmi, sāvitrīṃ tarpayāmi, raudrīṃ tarpayāmi, nimṛjīṃ tarpayāmi ‖
+
+sāyaṅkāla tarpaṇaṃ  
+sandhyāṃ tarpayāmi, sarasvatīṃ tarpayāmi, vaiśhṇavīṃ tarpayāmi, nimṛjīṃ tarpayāmi ‖
+
+(punarāchamanaṃ kuryāt)  
+gāyatrī avāhana  
+omityekākśha'raṃ brahma ❘  
+agnirdevatā brahma' ityārśham ❘  
+gāyatraṃ Chandaṃ paramātma'ṃ sarūpam ❘  
+sāyujyaṃ vi'niyogam ‖
+
+  (tai. ara. 10. 33)  
+āyā'tu vara'dā devī akśhara'ṃ brahmasaṃmitam ❘  
+gāyatrī''ṃ Chanda'sāṃ mātedaṃ bra'hma juśhasva' me ❘  
+yadahnā''t-kuru'te pāpaṃ tadahnā''t-pratimuchya'te ❘  
+yadrātriyā''t-kuru'te pāpaṃ tadrātriyā''t-pratimuchya'te ❘  
+sarva' varṇe ma'hādevi sandhyāvi'dye sarasva'ti ‖
+
+ojo''si saho''si bala'masi bhrājo''si devānāṃ dhāmanāmā'si viśva'masi viśvāyu-ssarva'masi sarvāyu-rabhibhūroṃ ❘  
+gāyatrī-māvā'hayāmi sāvitrī-māvā'hayāmi sarasvatī-māvā'hayāmi Chandarśhī-nāvā'hayāmi śriya-māvāha'yāmi gāyatriyā gāyatrī cChando viśvāmitraṛśhi ssavitā devatā'gnir-mukhaṃ brahmā śiro viśhṇur-hṛdayagṃ rudra-śśikhā pṛthivī yoniḥ prāṇāpāna vyānodāna samānā saprāṇā śvetavarṇā sāṅkhyāyana sagotrā gāyatrī chaturvigṃ śatyakśharā tripadā' śhaṭ-kukśhiḥ pañcha-śīrśhopanayane vi'niyogaḥ ❘  
+oṃ bhūḥ ❘  
+oṃ bhuvaḥ ❘  
+ogṃ suvaḥ ❘  
+oṃ mahaḥ ❘  
+oṃ janaḥ ❘  
+oṃ tapaḥ ❘  
+ogṃ satyam ❘  
+oṃ tathsa'viturvare''ṇyaṃ bhargo' devasya' dhīmahi ❘  
+dhiyo yo na'ḥ prachodayā''t 
+‖ omāpo jyotī raso'mṛtaṃ brahma bhū-rbhuva-ssuvarom ‖
+
+  (mahānārāyaṇa upaniśhat)  
+āchamya (oṃ keśavāya svāhā, ... śrī kṛśhṇa parabrahmaṇe namo namaḥ)  
+japasaṅkalpaḥ  
+pūrvokta evaṅguṇa viśeśhaṇa viśiśhṭhāyāṃ śubhatithau mamopātta durita kśhayadvārā śrī parameśvara muddisya śrī parameśvara prītyarthaṃ sandhyāṅga yathāśakti gāyatrī mahāmantra japaṃ kariśhye ‖
+
+karanyāsaḥ  
+oṃ tathsa'vituḥ brahmātmane aṅguśhṭābhyāṃ namaḥ ❘  
+vare''ṇyaṃ viśhṇavātmane tarjanībhyāṃ namaḥ ❘  
+bhargo' devasya' rudrātmane madhyamābhyāṃ namaḥ ❘  
+dhīmahi satyātmane anāmikābhyāṃ namaḥ ❘  
+dhiyo yo na'ḥ GYānātmane kaniśhṭikābhyāṃ namaḥ ❘  
+prachodayā''t sarvātmane karatala karapṛśhṭābhyāṃ namaḥ ❘  
+aṅganyāsaḥ  
+oṃ tathsa'vituḥ brahmātmane hṛdayāya namaḥ ❘  
+vare''ṇyaṃ viśhṇavātmane śirase svāhā ❘  
+bhargo' devasya' rudrātmane śikhāyai vaśhaṭ ❘  
+dhīmahi satyātmane kavachāya huṃ ❘  
+dhiyo yo na'ḥ GYānātmane netratrayāya vauśhaṭ ❘  
+prachodayā''t sarvātmane astrāyaphaṭ ❘  
+oṃ bhūrbhuvassuvaromiti digbhandhaḥ ❘  
+dhyānam  
+muktāvidruma hemanīla dhavaḻacchāyair-mukhai strīkśhaṇaiḥ ❘  
+yuktāminduni baddha ratna makuṭāṃ tatvārtha varṇātmikāṃ ❘  
+gāyatrīṃ varadābhayāṅkuśa kaśāśśubhraṅkapālaṅgadāṃ ❘  
+śaṅkhañchakra madhāravinda yugaḻaṃ hastairvahantīṃ bhaje ‖
+
+chaturviṃśati mudrā pradarśanaṃ  
+sumukhaṃ sampuṭiñchaiva vitataṃ vistṛtaṃ tathā ❘  
+dvimukhaṃ trimukhañchaiva chatuḥ pañcha mukhaṃ tathā ❘  
+śhaṇmukhoatho mukhaṃ chaiva vyāpakāñjalikaṃ tathā ❘  
+śakaṭaṃ yamapāśaṃ cha grathitaṃ sammukhonmukhaṃ ❘  
+pralambaṃ muśhṭikaṃ chaiva matsyaḥ kūrmo varāhakaṃ ❘  
+siṃhākrāntaṃ mahākrāntaṃ mudgaraṃ pallavaṃ tathā ❘  
+chaturviṃśati mudrā vai gāyatryāṃ supratiśhṭhitāḥ ❘  
+itimudrā na jānāti gāyatrī niśhphalā bhavet ‖
+
+yo deva ssavitā'smākaṃ dhiyo dharmādigocharāḥ ❘  
+prerayettasya yadbhargasta dvareṇya mupāsmahe ‖
+
+gāyatrī mantraṃ  
+oṃ bhūrbhuvassuva'ḥ ‖
+
+ tathsa'viturvare''ṇyaṃ bhargo' devasya' dhīmahi ❘  
+dhiyo yo na'ḥ prachodayā''t ‖
+
+aśhṭamudrā pradarśanaṃ  
+surabhir-GYāna chakre cha yoniḥ kūrmoatha paṅkajaṃ ❘  
+liṅgaṃ niryāṇa mudrā chetyaśhṭa mudrāḥ prakīrtitāḥ ‖
+
+oṃ tatsad-brahmārpaṇamastu ❘  
+āchamya (oṃ keśavāya svāhā, ... śrī kṛśhṇa parabrahmaṇe namo namaḥ)  
+dviḥ parimujya ❘  
+sakṛdupa spṛśya ❘  
+yatsavyaṃ pāṇiṃ ❘  
+pādaṃ ❘  
+prokśhati śiraḥ ❘  
+chakśhuśhī ❘  
+nāsike ❘  
+śrotre ❘  
+hṛdayamālabhya ❘  
+prātaḥkāla sūryopasthānaṃ  
+oṃ mitrasya' charśhaṇī dhṛta śravo' devasya' sāna siṃ ❘  
+satyaṃ chitraśra' vastamaṃ ❘  
+mitro janān' yātayati prajānan-mitro dā'dhāra pṛthivī mutadyāṃ ❘  
+mitraḥ kṛśhṭī rani'miśhā'bhi cha'śhṭe satyāya' havyaṃ ghṛtava'dvidhema ❘  
+prasami'ttra martyo' astu praya'svā nyasta' āditya śikśha'ti vratena' ❘  
+na ha'nyate na jī'yate tvotonaina magṃho' aśno tyanti'to na dūrāt ‖
+
+  (tai. saṃ. 3.4.11)  
+madhyāhna sūryopasthānaṃ  
+oṃ ā satyena raja'sā varta'māno niveśa'ya nnamṛtaṃ martya'ñcha ❘  
+hiraṇyaye'na savitā rathenā'devo yā'ti bhuva'nā nipaśyan' ‖
+
+udvaya ntama'sa spari paśya'nto jyoti rutta'raṃ ❘  
+devan-de'vatrā sūrya maga'nma jyoti' ruttamaṃ  ‖
+
+udutyaṃ  jātave'dasaṃ devaṃ va'hanti ketava'ḥ ❘  
+dṛśe viśvā' ya sūrya''m 
+‖ chitraṃ devānā muda'gā danī'kaṃ chakśhu'r-mitrasya varu'ṇa syāgneḥ ❘  
+aprā dyāvā' pṛthivī antari'kśhagṃ sūrya' ātmā jaga'ta stasthuśha'ścha ‖
+
+tacchakśhu'r-devahi'taṃ purastā''cchukra mucchara't ❘  
+paśye'ma śarada'śśataṃ jīve'ma śarada'śśataṃ nandā'ma śarada'śśataṃ modā'ma śarada'śśataṃ bhavā'ma śarada'śśatagṃ śṛṇavā'ma śarada'śśataṃ pabra'vāma śarada'śśatamajī'tāsyāma śarada'śśataṃ jokcha sūrya'ṃ dṛśhe 
+‖ ya uda'gānmahatoarṇavā'' dvibhrāja'māna ssarirasya madhyāthsamā' vṛśhabho lo'hitākśhasūryo' vipaśchinmana'sā punātu ‖
+
+sāyaṅkāla sūryopasthānaṃ  
+oṃ imamme' varuṇa śṛdhī hava' madyā cha' mṛḍaya ❘  
+tvā ma'vasyu rācha'ke 
+‖ tatvā' yāmi brahma'ṇā vanda'māna sta dāśā''ste yaja'māno havirbhi'ḥ ❘  
+ahe'ḍamāno varuṇeha bodhyuru'śagṃ samā'na āyuḥ pramo'śhīḥ ‖
+
+yacchiddhite viśoyathā pradeva varuṇavrataṃ ❘  
+minīmasidya vidyavi ❘  
+yatkiñcedaṃ varuṇadaivye janeabhidroha mmanuśhyāścharāmasi ❘  
+achitte yattava dharmāyuyopi mamāna stasmā denaso devarīriśhaḥ ❘  
+kitavāso yadriripurnadīvi yadvāghā satyamutayanna vidma ❘  
+sarvātāviśhya śidhirevadevā thātesyāma varuṇa priyāsaḥ ‖
+
+  (tai. saṃ. 1.1.1)  
+digdevatā namaskāraḥ  
+(etairnamaskāraṃ kuryāt)  
+oṃ namaḥ prāchyai' diśe yāścha' devatā' etasyāṃ prati'vasantye tābhya'ścha nama'ḥ ❘  
+oṃ namaḥ dakśhiṇāyai diśe yāścha' devatā' etasyāṃ prati'vasantye tābhya'ścha nama'ḥ ❘  
+oṃ namaḥ pratī''chyai diśe yāścha' devatā' etasyāṃ prati'vasantye tābhya'ścha nama'ḥ ❘  
+oṃ namaḥ udī''chyai diśe yāścha' devatā' etasyāṃ prati'vasantye tābhya'ścha nama'ḥ ❘  
+oṃ namaḥ ūrdhvāyai' diśe yāścha' devatā' etasyāṃ prati'vasantye tābhya'ścha nama'ḥ ❘  
+oṃ namoadha'rāyai diśe yāścha' devatā' etasyāṃ prati'vasantye tābhya'ścha nama'ḥ ❘  
+oṃ namoavāntarāyai' diśe yāścha' devatā' etasyāṃ prati'vasantye tābhya'ścha nama'ḥ ❘  
+muni namaskāraḥ  
+namo gaṅgā yamunayor-madhye ye' vasanti te me prasannātmāna śchirañjīvitaṃ va'rdhayanti namo gaṅgā yamunayor-muni'bhyaścha namo namo gaṅgā yamunayor-muni'bhyaścha na'maḥ ‖
+
+sandhyādevatā namaskāraḥ  
+sandhyā'yai nama'ḥ ❘  
+sāvi'tryai nama'ḥ ❘  
+gāya'tryai nama'ḥ ❘  
+sara'svatyai nama'ḥ ❘  
+sarvā'bhyo devatā'bhyo nama'ḥ ❘  
+devebhyo nama'ḥ ❘  
+ṛśhi'bhyo nama'ḥ ❘  
+muni'bhyo nama'ḥ ❘  
+guru'bhyo nama'ḥ ❘  
+pitṛ'bhyo nama'ḥ ❘  
+kāmoakārśhī'' rnamo namaḥ ❘  
+manyu rakārśhī'' rnamo namaḥ ❘  
+pṛthivyāpastejo vāyu'rākāśāt namaḥ ‖
+
+ (tai. ara. 2.18.52)  
+oṃ namo bhagavate vāsu'devāya ❘  
+yāgṃ sadā' sarvabhūtāni charāṇi' sthāvarāṇi' cha ❘  
+sāyaṃ prāta rna'masyanti sā mā sandhyā''bhirakśhatu ‖
+
+śivāya viśhṇurūpāya śivarūpāya viśhṇave ❘  
+śivasya hṛdayaṃ viśhṇurviśhṇoścha hṛdayaṃ śivaḥ ‖
+
+yathā śivamayo viśhṇurevaṃ viśhṇumayaḥ śivaḥ ❘  
+yathā'ntaraṃ na paśyāmi tathā me svastirāyuśhi ‖
+
+namo brahmaṇya devāya go brāhmaṇa hitāya cha ❘  
+jagaddhitāya kṛśhṇāya govindāya namo namaḥ ‖
+
+gāyatrī udvāsana (prasthānaṃ)  
+uttame' śikha're jāte bhūmyāṃ pa'rvatamūrtha'ni ❘  
+brāhmaṇe''bhyoabhya'nu GYātā gacchade'vi yathāsu'kham ❘  
+stuto mayā varadā ve'damātā prachodayantī pavane'' dvijātā ❘  
+āyuḥ pṛthivyāṃ draviṇaṃ bra'hmavarchasaṃ mahyaṃ datvā prajātuṃ bra'hmalokam ‖
+
+ (mahānārāyaṇa upaniśhat)  
+bhagavannamaskāraḥ  
+namoastvanantāya sahasramūrtaye sahasra pādākśhi śiroru bāhave ❘  
+sahasra nāmne puruśhāya śāśvate sahasrakoṭī yuga dhāriṇe namaḥ ‖
+
+bhūmyākāśābhi vandanaṃ  
+idaṃ dyā'vā pṛthivī satyama'stu ❘  
+pitar-mātaryadi hopa' bṛvevā''ṃ ❘  
+bhūtaṃ devānā' mavame avo'bhiḥ ❘  
+vidyā meśhaṃ vṛjina'ṃ jīradā'num ‖
+
+ākāśāt-patitaṃ toyaṃ yathā gacChati sāgaraṃ ❘  
+sarvadeva namaskāraḥ keśavaṃ pratigacChati ‖
+
+śrī keśavaṃ pratigacChatyonnama iti ❘  
+sarvavedeśhu yatpuṇyaṃ ❘  
+sarvatīrtheśhu yatphalaṃ ❘  
+tatphalaṃ puruśha āpnoti stutvādevaṃ janārdhanam ‖
+
+stutvādevaṃ janārdhana oṃ nama iti ‖
+
+vāsanād-vāsudevasya vāsitaṃ te jayatrayaṃ ❘  
+sarvabhūta nivāsoasi śrīvāsudeva namoastute ‖
+
+śrī vāsudeva namoastute oṃ nama iti ❘  
+abhivādaḥ (pravara)  
+chatussāgara paryantaṃ go brāhmaṇebhyaḥ śubhaṃ bhavatu ❘  
+... pravarānvita ... gotraḥ ... sūtraḥ ... śākhādhyāyī ... ahaṃ bho abhivādaye ‖
+
+īśvarārpaṇaṃ  
+kāyena vāchā manasendriyairvā ❘  
+buddhyā''tmanā vā prakṛte ssvabhāvāt ❘  
+karomi yadyat-sakalaṃ parasmai śrīmannārāyaṇāyeti samarpayāmi ‖
+
+hariḥ oṃ tatsat ❘  
+tatsarvaṃ śrī parameśvarārpaṇamastu ❘  
+### PlainEnglish
+
+#### nitya saMdhyaa vaMdanam
+
+shareera shuddhi  
+apavitraH pavitro vaa sarvaavasthaa''M gato.apivaa ❘  
+yaH smaret puMDareekaakshhaM sa baahyaabhyaMtara shshuchiH ‖
+
+puMDareekaakshha ! puMDareekaakshha ! puMDareekaakshhaaya namaH ❘  
+aachamanaH  
+oM aachamya  
+oM keshavaaya svaahaa  
+oM naaraayaNaaya svaahaa  
+oM maadhavaaya svaahaa (iti triraachamya)  
+oM goviMdaaya namaH  (paaNee maarjayitvaa)  
+oM vishhNave namaH  
+oM madhusoodanaaya namaH  (oshhThau maarjayitvaa)   
+oM trivikramaaya namaH  
+oM vaamanaaya namaH  (shirasi jalaM prokshhya)   
+oM shreedharaaya namaH   
+oM hRRishheekeshaaya namaH  (vaamahast.e jalaM prokshhya)   
+oM padmanaabhaaya namaH  (paadayoH jalaM prokshhya)   
+oM daamodaraaya namaH  (shirasi jalaM prokshhya)   
+oM saMkarshhaNaaya namaH  (aMguLibhishchibukaM jalaM prokshhya)   
+oM vaasudevaaya namaH    
+oM pradyumnaaya namaH  (naasikaaM spRRishhTvaa)   
+oM aniruddhaaya namaH  
+oM purushhottamaaya namaH   
+oM adhokshhajaaya namaH   
+oM naarasiMhaaya namaH  (netre shrotre ca spRRishhTvaa)   
+oM achyutaaya namaH  (naabhiM spRRishhTvaa)   
+oM janaardhanaaya namaH  (hRRidayaM spRRishhTvaa)   
+oM upeMdraaya namaH  (hastaM shirasi nikshhipya)   
+oM haraye namaH   
+oM shreekRRishhNaaya namaH  (aMsau spRRishhTvaa)   
+oM shreekRRishhNa parabrahmaNe namo namaH  
+(etaanyuccaarya upyakta prakaaraM kRRite aMgaani shuddhaani bhaveyuH)  
+bhootocchaaTana  
+uttishhThaMtu ❘  
+bhoota pishaachaaH ❘  
+ye te bhoomibhaarakaaH ❘  
+ye teshhaamavirodhena ❘  
+brahmakarma samaarabhe ❘  
+oM bhoorbhuvassuvaH ❘  
+daivee gaayatree chaMdaH praaNaayaame viniyogaH  
+(praaNaayaamaM kRRitvaa kuMbhake imaM gaayatree maMtramucCharet)  
+praaNaayaamaH  
+oM bhooH ❘  
+oM bhuvaH ❘  
+ogM suvaH ❘  
+oM mahaH ❘  
+oM janaH ❘  
+oM tapaH ❘  
+ogM satyam ❘  
+oM tathsa'viturvare''NyaM bhargo' devasya' dheemahi ❘  
+dhiyo yo na'H prachodayaa''t ‖
+
+omaapo jyotee raso.amRRitaM brahma bhoo-rbhuva-ssuvarom ‖
+
+  (tai. ara. 10-27)  
+saMkalpaH  
+mamopaatta, durita kshhayadvaaraa, shree parameshvara muddisya, shree parameshvara preetyarthaM, shubhe, shobhane, abhyudaya muhoorte, shree mahaavishhNo raagnyayaa, pravarta maanasya, adya brahmaNaH, dviteeya paraarthe, shvetavaraaha kalpe, vaivashvata manvaMtare, kaliyuge, prathama paade, (bhaarata deshaH - jaMboo dveepe, bharata varshhe, bharata khaMDe, meroH dakshhiNa/uttara digbhaage; amerikaa - krauMcha dveepe, ramaNaka varshhe, aiMdrika khaMDe, sapta samudraaMtare, kapilaaraNye), shobhana gRRihe, samasta devataa braahmaNa, harihara gurucharaNa sannithau, asmin, vartamaana, vyaavahaarika, chaaMdramaana, ... saMvatsare, ... ayane, ... RRite, ... maase, ... pakshhe, ... tithau, ... vaasare, ... shubha nakshhatra, shubha yoga, shubha karaNa, evaMguNa, visheshhaNa, vishishhThaayaaM, shubha tithau, shreemaan, ... gotraH, ... naamadheyaH, ... gotrasya, ... naamadheyohaMH praataH/madhyaahnika/saayaM saMdhyaam upaasishhye ‖
+
+maarjanaH  
+oM aapohishhThaa ma'yobhuva'H ❘  
+taa na' oorje da'dhaatana ❘  
+maheraNaa'ya chakshha'se ❘  
+yo va'H shivata'mo rasa'H ❘  
+tasya' bhaajayate ha naH ❘  
+ushateeri'va maatara'H ❘  
+tasmaa ara'nga maama vaH ❘  
+ yasya kshhayaa'ya jinva'tha ❘  
+aapo' janaya'thaa cha naH ❘  
+ (tai. ara. 4-42)  
+(iti shirasi maarjayet)   
+(hastena jalaM gRRiheetvaa)  
+praataH kaala maMtraachamanaH  
+soorya shcha, maamanyu shcha, manyupataya shcha, manyu'kRRitebhyaH ❘  
+paapebhyo' rakshhantaam ❘  
+yadraatryaa paapa' makaarshhaM ❘  
+manasaa vaachaa' hastaabhyaaM ❘  
+padbhyaa mudare'Na shishnchaa ❘  
+raatri stada'valumpatu ❘  
+yatkincha' duritaM mayi' ❘  
+idamahaM maa mamRRi'ta yo nau ❘  
+soorye jyotishhi juho'mi svaahaa'' ‖
+
+  (tai. ara. 10. 24)  
+madhyaahna kaala maMtraachamanaH  
+aapa'H punantu pRRithiveeM pRRi'thivee pootaa pu'naatu maaM ❘  
+punantu brahma'Naspati rbrahmaa' pootaa pu'naatu maaM ❘  
+yaducChi'shhTa mabho''jyaM  yadvaa' dushchari'taM mama' ❘  
+sarva'M punantu maa maapo'.asataa ncha' pratigrahagg svaahaa'' ‖
+
+   (tai. ara. parishishhTaH 10. 30)  
+saayaMkaala maMtraachamanaH  
+agni shcha maa manyu shcha manyupataya shcha manyu'kRRitebhyaH ❘  
+paapebhyo' rakshhantaaM ❘  
+yadahnaa paapa' makaarshhaM ❘  
+manasaa vaachaa' hastaabhyaaM ❘  
+padbhyaa mudare'Na shishnchaa ❘  
+aha stada'valumpatu ❘  
+ya tkincha' duritaM mayi' ❘  
+ida mahaM maa mamRRi'ta yonau ❘  
+satye jyotishhi juhomi svaahaa ‖
+
+  (tai. ara. 10. 24)  
+(iti maMtreNa jalaM pibet)  
+aachamya (oM keshavaaya svaahaa, ... shree kRRishhNa parabrahmaNe namo namaH)  
+dviteeya maarjanaH  
+dadhi kraavaNNo' akaarishhaM ❘  
+jishhNo rashva'sya vaaji'naH ❘  
+surabhino mukhaa'karatpraNa aayoog'Mshhi taarishhat ‖
+
+(sooryapakshhe lokayaatraa nirvaahaka ityarthaH)  
+oM aapo hishhThaa ma'yobhuva'H ❘  
+taa na' oorje da'dhaatana ❘  
+maheraNaa'ya chakshha'se ❘  
+yo va'H shivata'mo rasa'H ❘  
+tasya' bhaajayate ha naH ❘  
+ushateeri'va maatara'H ❘  
+tasmaa ara'nga maama vaH ❘  
+ yasya kshhayaa'ya jinva'tha ❘  
+aapo' janaya'thaa cha naH ‖
+
+  (tai. ara. 4. 42)  
+punaH maarjanaH  
+hira'NyavarNaa shshucha'yaH paavakaaH yaa su'jaataH kashyapo yaa svindra'H ❘  
+agniM yaa garbha'n-dadhire viroo'paa staana aapashshagg syonaa bha'vantu ❘  
+yaa saagM raajaa varu'No yaati madhye' satyaanRRite a'vapashyaM janaa'naaM ❘  
+madhu shchutashshucha'yo yaaH paa'vakaa staana aapashshagg syonaa bha'vantu ❘  
+yaasaa''M devaa divi kRRiNvanti' bhakshhaM yaa antari'kshhe bahuthaa bhava'nti ❘  
+yaaH pRRi'thiveeM paya'sondanti' shshukraastaana aapashagg syonaa bha'vantu ❘  
+yaaH shivena' maa chakshhu'shhaa pashyataapashshivayaa' tanu vopa'spRRishata tvacha' mme ❘  
+sarvaag'M agneegM ra'psushhado' huve vo mayi varcho bala mojo nidha'tta ‖
+
+  (tai. saM. 5. 6. 1)  
+(maarjanaM kuryaat)  
+aghamarshhaNa maMtraH paapavimochanaM  
+(hastena jalamaadaaya nishshvasya vaamato nikshhitapet)  
+drupadaa di'va munchatu ❘  
+drupadaa dive nmu'muchaanaH ❘  
+svinna ssnaatvee malaa' divaH ❘  
+pootaM pavitre'Ne vaajya''M aapa' shshundantu maina'saH ‖
+
+  (tai. braa. 266)  
+aachamya (oM keshavaaya svaahaa, ... shree kRRishhNa parabrahmaNe namo namaH)  
+praaNaayaamamya  
+laghusaMkalpaH  
+poorvokta evaMguNa visheshhaNa vishishhThaayaaM shubhatithau mamopaatta durita kshhayadvaaraa shree parameshvara muddisya shree parameshvara preetyarthaM praatassaMdhyaaMga yathaa kaalochita arghyapradaanaM karishhye ‖
+
+praataH kaalaarghya maMtraM  
+oM bhoorbhuvassuva'H 
+‖ tathsa'viturvare''NyaM bhargo' devasya' dheemahi ❘  
+dhiyo yo na'H prachodayaa''t ‖
+
+ 3 ‖
+
+madhyaahnaarghya maMtraM  
+oM hagM sashshu'chishha dvasu'raMtarikshhasa ddotaa' vedishhadati'thi rduroNasat ❘  
+nRRishha dva'rasa dRRi'tasa dvyo'ma sadabjaa gojaa RRi'tajaa a'drijaa RRitam-bRRihat ‖
+
+  (tai. ara. 10. 4)  
+saayaM kaalaarghya maMtraM  
+oM bhoorbhuvassuva'H 
+‖ tathsa'viturvare''NyaM bhargo' devasya' dheemahi ❘  
+dhiyo yo na'H prachodayaa''t ‖
+
+ oM bhooH ❘  
+oM bhuvaH ❘  
+ogM suvaH ❘  
+oM mahaH ❘  
+oM janaH ❘  
+oM tapaH ❘  
+ogM satyam ❘  
+oM tathsa'viturvare''NyaM bhargo' devasya' dheemahi ❘  
+dhiyo yo na'H prachodayaa''t 
+‖ omaapo jyotee raso.amRRitaM brahma bhoo-rbhuva-ssuvarom ‖
+
+(ityaMjalitrayaM visRRijet)  
+kaalaatikramaNa praayashchittaM  
+aachamya...   
+poorvokta evaMguNa visheshhaNa vishishhThaayaaM shubhatithau mamopaatta durita kshhayadvaaraa shree parameshvara muddisya shree parameshvara preetyarthaM kaalaatikrama doshhaparihaaraarthaM chaturthaa arghyapradaanaM karishhye ‖
+
+oM bhoorbhuvassuva'H 
+‖ tathsa'viturvare''NyaM bhargo' devasya' dheemahi ❘  
+dhiyo yo na'H prachodayaa''t ‖
+
+ oM bhooH ❘  
+oM bhuvaH ❘  
+ogM suvaH ❘  
+oM mahaH ❘  
+oM janaH ❘  
+oM tapaH ❘  
+ogM satyam ❘  
+oM tathsa'viturvare''NyaM bhargo' devasya' dheemahi ❘  
+dhiyo yo na'H prachodayaa''t 
+‖ omaapo jyotee raso.amRRitaM brahma bhoo-rbhuva-ssuvarom ‖
+
+(iti jalaM visRRijet)  
+sajala pradakshhiNaM  
+oM udyanta'mastaM yanta' maaditya ma'bhithyaaya nkurvan-braa''hmaNo vidvaan tsakala'm-bhadrama'shnute asaavaa'dityo brahmeti 
+‖ brahmaiva san-brahmaapyeti ya evaM veda ‖
+
+ asaavaadityo brahma ‖
+
+  (tai. ara. 2. 2)  
+(evaM arghyatrayaM dadyaat kaalaatikramaNe poorvavat)  
+(pashchaat hastena jalamaadaaya pradakshhiNaM kuryaat)  
+(dviraachamya praaNaayaama trayaM kRRitvaa)  
+aachamya (oM keshavaaya svaahaa, ... shree kRRishhNa parabrahmaNe namo namaH)  
+saMdhyaaMga tarpaNaM  
+praataHkaala tarpaNaM  
+saMdhyaaM tarpayaami, gaayatreeM tarpayaami, braahmeeM tarpayaami, nimRRijeeM tarpayaami ‖
+
+madhyaahna tarpaNaM  
+saMdhyaaM tarpayaami, saavitreeM tarpayaami, raudreeM tarpayaami, nimRRijeeM tarpayaami ‖
+
+saayaMkaala tarpaNaM  
+saMdhyaaM tarpayaami, sarasvateeM tarpayaami, vaishhNaveeM tarpayaami, nimRRijeeM tarpayaami ‖
+
+(punaraachamanaM kuryaat)  
+gaayatree avaahana  
+omityekaakshha'raM brahma ❘  
+agnirdevataa brahma' ityaarshham ❘  
+gaayatraM ChandaM paramaatma'M saroopam ❘  
+saayujyaM vi'niyogam ‖
+
+  (tai. ara. 10. 33)  
+aayaa'tu vara'daa devee akshhara'M brahmasaMmitam ❘  
+gaayatree''M Chanda'saaM maatedaM bra'hma jushhasva' me ❘  
+yadahnaa''t-kuru'te paapaM tadahnaa''t-pratimuchya'te ❘  
+yadraatriyaa''t-kuru'te paapaM tadraatriyaa''t-pratimuchya'te ❘  
+sarva' varNe ma'haadevi saMdhyaavi'dye sarasva'ti ‖
+
+ojo'.asi saho'.asi bala'masi bhraajo'.asi devaanaaM dhaamanaamaa'si vishva'masi vishvaayu-ssarva'masi sarvaayu-rabhibhooroM ❘  
+gaayatree-maavaa'hayaami saavitree-maavaa'hayaami sarasvatee-maavaa'hayaami Chandarshhee-naavaa'hayaami shriya-maavaaha'yaami gaayatriyaa gaayatree cChando vishvaamitraRRishhi ssavitaa devataa.agnir-mukhaM brahmaa shiro vishhNur-hRRidayagM rudra-shshikhaa pRRithivee yoniH praaNaapaana vyaanodaana samaanaa sapraaNaa shvetavarNaa saaMkhyaayana sagotraa gaayatree chaturvigM shatyakshharaa tripadaa' shhaT-kukshhiH paMcha-sheershhopanayane vi'niyogaH ❘  
+oM bhooH ❘  
+oM bhuvaH ❘  
+ogM suvaH ❘  
+oM mahaH ❘  
+oM janaH ❘  
+oM tapaH ❘  
+ogM satyam ❘  
+oM tathsa'viturvare''NyaM bhargo' devasya' dheemahi ❘  
+dhiyo yo na'H prachodayaa''t 
+‖ omaapo jyotee raso.amRRitaM brahma bhoo-rbhuva-ssuvarom ‖
+
+  (mahaanaaraayaNa upanishhat)  
+aachamya (oM keshavaaya svaahaa, ... shree kRRishhNa parabrahmaNe namo namaH)  
+japasaMkalpaH  
+poorvokta evaMguNa visheshhaNa vishishhThaayaaM shubhatithau mamopaatta durita kshhayadvaaraa shree parameshvara muddisya shree parameshvara preetyarthaM saMdhyaaMga yathaashakti gaayatree mahaamaMtra japaM karishhye ‖
+
+karanyaasaH  
+oM tathsa'vituH brahmaatmane aMgushhTaabhyaaM namaH ❘  
+vare''NyaM vishhNavaatmane tarjaneebhyaaM namaH ❘  
+bhargo' devasya' rudraatmane madhyamaabhyaaM namaH ❘  
+dheemahi satyaatmane anaamikaabhyaaM namaH ❘  
+dhiyo yo na'H gnyaanaatmane kanishhTikaabhyaaM namaH ❘  
+prachodayaa''t sarvaatmane karatala karapRRishhTaabhyaaM namaH ❘  
+aMganyaasaH  
+oM tathsa'vituH brahmaatmane hRRidayaaya namaH ❘  
+vare''NyaM vishhNavaatmane shirase svaahaa ❘  
+bhargo' devasya' rudraatmane shikhaayai vashhaT ❘  
+dheemahi satyaatmane kavachaaya huM ❘  
+dhiyo yo na'H gnyaanaatmane netratrayaaya vaushhaT ❘  
+prachodayaa''t sarvaatmane astraayaphaT ❘  
+oM bhoorbhuvassuvaromiti digbhandhaH ❘  
+dhyaanam  
+muktaavidruma hemaneela dhavaLacchaayair-mukhai streekshhaNaiH ❘  
+yuktaamiMduni baddha ratna makuTaaM tatvaartha varNaatmikaaM ❘  
+gaayatreeM varadaabhayaankusha kashaashshubhrankapaalangadaaM ❘  
+shankhanchakra madhaaravinda yugaLaM hastairvahanteeM bhaje ‖
+
+chaturviMshati mudraa pradarshanaM  
+sumukhaM saMpuTiMchaiva vitataM vistRRitaM tathaa ❘  
+dvimukhaM trimukhaMchaiva chatuH pancha mukhaM tathaa ❘  
+shhaNmukho.atho mukhaM chaiva vyaapakaanjalikaM tathaa ❘  
+shakaTaM yamapaashaM cha grathitaM sammukhonmukhaM ❘  
+pralaMbaM mushhTikaM chaiva matsyaH koormo varaahakaM ❘  
+siMhaakraaMtaM mahaakraaMtaM mudgaraM pallavaM tathaa ❘  
+chaturviMshati mudraa vai gaayatryaaM supratishhThitaaH ❘  
+itimudraa na jaanaati gaayatree nishhphalaa bhavet ‖
+
+yo deva ssavitaa.asmaakaM dhiyo dharmaadigocharaaH ❘  
+prerayettasya yadbhargasta dvareNya mupaasmahe ‖
+
+gaayatree maMtraM  
+oM bhoorbhuvassuva'H ‖
+
+ tathsa'viturvare''NyaM bhargo' devasya' dheemahi ❘  
+dhiyo yo na'H prachodayaa''t ‖
+
+ashhTamudraa pradarshanaM  
+surabhir-gnyaana chakre cha yoniH koormo.atha pankajaM ❘  
+lingaM niryaaNa mudraa chetyashhTa mudraaH prakeertitaaH ‖
+
+oM tatsad-brahmaarpaNamastu ❘  
+aachamya (oM keshavaaya svaahaa, ... shree kRRishhNa parabrahmaNe namo namaH)  
+dviH parimujya ❘  
+sakRRidupa spRRishya ❘  
+yatsavyaM paaNiM ❘  
+paadaM ❘  
+prokshhati shiraH ❘  
+chakshhushhee ❘  
+naasike ❘  
+shrotre ❘  
+hRRidayamaalabhya ❘  
+praataHkaala sooryopasthaanaM  
+oM mitrasya' charshhaNee dhRRita shravo' devasya' saana siM ❘  
+satyaM chitrashra' vastamaM ❘  
+mitro janaan' yaatayati prajaanan-mitro daa'dhaara pRRithivee mutadyaaM ❘  
+mitraH kRRishhTee rani'mishhaa.abhi cha'shhTe satyaaya' havyaM ghRRitava'dvidhema ❘  
+prasami'ttra martyo' astu praya'svaa nyasta' aaditya shikshha'ti vratena' ❘  
+na ha'nyate na jee'yate tvotonaina magMho' ashno tyanti'to na dooraat ‖
+
+  (tai. saM. 3.4.11)  
+madhyaahna sooryopasthaanaM  
+oM aa satyena raja'saa varta'maano nivesha'ya nnamRRitaM martya'ncha ❘  
+hiraNyaye'na savitaa rathenaa.adevo yaa'ti bhuva'naa nipashyan' ‖
+
+udvaya ntama'sa spari pashya'nto jyoti rutta'raM ❘  
+devan-de'vatraa soorya maga'nma jyoti' ruttamaM  ‖
+
+udutyaM  jaatave'dasaM devaM va'hanti ketava'H ❘  
+dRRishe vishvaa' ya soorya''m 
+‖ chitraM devaanaa muda'gaa danee'kaM chakshhu'r-mitrasya varu'Na syaagneH ❘  
+apraa dyaavaa' pRRithivee antari'kshhagM soorya' aatmaa jaga'ta stasthushha'shcha ‖
+
+tacchakshhu'r-devahi'taM purastaa''cchukra mucchara't ❘  
+pashye'ma sharada'shshataM jeeve'ma sharada'shshataM nandaa'ma sharada'shshataM modaa'ma sharada'shshataM bhavaa'ma sharada'shshatagM shRRiNavaa'ma sharada'shshataM pabra'vaama sharada'shshatamajee'taasyaama sharada'shshataM jokcha soorya'M dRRishhe 
+‖ ya uda'gaanmahato.arNavaa'' dvibhraaja'maana ssarirasya madhyaathsamaa' vRRishhabho lo'hitaakshhasooryo' vipashchinmana'saa punaatu ‖
+
+saayaMkaala sooryopasthaanaM  
+oM imamme' varuNa shRRidhee hava' madyaa cha' mRRiDaya ❘  
+tvaa ma'vasyu raacha'ke 
+‖ tatvaa' yaami brahma'Naa vanda'maana sta daashaa''ste yaja'maano havirbhi'H ❘  
+ahe'Damaano varuNeha bodhyuru'shagM samaa'na aayuH pramo'shheeH ‖
+
+yacchiddhite vishoyathaa pradeva varuNavrataM ❘  
+mineemasidya vidyavi ❘  
+yatkincedaM varuNadaivye jane.abhidroha mmanushhyaashcharaamasi ❘  
+achitte yattava dharmaayuyopi mamaana stasmaa denaso devareerishhaH ❘  
+kitavaaso yadriripurnadeevi yadvaaghaa satyamutayanna vidma ❘  
+sarvaataavishhya shidhirevadevaa thaatesyaama varuNa priyaasaH ‖
+
+  (tai. saM. 1.1.1)  
+digdevataa namaskaaraH  
+(etairnamaskaaraM kuryaat)  
+oM namaH praachyai' dishe yaashcha' devataa' etasyaaM prati'vasantye taabhya'shcha nama'H ❘  
+oM namaH dakshhiNaayai dishe yaashcha' devataa' etasyaaM prati'vasantye taabhya'shcha nama'H ❘  
+oM namaH pratee''chyai dishe yaashcha' devataa' etasyaaM prati'vasantye taabhya'shcha nama'H ❘  
+oM namaH udee''chyai dishe yaashcha' devataa' etasyaaM prati'vasantye taabhya'shcha nama'H ❘  
+oM namaH oordhvaayai' dishe yaashcha' devataa' etasyaaM prati'vasantye taabhya'shcha nama'H ❘  
+oM namo.adha'raayai dishe yaashcha' devataa' etasyaaM prati'vasantye taabhya'shcha nama'H ❘  
+oM namo.avaantaraayai' dishe yaashcha' devataa' etasyaaM prati'vasantye taabhya'shcha nama'H ❘  
+muni namaskaaraH  
+namo gangaa yamunayor-madhye ye' vasanti te me prasannaatmaana shchiraMjeevitaM va'rdhayanti namo gangaa yamunayor-muni'bhyashcha namo namo gangaa yamunayor-muni'bhyashcha na'maH ‖
+
+saMdhyaadevataa namaskaaraH  
+sandhyaa'yai nama'H ❘  
+saavi'tryai nama'H ❘  
+gaaya'tryai nama'H ❘  
+sara'svatyai nama'H ❘  
+sarvaa'bhyo devataa'bhyo nama'H ❘  
+devebhyo nama'H ❘  
+RRishhi'bhyo nama'H ❘  
+muni'bhyo nama'H ❘  
+guru'bhyo nama'H ❘  
+pitRRi'bhyo nama'H ❘  
+kaamo.akaarshhee'' rnamo namaH ❘  
+manyu rakaarshhee'' rnamo namaH ❘  
+pRRithivyaapastejo vaayu'raakaashaat namaH ‖
+
+ (tai. ara. 2.18.52)  
+oM namo bhagavate vaasu'devaaya ❘  
+yaagM sadaa' sarvabhootaani charaaNi' sthaavaraaNi' cha ❘  
+saayaM praata rna'masyanti saa maa sandhyaa'.abhirakshhatu ‖
+
+shivaaya vishhNuroopaaya shivaroopaaya vishhNave ❘  
+shivasya hRRidayaM vishhNurvishhNoshcha hRRidayaM shivaH ‖
+
+yathaa shivamayo vishhNurevaM vishhNumayaH shivaH ❘  
+yathaa.aMtaraM na pashyaami tathaa me svastiraayushhi ‖
+
+namo brahmaNya devaaya go braahmaNa hitaaya cha ❘  
+jagaddhitaaya kRRishhNaaya govindaaya namo namaH ‖
+
+gaayatree udvaasana (prasthaanaM)  
+uttame' shikha're jaate bhoomyaaM pa'rvatamoortha'ni ❘  
+braahmaNe''bhyo.abhya'nu gnyaataa gacchade'vi yathaasu'kham ❘  
+stuto mayaa varadaa ve'damaataa prachodayantee pavane'' dvijaataa ❘  
+aayuH pRRithivyaaM draviNaM bra'hmavarchasaM mahyaM datvaa prajaatuM bra'hmalokam ‖
+
+ (mahaanaaraayaNa upanishhat)  
+bhagavannamaskaaraH  
+namo.astvanaMtaaya sahasramoortaye sahasra paadaakshhi shiroru baahave ❘  
+sahasra naamne purushhaaya shaashvate sahasrakoTee yuga dhaariNe namaH ‖
+
+bhoomyaakaashaabhi vaMdanaM  
+idaM dyaa'vaa pRRithivee satyama'stu ❘  
+pitar-maataryadi hopa' bRRivevaa''M ❘  
+bhootaM devaanaa' mavame avo'bhiH ❘  
+vidyaa meshhaM vRRijina'M jeeradaa'num ‖
+
+aakaashaat-patitaM toyaM yathaa gacChati saagaraM ❘  
+sarvadeva namaskaaraH keshavaM pratigacChati ‖
+
+shree keshavaM pratigacChatyonnama iti ❘  
+sarvavedeshhu yatpuNyaM ❘  
+sarvateertheshhu yatphalaM ❘  
+tatphalaM purushha aapnoti stutvaadevaM janaardhanam ‖
+
+stutvaadevaM janaardhana oM nama iti ‖
+
+vaasanaad-vaasudevasya vaasitaM te jayatrayaM ❘  
+sarvabhoota nivaaso.asi shreevaasudeva namo.astute ‖
+
+shree vaasudeva namo.astute oM nama iti ❘  
+abhivaadaH (pravara)  
+chatussaagara paryaMtaM go braahmaNebhyaH shubhaM bhavatu ❘  
+... pravaraanvita ... gotraH ... sootraH ... shaakhaadhyaayee ... ahaM bho abhivaadaye ‖
+
+eeshvaraarpaNaM  
+kaayena vaachaa manaseMdriyairvaa ❘  
+buddhyaa.a.atmanaa vaa prakRRite ssvabhaavaat ❘  
+karomi yadyat-sakalaM parasmai shreemannaaraayaNaayeti samarpayaami ‖
+
+hariH oM tatsat ❘  
+tatsarvaM shree parameshvaraarpaNamastu ❘  

@@ -302,3 +302,47 @@ tiru veMkaTaachalaadhipu jooDagaMTi ‖
 తిరు వేంకటాచలాధిపు జూడగంటి ‖  
 
 
+### English
+
+#### annamayya kīrtana kaṇṭi nakhilāṇḍa
+
+kaṇṭi nakhilāṇḍa tati kartanadhikuni gaṇṭi ❘  
+kaṇṭi naghamulu vīḍukoṇṭi nijamūrti gaṇṭi ‖
+
+mahanīya ghana phaṇāmaṇula śailamu gaṇṭi ❘  
+bahu vibhavamula maṇṭapamulu gaṇṭi ❘  
+sahaja navaratna kāñchana vedikalu gaṇṭi ❘  
+rahi vahiñchina gopuramulave kaṇṭi ‖
+
+pāvanambaina pāpavināśamu gaṇṭi ❘  
+kaivaśambagu gagana gaṅga gaṇṭi ❘  
+daivikapu puṇyatīrthamulella boḍagaṇṭi ❘  
+kovidulu goniyāḍu koneri gaṇṭi ‖
+
+parama yogīndrulaku bhāvagocharamaina ❘  
+sarileni pādāmbujamula gaṇṭi ❘  
+tiramaina girichūpu divyahastamu gaṇṭi ❘  
+tiru veṅkaṭāchalādhipu jūḍagaṇṭi ‖
+
+### PlainEnglish
+
+#### annamayya keertana kaMTi nakhilaaMDa
+
+kaMTi nakhilaaMDa tati kartanadhikuni gaMTi ❘  
+kaMTi naghamulu veeDuk.oMTi nijamoorti gaMTi ‖
+
+mahaneeya ghana phaNaamaNula shailamu gaMTi ❘  
+bahu vibhavamula maMTapamulu gaMTi ❘  
+sahaja navaratna kaaMchana vedikalu gaMTi ❘  
+rahi vahiMchina gopuramulav.e kaMTi ‖
+
+paavanaMbaina paapavinaashamu gaMTi ❘  
+kaivashaMbagu gagana gaMga gaMTi ❘  
+daivikapu puNyateerthamul.ella b.oDagaMTi ❘  
+kovidulu g.oniyaaDu koneri gaMTi ‖
+
+parama yogeeMdrulaku bhaavagocharamaina ❘  
+sarileni paadaaMbujamula gaMTi ❘  
+tiramaina girichoopu divyahastamu gaMTi ❘  
+tiru veMkaTaachalaadhipu jooDagaMTi ‖
+

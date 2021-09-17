@@ -445,3 +445,79 @@ dharaNeeM bharaNeeM maataraM
 శ్యామలాం సరలాం సుస్మితాం భూషితాం  
 ధరణీం భరణీం మాతరం  
 
+### English
+
+#### vande mātaram
+
+vandemātaraṃ  
+sujalāṃ suphalāṃ malayaja śītalāṃ  
+sasya śyāmalāṃ mātaraṃ   
+‖vande‖
+
+śubhrajyotsnā pulakitayāminīṃ  
+pullakusumita drumadala śobhinīṃ  
+suhāsinīṃ sumadhura bhāśhiṇīṃ  
+sukhadāṃ varadāṃ mātaraṃ  
+‖ vande ‖
+
+koṭikoṭi kaṇṭha kalakala ninādakarāle  
+koṭi koṭi bhujair dhṛta kara karavāle  
+abalā keyano mā eto bale  
+bahubala dhāriṇīṃ namāmi tāriṇīṃ  
+ripudalavāriṇīṃ mātarāṃ 
+‖ vande ‖
+
+timi vidyā timi dharma tumi hṛdi tumi marma   
+tvaṃ hi prāṇāḥ śarīre  
+bāhute tumi mā śakti hṛdaye tumi mā bhakti  
+to mārayi pratimā gaḍi mandire mandire 
+‖ vande ‖
+
+tvaṃ hi durgā daśa praharaṇa dhāriṇī  
+kamalā kamaladaḻa vihāriṇī  
+vāṇī vidyādāyinī  
+namāmi tvāṃ  
+namāmi kamalāṃ amalāṃ atulāṃ  
+sujalāṃ suphalāṃ mātaraṃ 
+‖ vande ‖
+
+śyāmalāṃ saralāṃ susmitāṃ bhūśhitāṃ  
+dharaṇīṃ bharaṇīṃ mātaraṃ  
+### PlainEnglish
+
+#### vaMde maataram
+
+vaMdemaataraM  
+sujalaaM suphalaaM malayaja sheetalaaM  
+sasya shyaamalaaM maataraM   
+‖vaMde‖
+
+shubhrajyotsnaa pulakitayaamineeM  
+pullakusumita drumadala shobhineeM  
+suhaasineeM sumadhura bhaashhiNeeM  
+sukhadaaM varadaaM maataraM  
+‖ vaMde ‖
+
+koTikoTi kaMTha kalakala ninaadakaraale  
+koTi koTi bhujair dhRRita kara karavaale  
+abalaa keyano maa eto bale  
+bahubala dhaariNeeM namaami taariNeeM  
+ripudalavaariNeeM maataraaM 
+‖ vaMde ‖
+
+timi vidyaa timi dharma tumi hRRidi tumi marma   
+tvaM hi praaNaaH shareere  
+baahute tumi maa shakti hRRidaye tumi maa bhakti  
+to maarayi pratimaa gaDi maMdire maMdire 
+‖ vaMde ‖
+
+tvaM hi durgaa dasha praharaNa dhaariNee  
+kamalaa kamaladaLa vihaariNee  
+vaaNee vidyaadaayinee  
+namaami tvaaM  
+namaami kamalaaM amalaaM atulaaM  
+sujalaaM suphalaaM maataraM 
+‖ vaMde ‖
+
+shyaamalaaM saralaaM susmitaaM bhooshhitaaM  
+dharaNeeM bharaNeeM maataraM  

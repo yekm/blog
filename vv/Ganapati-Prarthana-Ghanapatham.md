@@ -640,3 +640,131 @@ dhee_naa ma' _vi_ trya' _vi_ tree _dhee_ naaM _dhee_ naama' _vi_ trya' vatva vat
 ధీ_నా మ' _వి_ త్ర్య' _వి_ త్రీ _ధీ_ నాం _ధీ_ నామ' _వి_ త్ర్య' వత్వ వత్వ _వి_ త్రీ _ధీ_ నాం _ధీ_ నామ' _వి_ త్ర్య'వతు ❘ _అ_ _వి_ త్ర్య'వత్వవ త్వ _వి_ త్ర్య' _వి_ త్ర్య'వతు | _అ_ _వ_ త్విత్య'వతు ‖  
 
 
+### English
+
+#### gaṇapati prārthana ghanāpāṭhaṃ
+
+oṃ gaṇānā''m tvā gaṇapa'tigṃ havāmahe kaviṃ ka'vīnām upamaśra'vastavam ❘  
+jyeśhṭharājaṃ brahma'ṇāṃ brahmaṇaspata ā na'ḥ śṛṇvannūtibhi'ssīda sāda'nam ‖
+
+praṇo' devī sara'svatī ❘  
+vāje'bhir vājinīvatī ❘  
+dhīnāma'vitrya'vatu ‖
+
+gaṇeśāya' namaḥ ❘  
+sarasvatyai namaḥ ❘  
+śrī gurubhyo namaḥ ❘  
+hariḥ oṃ ‖
+
+ghanāpāṭhaḥ  
+gaṇānā''m tvā gaṇānā''m gaṇānā''m tvā gaṇapa'tiṃ gaṇapa'tiṃ tvā gaṇānā''ṃ gaṇānā''ṃ tvā gaṇapa'tim ‖
+
+tvā gaṇapa'tiṃ tvātvā gaṇapa'tigṃ havāmahe havāmahe gaṇapa'tiṃ tvātvā gaṇapa'tigṃ havāmahe ❘  
+gaṇapa'tigṃ havāmahe havāmahe gaṇapa'tiṃ gaṇapa'tigṃ havāmahe kavinkavigṃ ha'vāmahe gaṇapa'tiṃ gaṇapa'tigṃ havāmahe kavim ❘  
+gaṇapa'timiti'gaṇa-patim ‖
+
+havāmahe kaviṃ kavigṃ ha'vāmahe havāmahe kaviṃ ka'vīnānka'vīnāṃ kavigṃ ha'vāmahe havāmahe kavinka'vīnām ‖
+
+kavinka'vīnānkavīnāṃ kavinkaviṃ ka'vīnāmu'pamaśra'vastama mupamaśra'vastama nkavīnāṃ kavinkaviṃ ka'vīnāmu'pamaśra'vastamam ‖
+
+kavīnāmu'pamaśra'va stamamupamaśra'vastamaṃ kavīnā nka'vīnā mu'pamaśra'vastamam ❘  
+upamaśra'vastama mityu'pamaśra'vaḥ-tamam ‖
+
+jyeśhṭarājaṃ brahma'ṇāṃ brahma'ṇāṃ jyeśhṭharājaṃ' jyeśhṭharājaṃ' jyeśhṭharājaṃ brahma'ṇāṃ brahmaṇo brahmaṇo brahma'ṇāṃ jyeśhṭharājaṃ' jyeśhṭharājaṃ' jyeśhṭharājaṃ brahma'ṇāṃ brahmaṇaḥ ❘  
+jyeśhṭharājamiti'jyeśhṭha rājam'' ‖
+
+brahma'ṇāṃ brahmaṇo brahmaṇo brahma'ṇāṃ brahma'ṇāṃ brahmaṇaspate patebrahmaṇo brahma'ṇāṃ brahma'ṇāṃ brahmaṇaspate ‖
+
+brahmaṇaspate pate brahmaṇo brahmaṇaspata āpa'te brahmaṇo brahmaṇaspata ā ❘  
+pata ā pa'tepata āno'na āpa'te pata āna'ḥ ‖
+
+āno'na āna'śśṛṇvan Chṛṇvanna āna'śśṛṇvan ❘  
+na śśṛṇvan Chṛṇvanno'na śśṛṇvannūtibhi' rūtibhiśśṛṇvanno'na śśṛṇvannūtibhi'ḥ ‖
+
+śśṛṇvannūtibhi' rūtibhiśśṛṇvan Chṛṇvannūtibhi'ssīda sīdotibhi'śśṛṇvan Chṛṇvannūtibhi'ssīda ‖
+
+ūtibhi'ssīda sīdotibhi' rūtibhi'ssīda sāda'nagṃ sāda'nagṃ sīdotibhi'rūtibhi'ssīda sāda'nam ❘  
+ūtibhi rityūti-bhiḥ ‖
+
+sīdasāda'nagṃ sāda'nagṃ sīda sīda sāda'nam ❘  
+sāda'namiti sāda'nam ‖
+
+praṇo' naḥ prapraṇo' devī devī naḥ prapraṇo' devī ❘  
+no' devī devī no'no devī sara'svatī sara'svatī devī no' no devī sara'svatī ‖
+
+devī sara'svatī sara'svatī devī devī sara'svatī vājebhirvāje'bhi ssara'svatī devī devī sara'svatī devī sarasvatī vāje'bhiḥ ‖
+
+sara'svatī vāje'bhi rvāje'bhi ssara'svatī sara'svatī vāje'bhi rvājinī'vatī vāhinī'vatī vāje'bhi ssara'svatī sara'svatī vāje'bhi rvājinī'vatī ‖
+
+vāje'bhirvājinī'vatī vājinī'vatī vāje'bhirvāje'bhirvājinī'vatī ❘  
+vājinī'vatīti' vājinī'vatī vāje'bhirvāje'bhirvājinī'vatī ❘  
+vājinī'vatīti' vājinī'-vatī ‖
+
+dhīnā ma'vitrya'vitrī dhīnāṃ dhīnāma'vitrya' vatva vatvavitrī dhīnāṃ dhīnāma'vitrya'vatu ❘  
+avitrya'vatvava tvavitrya'vi trya'vatu ❘  
+avatvitya'vatu ‖
+
+### PlainEnglish
+
+#### gaNapati praarthana ghanaapaaThaM
+
+oM gaNaanaa''m tvaa gaNapa'tigM havaamahe kaviM ka'veenaam upamashra'vastavam ❘  
+jyeshhTharaajaM brahma'NaaM brahmaNaspata aa na'H shRRiNvannootibhi'sseeda saada'nam ‖
+
+praNo' devee sara'svatee ❘  
+vaaje'bhir vaajineevatee ❘  
+dheenaama'vitrya'vatu ‖
+
+gaNeshaaya' namaH ❘  
+sarasvatyai namaH ❘  
+shree gurubhyo namaH ❘  
+hariH oM ‖
+
+ghanaapaaThaH  
+gaNaanaa''m tvaa gaNaanaa''m gaNaanaa''m tvaa gaNapa'tiM gaNapa'tiM tvaa gaNaanaa''M gaNaanaa''M tvaa gaNapa'tim ‖
+
+tvaa gaNapa'tiM tvaatvaa gaNapa'tigM havaamahe havaamahe gaNapa'tiM tvaatvaa gaNapa'tigM havaamahe ❘  
+gaNapa'tigM havaamahe havaamahe gaNapa'tiM gaNapa'tigM havaamahe kavinkavigM ha'vaamahe gaNapa'tiM gaNapa'tigM havaamahe kavim ❘  
+gaNapa'timiti'gaNa-patim ‖
+
+havaamahe kaviM kavigM ha'vaamahe havaamahe kaviM ka'veenaanka'veenaaM kavigM ha'vaamahe havaamahe kavinka'veenaam ‖
+
+kavinka'veenaankaveenaaM kavinkaviM ka'veenaamu'pamashra'vastama mupamashra'vastama nkaveenaaM kavinkaviM ka'veenaamu'pamashra'vastamam ‖
+
+kaveenaamu'pamashra'va stamamupamashra'vastamaM kaveenaa nka'veenaa mu'pamashra'vastamam ❘  
+upamashra'vastama mityu'pamashra'vaH-tamam ‖
+
+jyeshhTaraajaM brahma'NaaM brahma'NaaM jyeshhTharaajaM' jyeshhTharaajaM' jyeshhTharaajaM brahma'NaaM brahmaNo brahmaNo brahma'NaaM jyeshhTharaajaM' jyeshhTharaajaM' jyeshhTharaajaM brahma'NaaM brahmaNaH ❘  
+jyeshhTharaajamiti'jyeshhTha raajam'' ‖
+
+brahma'NaaM brahmaNo brahmaNo brahma'NaaM brahma'NaaM brahmaNaspate patebrahmaNo brahma'NaaM brahma'NaaM brahmaNaspate ‖
+
+brahmaNaspate pate brahmaNo brahmaNaspata aapa'te brahmaNo brahmaNaspata aa ❘  
+pata aa pa'tepata aano'na aapa'te pata aana'H ‖
+
+aano'na aana'shshRRiNvan ChRRiNvanna aana'shshRRiNvan ❘  
+na shshRRiNvan ChRRiNvanno'na shshRRiNvannootibhi' rootibhishshRRiNvanno'na shshRRiNvannootibhi'H ‖
+
+shshRRiNvannootibhi' rootibhishshRRiNvan ChRRiNvannootibhi'sseeda seedotibhi'shshRRiNvan ChRRiNvannootibhi'sseeda ‖
+
+ootibhi'sseeda seedotibhi' rootibhi'sseeda saada'nagM saada'nagM seedotibhi'rootibhi'sseeda saada'nam ❘  
+ootibhi rityooti-bhiH ‖
+
+seedasaada'nagM saada'nagM seeda seeda saada'nam ❘  
+saada'namiti saada'nam ‖
+
+praNo' naH prapraNo' devee devee naH prapraNo' devee ❘  
+no' devee devee no'no devee sara'svatee sara'svatee devee no' no devee sara'svatee ‖
+
+devee sara'svatee sara'svatee devee devee sara'svatee vaajebhirvaaje'bhi ssara'svatee devee devee sara'svatee devee sarasvatee vaaje'bhiH ‖
+
+sara'svatee vaaje'bhi rvaaje'bhi ssara'svatee sara'svatee vaaje'bhi rvaajinee'vatee vaahinee'vatee vaaje'bhi ssara'svatee sara'svatee vaaje'bhi rvaajinee'vatee ‖
+
+vaaje'bhirvaajinee'vatee vaajinee'vatee vaaje'bhirvaaje'bhirvaajinee'vatee ❘  
+vaajinee'vateeti' vaajinee'vatee vaaje'bhirvaaje'bhirvaajinee'vatee ❘  
+vaajinee'vateeti' vaajinee'-vatee ‖
+
+dheenaa ma'vitrya'vitree dheenaaM dheenaama'vitrya' vatva vatvavitree dheenaaM dheenaama'vitrya'vatu ❘  
+avitrya'vatvava tvavitrya'vi trya'vatu ❘  
+avatvitya'vatu ‖
+

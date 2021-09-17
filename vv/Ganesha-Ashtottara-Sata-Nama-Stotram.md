@@ -744,3 +744,145 @@ sarvaankaamaanavaapnoti sarvavighnaiH pramucyate ‖
 సర్వాన్కామానవాప్నోతి సర్వవిఘ్నైః ప్రముచ్యతే ‖  
 
 
+### English
+
+#### gaṇeśa aśhṭottara śata nāma stotram
+
+vināyako vighnarājo gaurīputro gaṇeśvaraḥ ❘  
+skandāgrajovyayaḥ pūto dakśhoadhyakśho dvijapriyaḥ 
+‖ 1 ‖
+
+agnigarvacChidindraśrīprado vāṇīpradoavyayaḥ  
+sarvasiddhipradaśśarvatanayaḥ śarvarīpriyaḥ 
+‖ 2 ‖
+
+sarvātmakaḥ sṛśhṭikartā devonekārcitaśśivaḥ ❘  
+śuddho buddhipriyaśśānto brahmacārī gajānanaḥ 
+‖ 3 ‖
+
+dvaimātreyo munistutyo bhaktavighnavināśanaḥ ❘  
+ekadantaścaturbāhuścaturaśśaktisaṃyutaḥ 
+‖ 4 ‖
+
+lambodaraśśūrpakarṇo hararbrahma viduttamaḥ ❘  
+kālo grahapatiḥ kāmī somasūryāgnilocanaḥ 
+‖ 5 ‖
+
+pāśāṅkuśadharaścaṇḍo guṇātīto nirañjanaḥ ❘  
+akalmaśhassvayaṃsiddhassiddhārcitapadāmbujaḥ 
+‖ 6 ‖
+
+bījapūraphalāsakto varadaśśāśvataḥ kṛtī ❘  
+dvijapriyo vītabhayo gadī cakrīkśhucāpadhṛt 
+‖ 7 ‖
+
+śrīdoja utpalakaraḥ śrīpatiḥ stutiharśhitaḥ ❘  
+kulādribhettā jaṭilaḥ kalikalmaśhanāśanaḥ 
+‖ 8 ‖
+
+candracūḍāmaṇiḥ kāntaḥ pāpahārī samāhitaḥ ❘  
+aśritaśrīkarassaumyo bhaktavāñChitadāyakaḥ 
+‖ 9 ‖
+
+śāntaḥ kaivalyasukhadassaccidānandavigrahaḥ ❘  
+GYānī dayāyuto dānto brahmadveśhavivarjitaḥ 
+‖ 10 ‖
+
+pramattadaityabhayadaḥ śrīkaṇṭho vibudheśvaraḥ ❘  
+ramārcitovidhirnāgarājayaGYopavītavān 
+‖ 11 ‖
+
+sthūlakaṇṭhaḥ svayaṅkartā sāmaghośhapriyaḥ paraḥ ❘  
+sthūlatuṇḍoagraṇīrdhīro vāgīśassiddhidāyakaḥ 
+‖ 12 ‖
+
+dūrvābilvapriyoavyaktamūrtiradbhutamūrtimān ❘  
+śailendratanujotsaṅgakhelanotsukamānasaḥ 
+‖ 13 ‖
+
+svalāvaṇyasudhāsāro jitamanmathavigrahaḥ ❘  
+samastajagadādhāro māyī mūśhakavāhanaḥ 
+‖ 14 ‖
+
+hṛśhṭastuśhṭaḥ prasannātmā sarvasiddhipradāyakaḥ ❘  
+aśhṭottaraśatenaivaṃ nāmnāṃ vighneśvaraṃ vibhuṃ 
+‖ 15 ‖
+
+tuśhṭāva śaṅkaraḥ putraṃ tripuraṃ hantumutyataḥ ❘  
+yaḥ pūjayedanenaiva bhaktyā siddhivināyakam 
+‖ 16 ‖
+
+dūrvādaḻairbilvapatraiḥ puśhpairvā candanākśhataiḥ ❘  
+sarvānkāmānavāpnoti sarvavighnaiḥ pramucyate ‖
+
+### PlainEnglish
+
+#### gaNesha ashhTottara shata naama stotram
+
+vinaayako vighnaraajo gaureeputro gaNeshvaraH ❘  
+skaMdaagrajovyayaH pooto dakshho.adhyakshho dvijapriyaH 
+‖ 1 ‖
+
+agnigarvacChidiMdrashreeprado vaaNeeprado.avyayaH  
+sarvasiddhipradashsharvatanayaH sharvareepriyaH 
+‖ 2 ‖
+
+sarvaatmakaH sRRishhTikartaa devonekaarcitashshivaH ❘  
+shuddho buddhipriyashshaaMto brahmacaaree gajaananaH 
+‖ 3 ‖
+
+dvaimaatreyo munistutyo bhaktavighnavinaashanaH ❘  
+ekadaMtashcaturbaahushcaturashshaktisaMyutaH 
+‖ 4 ‖
+
+laMbodarashshoorpakarNo hararbrahma viduttamaH ❘  
+kaalo grahapatiH kaamee somasooryaagnilocanaH 
+‖ 5 ‖
+
+paashaaMkushadharashcaMDo guNaateeto niraMjanaH ❘  
+akalmashhassvayaMsiddhassiddhaarcitapadaaMbujaH 
+‖ 6 ‖
+
+beejapooraphalaasakto varadashshaashvataH kRRitee ❘  
+dvijapriyo veetabhayo gadee cakreekshhucaapadhRRit 
+‖ 7 ‖
+
+shreedoja utpalakaraH shreepatiH stutiharshhitaH ❘  
+kulaadribhettaa jaTilaH kalikalmashhanaashanaH 
+‖ 8 ‖
+
+caMdracooDaamaNiH kaaMtaH paapahaaree samaahitaH ❘  
+ashritashreekarassaumyo bhaktavaaMChitadaayakaH 
+‖ 9 ‖
+
+shaaMtaH kaivalyasukhadassaccidaanaMdavigrahaH ❘  
+gnyaanee dayaayuto daaMto brahmadveshhavivarjitaH 
+‖ 10 ‖
+
+pramattadaityabhayadaH shreekaMTho vibudheshvaraH ❘  
+ramaarcitovidhirnaagaraajayagnyopaveetavaan 
+‖ 11 ‖
+
+sthoolakaMThaH svayaMkartaa saamaghoshhapriyaH paraH ❘  
+sthoolatuMDo.agraNeerdheero vaageeshassiddhidaayakaH 
+‖ 12 ‖
+
+doorvaabilvapriyo.avyaktamoortiradbhutamoortimaan ❘  
+shaileMdratanujotsaMgakhelanotsukamaanasaH 
+‖ 13 ‖
+
+svalaavaNyasudhaasaaro jitamanmathavigrahaH ❘  
+samastajagadaadhaaro maayee mooshhakavaahanaH 
+‖ 14 ‖
+
+hRRishhTastushhTaH prasannaatmaa sarvasiddhipradaayakaH ❘  
+ashhTottarashatenaivaM naamnaaM vighneshvaraM vibhuM 
+‖ 15 ‖
+
+tushhTaava shaMkaraH putraM tripuraM haMtumutyataH ❘  
+yaH poojayedanenaiva bhaktyaa siddhivinaayakam 
+‖ 16 ‖
+
+doorvaadaLairbilvapatraiH pushhpairvaa caMdanaakshhataiH ❘  
+sarvaankaamaanavaapnoti sarvavighnaiH pramucyate ‖
+

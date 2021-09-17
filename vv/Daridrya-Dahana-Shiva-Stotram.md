@@ -679,3 +679,123 @@ trisaMdhyaM yaH paThennityaM na hi svarga mavaapnuyaat ‖ 9 ‖
 ‖ ఇతి శ్రీ వసిష్ఠ విరచితం దారిద్ర్యదహన శివస్తోత్రమ్ సంపూర్ణమ్ ‖  
 
 
+### English
+
+#### dāridrya dahana śiva stotram
+
+viśveśvarāya narakārṇava tāraṇāya  
+karṇāmṛtāya śaśiśekhara dhāraṇāya ❘  
+karpūrakānti dhavaḻāya jaṭādharāya  
+dāridryaduḥkha dahanāya namaśśivāya 
+‖ 1 ‖
+
+gaurīpriyāya rajanīśa kaḻādharāya  
+kālāntakāya bhujagādhipa kaṅkaṇāya ❘  
+gaṅgādharāya gajarāja vimardhanāya  
+dāridryaduḥkha dahanāya namaśśivāya 
+‖ 2 ‖
+
+bhaktapriyāya bhavaroga bhayāpahāya  
+ugrāya duḥkha bhavasāgara tāraṇāya ❘  
+jyotirmayāya guṇanāma sunṛtyakāya  
+dāridryaduḥkha dahanāya namaśśivāya 
+‖ 3 ‖
+
+carmāmbarāya śavabhasma vilepanāya  
+phālekśhaṇāya maṇikuṇḍala maṇḍitāya ❘  
+mañjīrapādayugaḻāya jaṭādharāya  
+dāridryaduḥkha dahanāya namaśśivāya 
+‖ 4 ‖
+
+pañcānanāya phaṇirāja vibhūśhaṇāya  
+hemāṅkuśāya bhuvanatraya maṇḍitāya  
+ānanda bhūmi varadāya tamopayāya ❘  
+dāridryaduḥkha dahanāya namaśśivāya 
+‖ 5 ‖
+
+bhānupriyāya bhavasāgara tāraṇāya  
+kālāntakāya kamalāsana pūjitāya ❘  
+netratrayāya śubhalakśhaṇa lakśhitāya  
+dāridryaduḥkha dahanāya namaśśivāya 
+‖ 6 ‖
+
+rāmapriyāya raghunātha varapradāya  
+nāgapriyāya narakārṇava tāraṇāya ❘  
+puṇyāya puṇyabharitāya surārcitāya  
+dāridryaduḥkha dahanāya namaśśivāya 
+‖ 7 ‖
+
+mukteśvarāya phaladāya gaṇeśvarāya  
+gītāpriyāya vṛśhabheśvara vāhanāya ❘  
+mātaṅgacarma vasanāya maheśvarāya  
+dāridryaduḥkha dahanāya namaśśivāya 
+‖ 8 ‖
+
+vasiśhṭhena kṛtaṃ stotraṃ sarvaroga nivāraṇam ❘  
+sarvasampatkaraṃ śīghraṃ putrapautrādi vardhanam ❘  
+trisandhyaṃ yaḥ paṭhennityaṃ na hi svarga mavāpnuyāt 
+‖ 9 ‖
+
+
+‖ iti śrī vasiśhṭha viracitaṃ dāridryadahana śivastotram sampūrṇam ‖
+
+### PlainEnglish
+
+#### daaridrya dahana shiva stotram
+
+vishveshvaraaya narakaarNava taaraNaaya  
+karNaamRRitaaya shashishekhara dhaaraNaaya ❘  
+karpoorakaanti dhavaLaaya jaTaadharaaya  
+daaridryaduHkha dahanaaya namashshivaaya 
+‖ 1 ‖
+
+gaureepriyaaya rajaneesha kaLaadharaaya  
+kaalaantakaaya bhujagaadhipa kaMkaNaaya ❘  
+gaMgaadharaaya gajaraaja vimardhanaaya  
+daaridryaduHkha dahanaaya namashshivaaya 
+‖ 2 ‖
+
+bhaktapriyaaya bhavaroga bhayaapahaaya  
+ugraaya duHkha bhavasaagara taaraNaaya ❘  
+jyotirmayaaya guNanaama sunRRityakaaya  
+daaridryaduHkha dahanaaya namashshivaaya 
+‖ 3 ‖
+
+carmaaMbaraaya shavabhasma vilepanaaya  
+phaalekshhaNaaya maNikuMDala maMDitaaya ❘  
+maMjeerapaadayugaLaaya jaTaadharaaya  
+daaridryaduHkha dahanaaya namashshivaaya 
+‖ 4 ‖
+
+paMcaananaaya phaNiraaja vibhooshhaNaaya  
+hemaaMkushaaya bhuvanatraya maMDitaaya  
+aanaMda bhoomi varadaaya tamopayaaya ❘  
+daaridryaduHkha dahanaaya namashshivaaya 
+‖ 5 ‖
+
+bhaanupriyaaya bhavasaagara taaraNaaya  
+kaalaantakaaya kamalaasana poojitaaya ❘  
+netratrayaaya shubhalakshhaNa lakshhitaaya  
+daaridryaduHkha dahanaaya namashshivaaya 
+‖ 6 ‖
+
+raamapriyaaya raghunaatha varapradaaya  
+naagapriyaaya narakaarNava taaraNaaya ❘  
+puNyaaya puNyabharitaaya suraarcitaaya  
+daaridryaduHkha dahanaaya namashshivaaya 
+‖ 7 ‖
+
+mukteshvaraaya phaladaaya gaNeshvaraaya  
+geetaapriyaaya vRRishhabheshvara vaahanaaya ❘  
+maataMgacarma vasanaaya maheshvaraaya  
+daaridryaduHkha dahanaaya namashshivaaya 
+‖ 8 ‖
+
+vasishhThena kRRitaM stotraM sarvaroga nivaaraNam ❘  
+sarvasaMpatkaraM sheeghraM putrapautraadi vardhanam ❘  
+trisaMdhyaM yaH paThennityaM na hi svarga mavaapnuyaat 
+‖ 9 ‖
+
+
+‖ iti shree vasishhTha viracitaM daaridryadahana shivastotram saMpoorNam ‖
+

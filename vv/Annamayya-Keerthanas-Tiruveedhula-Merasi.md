@@ -289,3 +289,49 @@ vanitala naDumanu vaahanaalameedanu ‖
 యెనసి శ్రీ వేంకటేశు డింతి యలమేల్^మంగతో  
 వనితల నడుమను వాహనాలమీదను ‖  
 
+### English
+
+#### annamayya kīrtana tiruvīdhula meRasī
+
+tiruvīthula meRasī devadevuḍu  
+garimala miñchina siṅgāramulatoḍanu ‖
+
+tirudaṇḍelapai negī devuḍide tolunāḍu  
+sirula reṇḍavanāḍu śeśhunimīda ❘  
+muripena mūḍonāḍu mutyāla pandiri krinda  
+porinālugonāḍu puvu govilalonu ‖
+
+grakkuna naidavanāḍu garuḍunimīda  
+yekkanu āravanāḍu yenugumīda ‖
+
+chokkamai yeḍavanāḍu sūryaprabhalonanu  
+yikkuva derunu gurramenimidonāḍu ‖
+
+kanakapuṭandalamu kadipi tommidonāḍu  
+penachi padonāḍu peṇḍlipīṭa ❘  
+yenasi śrī veṅkaṭeśu ḍinti yalamel^maṅgato  
+vanitala naḍumanu vāhanālamīdanu ‖
+
+### PlainEnglish
+
+#### annamayya keertana tiruveedhula m.eRasee
+
+tiruveethula m.eRasee devadevuDu  
+garimala miMchina siMgaaramulatoDanu ‖
+
+tirudaMDelapai negee devuDid.e t.olunaaDu  
+sirula r.eMDavanaaDu sheshhunimeeda ❘  
+muripena mooDonaaDu mutyaala paMdiri kriMda  
+p.orinaalugonaaDu puvu govilalonu ‖
+
+grakkuna naidavanaaDu garuDunimeeda  
+y.ekkanu aaravanaaDu yenugumeeda ‖
+
+ch.okkamai yeDavanaaDu sooryaprabhalonanu  
+yikkuva derunu gurram.enimidonaaDu ‖
+
+kanakapuTaMdalamu kadipi t.ommidonaaDu  
+p.enachi padonaaDu p.eMDlipeeTa ❘  
+y.enasi shree veMkaTeshu DiMti yalamel^maMgato  
+vanitala naDumanu vaahanaalameedanu ‖
+

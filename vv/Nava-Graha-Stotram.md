@@ -744,3 +744,113 @@ iti vyaasa virachitaM navagraha stotraM saMpoorNam ❘
 ఇతి వ్యాస విరచితం నవగ్రహ స్తోత్రం సంపూర్ణమ్ ❘  
 
 
+### English
+
+#### navagraha stotram
+
+navagraha dhyāna ślokam  
+ādityāya ca somāya maṅgaldāya budhāya ca ❘  
+guru śukra śanibhyaśca rāhave ketave namaḥ ‖
+
+raviḥ  
+japākusuma saṅkāśaṃ kāśyapeyaṃ mahādyutim ❘  
+tamoariṃ sarva pāpaghnaṃ praṇatosmi divākaram ‖
+
+candraḥ  
+dathiśaṅkha tuśhārābhaṃ kśhīrārṇava samudbhavam (kśhīrodārṇava sambhavam) ❘  
+namāmi śaśinaṃ somaṃ śambho-rmakuṭa bhūśhaṇam ‖
+
+kujaḥ  
+dharaṇī garbha sambhūtaṃ vidyutkānti samaprabham ❘  
+kumāraṃ śaktihastaṃ taṃ maṅgaldaṃ praṇamāmyaham ‖
+
+budhaḥ  
+priyaṅgu kalikāśyāmaṃ rūpeṇā pratimaṃ budham ❘  
+saumyaṃ saumya (satva) guṇopetaṃ taṃ budhaṃ praṇamāmyaham ‖
+
+guruḥ  
+devānāṃ ca ṛśhīṇāṃ ca guruṃ kāñcanasannibham ❘  
+buddhimantaṃ trilokeśaṃ taṃ namāmi bṛhaspatim ‖
+
+śukraḥ  
+himakunda mṛṇāldābhaṃ daityānaṃ paramaṃ gurum ❘  
+sarvaśāstra pravaktāraṃ bhārgavaṃ praṇamāmyaham ‖
+
+śaniḥ  
+nīlāñjana samābhāsaṃ raviputraṃ yamāgrajam ❘  
+Chāyā mārtāṇḍa sambhūtaṃ taṃ namāmi śanaiścaram ‖
+
+rāhuḥ  
+ardhakāyaṃ mahāvīraṃ candrāditya vimardhanam ❘  
+siṃhikā garbha sambhūtaṃ taṃ rāhuṃ praṇamāmyaham ‖
+
+ketuḥ  
+phalāśa puśhpa saṅkāśaṃ tārakāgrahamastakam ❘  
+raudraṃ raudrātmakaṃ ghoraṃ taṃ ketuṃ praṇamāmyaham ‖
+
+phalaśrutiḥ  
+iti vyāsa mukhodgītaṃ yaḥ paṭhetsu samāhitaḥ ❘  
+divā vā yadi vā rātrau vighnaśānti-rbhaviśhyati ‖
+
+naranārī-nṛpāṇāṃ ca bhave-dduḥsvapna-nāśanam ❘  
+aiśvaryamatulaṃ teśhāmārogyaṃ puśhṭi vardhanam ‖
+
+grahanakśhatrajāḥ pīḍāstaskarāgni samudbhavāḥ ❘  
+tāssarvāḥ praśamaṃ yānti vyāso brūte na saṃśayaḥ ‖
+
+iti vyāsa virachitaṃ navagraha stotraṃ sampūrṇam ❘  
+### PlainEnglish
+
+#### navagraha stotram
+
+navagraha dhyaana shlokam  
+aadityaaya ca somaaya maMgaldaaya budhaaya ca ❘  
+guru shukra shanibhyashca raahave ketave namaH ‖
+
+raviH  
+japaakusuma saMkaashaM kaashyapeyaM mahaadyutim ❘  
+tamo.ariM sarva paapaghnaM praNatosmi divaakaram ‖
+
+caMdraH  
+dathishaMkha tushhaaraabhaM kshheeraarNava samudbhavam (kshheerodaarNava saMbhavam) ❘  
+namaami shashinaM somaM shaMbho-rmakuTa bhooshhaNam ‖
+
+kujaH  
+dharaNee garbha saMbhootaM vidyutkaaMti samaprabham ❘  
+kumaaraM shaktihastaM taM maMgaldaM praNamaamyaham ‖
+
+budhaH  
+priyaMgu kalikaashyaamaM roopeNaa pratimaM budham ❘  
+saumyaM saumya (satva) guNopetaM taM budhaM praNamaamyaham ‖
+
+guruH  
+devaanaaM ca RRishheeNaaM ca guruM kaaMcanasannibham ❘  
+buddhimaMtaM trilokeshaM taM namaami bRRihaspatim ‖
+
+shukraH  
+himakuMda mRRiNaaldaabhaM daityaanaM paramaM gurum ❘  
+sarvashaastra pravaktaaraM bhaargavaM praNamaamyaham ‖
+
+shaniH  
+neelaaMjana samaabhaasaM raviputraM yamaagrajam ❘  
+Chaayaa maartaaMDa saMbhootaM taM namaami shanaishcaram ‖
+
+raahuH  
+ardhakaayaM mahaaveeraM caMdraaditya vimardhanam ❘  
+siMhikaa garbha saMbhootaM taM raahuM praNamaamyaham ‖
+
+ketuH  
+phalaasha pushhpa saMkaashaM taarakaagrahamastakam ❘  
+raudraM raudraatmakaM ghoraM taM ketuM praNamaamyaham ‖
+
+phalashrutiH  
+iti vyaasa mukhodgeetaM yaH paThetsu samaahitaH ❘  
+divaa vaa yadi vaa raatrau vighnashaaMti-rbhavishhyati ‖
+
+naranaaree-nRRipaaNaaM ca bhave-dduHsvapna-naashanam ❘  
+aishvaryamatulaM teshhaamaarogyaM pushhTi vardhanam ‖
+
+grahanakshhatrajaaH peeDaastaskaraagni samudbhavaaH ❘  
+taassarvaaH prashamaM yaaMti vyaaso broote na saMshayaH ‖
+
+iti vyaasa virachitaM navagraha stotraM saMpoorNam ❘  

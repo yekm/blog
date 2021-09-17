@@ -757,3 +757,91 @@ duDuku gala nanne d.ora
 దుడుకు గల నన్నే దొర కొడుకు బ్రోచురా ఎంతో  
 దుడుకు గల నన్నే దొర  
 
+### English
+
+#### tyāgarāja pañcharatna kīrtana duḍuku gala
+
+kūrpu: śrī tyāgarājācāryulu  
+rāgaṃ: gauḻa  
+tāḻaṃ: ādi  
+duḍuku gala nanne dora  
+koḍuku brocurā ento  
+duḍuku gala nanne dora  
+kaḍu durviśhayākṛśṭuḍai gaḍiya gaḍiyaku niṇḍāru  
+duḍuku gala nanne dora  
+śrī vanitā hṛtkumudābja vāṅgmānasāgocara  
+duḍuku gala nanne dora  
+sakala bhūtamula yandu nīvai yuṇḍaga madileka poyina  
+duḍuku gala nanne dora  
+ciruta prāyamuna nāḍe bhajanāmṛta rasavihīna kutarkuḍaina  
+duḍuku gala nanne dora  
+para dhanamula koraku norula madini  
+karagabaliki kaḍupu nimpa diriginaṭṭi  
+duḍuku gala nanne dora  
+tanamadini bhuvini saukhyapu jīvaname  
+yanucu sadā dinamulu gaḍipeḍi  
+duḍuku gala nanne dora  
+teliyani naṭaviṭa kśhudrulu vanitalu svavaśamauṭa kupadaśiñci  
+santasilli svaralayambu leruṅgakanu śilātmuḍai  
+subhaktulaku samānamanu  
+duḍuku gala nanne dora  
+dṛśhṭiki sārambagu lalanā sadanārbhaka senāmita dhanādulanu  
+devādi deva neranammitini gākanu padābja bhajanambu maracina  
+duḍuku gala nanne dora  
+cakkani mukha kamalambunanu sadā nā madilo smaraṇa lekane  
+durmadāndha janula kori paritāpamulace dagili nogili durviśhaya  
+durāśalanu royaleka satata maparādhinai capala cittuḍaina  
+duḍuku gala nanne dora  
+mānavatanu durlabha manucu neñci paramānanda mondaleka  
+mada matsara kāma lobha mohamulaku dāsuḍai mosaboti gāka  
+modaṭi kulajuḍagucu bhuvini śūdrula panulu salpucunuṇṭini gāka  
+nārādhamulanu roya sārahīna matamulanu sādhimpa tārumāru  
+duḍuku gala nanne dora  
+satulakai konnāllāsthikai sutulakai konnāllu  
+dhana tatulakai tirigiti nayya tyāgarājāpta iṭuvaṇṭi  
+duḍuku gala nanne dora koḍuku brocurā ento  
+duḍuku gala nanne dora   
+### PlainEnglish
+
+#### tyaagaraaja pancharatna keertana duDuku gala
+
+koorpu: shree tyaagaraajaacaaryulu  
+raagaM: gauLa  
+taaLaM: aadi  
+duDuku gala nanne d.ora  
+k.oDuku brocuraa .eMto  
+duDuku gala nanne d.ora  
+kaDu durvishhayaakRRishTuDai gaDiya gaDiyaku niMDaaru  
+duDuku gala nanne d.ora  
+shree vanitaa hRRitkumudaabja vaaMgmaanasaagocara  
+duDuku gala nanne d.ora  
+sakala bhootamula yaMdu neevai yuMDaga madileka poyina  
+duDuku gala nanne d.ora  
+ciruta praayamuna naaDe bhajanaamRRita rasaviheena kutarkuDaina  
+duDuku gala nanne d.ora  
+para dhanamula k.oraku n.orula madini  
+karagabaliki kaDupu niMpa diriginaTTi  
+duDuku gala nanne d.ora  
+tanamadini bhuvini saukhyapu jeevaname  
+yanucu sadaa dinamulu gaDip.eDi  
+duDuku gala nanne d.ora  
+t.eliyani naTaviTa kshhudrulu vanitalu svavashamauTa kupadashiMci  
+saMtasilli svaralayaMbu l.eruMgakanu shilaatmuDai  
+subhaktulaku samaanamanu  
+duDuku gala nanne d.ora  
+dRRishhTiki saaraMbagu lalanaa sadanaarbhaka senaamita dhanaadulanu  
+devaadi deva n.eranammitini gaakanu padaabja bhajanaMbu maracina  
+duDuku gala nanne d.ora  
+cakkani mukha kamalaMbunanu sadaa naa madilo smaraNa lekane  
+durmadaaMdha janula kori paritaapamulace dagili n.ogili durvishhaya  
+duraashalanu royaleka satata maparaadhinai capala cittuDaina  
+duDuku gala nanne d.ora  
+maanavatanu durlabha manucu n.eMci paramaanaMda m.oMdaleka  
+mada matsara kaama lobha mohamulaku daasuDai mosaboti gaaka  
+m.odaTi kulajuDagucu bhuvini shoodrula panulu salpucunuMTini gaaka  
+naaraadhamulanu roya saaraheena matamulanu saadhiMpa taarumaaru  
+duDuku gala nanne d.ora  
+satulakai k.onnaallaasthikai sutulakai k.onnaallu  
+dhana tatulakai tirigiti nayya tyaagaraajaapta iTuvaMTi  
+duDuku gala nanne d.ora k.oDuku brocuraa .eMto  
+duDuku gala nanne d.ora   

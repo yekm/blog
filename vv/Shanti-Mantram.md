@@ -692,3 +692,169 @@ oM shaaM _ti_ H shaaM _ti_ H shaaMti'H ‖
 ఓం శాం _తిః_ శాం _తిః_ శాంతిః' ‖  
 
 
+### English
+
+#### śānti mantram
+
+āpo hiśhṭhā ma'yobhuvaḥ ❘  
+tā na' ūrje da'dhātana ❘  
+maheraṇā'ya chakśha'se ❘  
+yo va'ḥ śivata'mo rasastasya' bhājayate ha naḥ ❘  
+uśhatīri'va mātara'ḥ ❘  
+tasmā ara'ṅgamāmavo yasya kśhayā'ya ji'nvatha ❘  
+āpo' janaya'thā cha naḥ ❘  
+pṛthivī śāntā sāgninā' śāntā sāme' śāntā śuchag'ṃ śamayatu ❘  
+antari'kśhagṃ śāntaṃ tadvāyunā' śāntaṃ tanme' śāntagṃ śuchag'ṃ śamayatu ❘  
+dyauśśāntā sādityena' śāntā sā me' śāntā śuchag'ṃ śamayatu ❘  
+pṛthivī śānti'rantari'kśhagṃ śāntir-dyau-śśāntir-diśa-śśānti'-ravāntaradiśā-śśānti' ragni-śśānti'r-vāyu-śśānti'-rāditya-śśānti'-śchandramā-śśāntir-nakśha'trāṇi-śśānti rāpaśśānti-rośha'dhaya-śśāntir-vanaspata'ya-śśāntir-gau'-śśānti'-rajā-śānti-raśva-śśāntiḥ puru'śha-śśānti-brahma-śānti'r-brāhmaṇa-śśānti-śānti'-reva śānti-śānti'-rme astu śānti'ḥ ❘  
+tayāhagṃ śāntyā sa'rvaśāntyā mahya'ṃ dvipade chatu'śhpade cha śānti'ṃ karomi śānti'rme astu śānti'ḥ ‖
+
+eha śrīścha hrīścha dhṛti'ścha tapo' medhā pra'tiśhṭhā śraddhā satyaṃ dharma'śchaitāni motti'śhṭhanta-manūtti'śhṭhantu mā māg śrīścha hrīścha dhṛti'ścha tapo' medhā pra'tiśhṭhā śraddhā satyaṃ dharma'śchaitāni' mā mā hā'siśhuḥ ❘  
+udāyu'śhā svāyuśhodo'śhadīnāgṃ rasenotparjanya'sya śuśhmeṇodasthāmamṛtāgṃ anu' ❘  
+tacchakśhu'r-devahi'taṃ purastā''cchukramucchara't ❘  
+paśye'ma śarada'śśataṃ jīve'ma śarada'śśataṃ nandā'ma śarada'śśataṃ modā'ma śarada'śśataṃ bhavā'ma śarada'śśatagṃ śṛṇavā'ma śarada'śśataṃ pabra'vāma śarada'śśatamajī'tāsyāma śarada'śśataṃ jokcha sūrya'ṃ dṛśhe ❘  
+ya uda'gānmahatoarṇavā''d-vibhrāja'mānassarirasya madhyāthsamā' vṛśhabho lo'hitākśhasūryo' vipaśchinmana'sā punātu ‖
+
+brahma'ṇaśchotanyasi brahma'ṇa āṇīstho brāhma'ṇa āvapa'namasi dhāriteyaṃ pṛ'thivī brahma'ṇā mahī dā'ritame'nena mahadantari'kśhaṃ diva'ṃ dādhāra pṛthivīgṃ sadevāṃ yadahaṃ veda tadahaṃ dhā'rayāṇi māmadvedoathi visra'sat ❘  
+medhāmanīśhe māviśatāgṃ samīchī' bhūtasya bhavyasyāva'rudhyai sarvamāyu'rayāṇi sarvamāyu'rayāṇi ❘  
+ābhir-gīrbhi ryadato'na ūnamāpyā'yaya harivo vardha'mānaḥ ❘  
+yadā stotṛbhyo mahi' gotrā rujāsi' bhūyiśhṭhabhājo adha' te syāma ❘  
+brahma prāvā'diśhma tanno mā hā'sīt ‖
+
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+oṃ saṃ tvā' siñchāmi yaju'śhā prajāmāyurdhana'ṃ cha ‖
+
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+oṃ śaṃ no' mitraḥ śaṃ varu'ṇaḥ ❘  
+śaṃ no' bhavatvaryamā ❘  
+śaṃ na indro bṛhaspati'ḥ ❘  
+śaṃ no viśhṇu'rurukramaḥ ❘  
+namo brahma'ṇe ❘  
+nama'ste vāyo ❘  
+tvameva pratyakśhaṃ brahmā'si ❘  
+tvāmeva pratyakśhaṃ brahma' vadiśhyāmi ❘  
+ṛtaṃ va'diśhyāmi ❘  
+satyaṃ va'diśhyāmi ❘  
+tanmāma'vatu ❘  
+tadvaktāra'mavatu ❘  
+ava'tu mām ❘  
+ava'tu vaktāram'' ‖
+
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+oṃ tachChaṃ yorāvṛ'ṇīmahe ❘  
+gātuṃ yaGYāya' ❘  
+gātuṃ yaGYapa'taye ❘  
+daivī'' svastira'stu naḥ ❘  
+svastir-mānu'śhebhyaḥ ❘  
+ūrdhvaṃ ji'gātu bheśhajaṃ ❘  
+śaṃ no' astu dvipade'' ❘  
+śaṃ chatuśhpade ❘  
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+oṃ saha nā'vavatu ❘  
+saha nau' bhunaktu ❘  
+saha vīrya'ṃ karavāvahai ❘  
+tejasvināvadhī'tamastu mā vi'dviśhāvahai'' ‖
+
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+oṃ saha nā'vavatu ❘  
+saha nau' bhunaktu ❘  
+saha vīrya'ṃ karavāvahai ❘  
+tejasvināvadhī'tamastu mā vi'dviśhāvahai'' ‖
+
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+oṃ saha nā'vavatu ❘  
+saha nau' bhunaktu ❘  
+saha vīrya'ṃ karavāvahai ❘  
+tejasvināvadhī'tamastu mā vi'dviśhāvahai'' ‖
+
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+### PlainEnglish
+
+#### shaanti maMtram
+
+aapo hishhThaa ma'yobhuvaH ❘  
+taa na' oorje da'dhaatana ❘  
+maheraNaa'ya chakshha'se ❘  
+yo va'H shivata'mo rasastasya' bhaajayate ha naH ❘  
+ushhateeri'va maatara'H ❘  
+tasmaa ara'Mgamaamavo yasya kshhayaa'ya ji'nvatha ❘  
+aapo' janaya'thaa cha naH ❘  
+pRRithivee shaantaa saagninaa' shaantaa saame' shaantaa shuchag'M shamayatu ❘  
+antari'kshhagM shaantaM tadvaayunaa' shaantaM tanme' shaantagM shuchag'M shamayatu ❘  
+dyaushshaantaa saadityena' shaantaa saa me' shaantaa shuchag'M shamayatu ❘  
+pRRithivee shaanti'rantari'kshhagM shaantir-dyau-shshaantir-disha-shshaanti'-ravaantaradishaa-shshaanti' ragni-shshaanti'r-vaayu-shshaanti'-raaditya-shshaanti'-shchandramaa-shshaantir-nakshha'traaNi-shshaanti raapashshaanti-roshha'dhaya-shshaantir-vanaspata'ya-shshaantir-gau'-shshaanti'-rajaa-shaanti-rashva-shshaantiH puru'shha-shshaanti-brahma-shaanti'r-braahmaNa-shshaanti-shaanti'-reva shaanti-shaanti'-rme astu shaanti'H ❘  
+tayaahagM shaantyaa sa'rvashaantyaa mahya'M dvipade chatu'shhpade cha shaanti'M karomi shaanti'rme astu shaanti'H ‖
+
+eha shreeshcha hreeshcha dhRRiti'shcha tapo' medhaa pra'tishhThaa shraddhaa satyaM dharma'shchaitaani motti'shhThanta-manootti'shhThantu maa maag shreeshcha hreeshcha dhRRiti'shcha tapo' medhaa pra'tishhThaa shraddhaa satyaM dharma'shchaitaani' maa maa haa'sishhuH ❘  
+udaayu'shhaa svaayushhodo'shhadeenaagM rasenotparjanya'sya shushhmeNodasthaamamRRitaagM anu' ❘  
+tacchakshhu'r-devahi'taM purastaa''cchukramucchara't ❘  
+pashye'ma sharada'shshataM jeeve'ma sharada'shshataM nandaa'ma sharada'shshataM modaa'ma sharada'shshataM bhavaa'ma sharada'shshatagM shRRiNavaa'ma sharada'shshataM pabra'vaama sharada'shshatamajee'taasyaama sharada'shshataM jokcha soorya'M dRRishhe ❘  
+ya uda'gaanmahato.arNavaa''d-vibhraaja'maanassarirasya madhyaathsamaa' vRRishhabho lo'hitaakshhasooryo' vipashchinmana'saa punaatu ‖
+
+brahma'Nashchotanyasi brahma'Na aaNeestho braahma'Na aavapa'namasi dhaariteyaM pRRi'thivee brahma'Naa mahee daa'ritame'nena mahadantari'kshhaM diva'M daadhaara pRRithiveegM sadevaaM yadahaM veda tadahaM dhaa'rayaaNi maamadvedo.athi visra'sat ❘  
+medhaamaneeshhe maavishataagM sameechee' bhootasya bhavyasyaava'rudhyai sarvamaayu'rayaaNi sarvamaayu'rayaaNi ❘  
+aabhir-geerbhi ryadato'na oonamaapyaa'yaya harivo vardha'maanaH ❘  
+yadaa stotRRibhyo mahi' gotraa rujaasi' bhooyishhThabhaajo adha' te syaama ❘  
+brahma praavaa'dishhma tanno maa haa'seet ‖
+
+oM shaaMtiH shaaMtiH shaaMti'H ‖
+
+oM saM tvaa' siMchaami yaju'shhaa prajaamaayurdhana'M cha ‖
+
+oM shaaMtiH shaaMtiH shaaMti'H ‖
+
+oM shaM no' mitraH shaM varu'NaH ❘  
+shaM no' bhavatvaryamaa ❘  
+shaM na indro bRRihaspati'H ❘  
+shaM no vishhNu'rurukramaH ❘  
+namo brahma'Ne ❘  
+nama'ste vaayo ❘  
+tvameva pratyakshhaM brahmaa'si ❘  
+tvaameva pratyakshhaM brahma' vadishhyaami ❘  
+RRitaM va'dishhyaami ❘  
+satyaM va'dishhyaami ❘  
+tanmaama'vatu ❘  
+tadvaktaara'mavatu ❘  
+ava'tu maam ❘  
+ava'tu vaktaaram'' ‖
+
+oM shaaMtiH shaaMtiH shaaMti'H ‖
+
+oM tachChaM yoraavRRi'Neemahe ❘  
+gaatuM yagnyaaya' ❘  
+gaatuM yagnyapa'taye ❘  
+daivee'' svastira'stu naH ❘  
+svastir-maanu'shhebhyaH ❘  
+oordhvaM ji'gaatu bheshhajaM ❘  
+shaM no' astu dvipade'' ❘  
+shaM chatushhpade ❘  
+oM shaaMtiH shaaMtiH shaaMti'H ‖
+
+oM saha naa'vavatu ❘  
+saha nau' bhunaktu ❘  
+saha veerya'M karavaavahai ❘  
+tejasvinaavadhee'tamastu maa vi'dvishhaavahai'' ‖
+
+oM shaaMtiH shaaMtiH shaaMti'H ‖
+
+oM saha naa'vavatu ❘  
+saha nau' bhunaktu ❘  
+saha veerya'M karavaavahai ❘  
+tejasvinaavadhee'tamastu maa vi'dvishhaavahai'' ‖
+
+oM shaaMtiH shaaMtiH shaaMti'H ‖
+
+oM saha naa'vavatu ❘  
+saha nau' bhunaktu ❘  
+saha veerya'M karavaavahai ❘  
+tejasvinaavadhee'tamastu maa vi'dvishhaavahai'' ‖
+
+oM shaaMtiH shaaMtiH shaaMti'H ‖
+

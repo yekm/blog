@@ -1459,3 +1459,269 @@ oM vallee devasenaa sameta shree subrahmaNya svaamine namaH ‖ 108 ‖
 ఓం అక్షయ ఫలదాయ నమః  
 ఓం వల్లీ దేవసేనా సమేత శ్రీ సుబ్రహ్మణ్య స్వామినే నమః ‖ 108 ‖  
 
+### English
+
+#### subrahmaṇya aśhṭottara śata nāmāvaḻi
+
+oṃ skandāya namaḥ  
+oṃ guhāya namaḥ  
+oṃ śhaṇmukhāya namaḥ  
+oṃ phālanetra  sutāya namaḥ  
+oṃ prabhave namaḥ  
+oṃ piṅgaḻāya namaḥ  
+oṃ kruttikāsūnave namaḥ  
+oṃ sikhivāhāya namaḥ  
+oṃ dviśhanṇe trāya namaḥ 
+‖ 10 ‖
+
+oṃ śaktidharāya namaḥ  
+oṃ phiśitāśa prabhañjanāya namaḥ  
+oṃ tārakāsura saṃhārtre namaḥ  
+oṃ rakśhobalavimarda nāya namaḥ  
+oṃ mattāya namaḥ  
+oṃ pramattāya namaḥ  
+oṃ unmattāya namaḥ  
+oṃ surasainya ssurakśha kāya namaḥ  
+oṃ dīvasenāpataye namaḥ  
+oṃ prāGYāya  namaḥ 
+‖ 20 ‖
+
+oṃ kṛpāḻave namaḥ  
+oṃ bhaktavatsalāya namaḥ  
+oṃ umāsutāya namaḥ  
+oṃ śaktidharāya namaḥ  
+oṃ kumārāya namaḥ  
+oṃ krauñca dāraṇāya namaḥ   
+oṃ senāniye namaḥ  
+oṃ agnijanmane namaḥ  
+oṃ viśākhāya namaḥ  
+oṃ śaṅkarātmajāya namaḥ 
+‖ 30 ‖
+
+oṃ śivasvāmine namaḥ  
+oṃ guṇa svāmine namaḥ  
+oṃ sarvasvāmine namaḥ  
+oṃ sanātanāya namaḥ  
+oṃ ananta śaktiye namaḥ  
+oṃ akśhobhyāya namaḥ  
+oṃ pārvatipriyanandanāya  namaḥ  
+oṃ gaṅgāsutāya namaḥ  
+oṃ sarodbhūtāya namaḥ  
+oṃ ahūtāya namaḥ  
+‖ 40 ‖
+
+oṃ pāvakātmajāya namaḥ  
+oṃ jrumbhāya namaḥ  
+oṃ prajrumbhāya namaḥ  
+oṃ ujjrumbhāya namaḥ  
+oṃ kamalāsana saṃstutāya namaḥ  
+oṃ ekavarṇāya namaḥ  
+oṃ dvivarṇāya namaḥ  
+oṃ trivarṇāya namaḥ  
+oṃ sumanoharāya namaḥ  
+oṃ caturva rṇāya namaḥ 
+‖ 50 ‖
+
+oṃ pañca varṇāya namaḥ  
+oṃ prajāpataye namaḥ  
+oṃ āhārpataye namaḥ  
+oṃ agnigarbhāya namaḥ  
+oṃ śamīgarbhāya namaḥ  
+oṃ viśvaretase namaḥ  
+oṃ surārighne namaḥ  
+oṃ haridvarṇāya namaḥ  
+oṃ śubhakārāya namaḥ  
+oṃ vaṭave namaḥ 
+‖ 60 ‖
+
+oṃ vaṭaveśha bhrute namaḥ  
+oṃ pūśhāya namaḥ  
+oṃ gabhastiye namaḥ  
+oṃ gahanāya namaḥ  
+oṃ candravarṇāya namaḥ  
+oṃ kaḻādharāya namaḥ  
+oṃ māyādharāya namaḥ  
+oṃ mahāmāyine namaḥ  
+oṃ kaivalyāya namaḥ  
+oṃ śaṅkarātmajāya  namaḥ 
+‖ 70 ‖
+
+oṃ visvayoniye  namaḥ  
+oṃ ameyātmā namaḥ  
+oṃ tejonidhaye namaḥ  
+oṃ anāmayāya namaḥ  
+oṃ parameśhṭine namaḥ  
+oṃ parabrahmaya namaḥ  
+oṃ vedagarbhāya namaḥ  
+oṃ  virāṭsutāya namaḥ  
+oṃ puḻindakanyābhartāya  namaḥ  
+oṃ mahāsāra svatāvrutāya namaḥ 
+‖ 80 ‖
+
+oṃ āśrita khiladātre namaḥ  
+oṃ coraghnāya namaḥ  
+oṃ roganāśanāya namaḥ  
+oṃ ananta mūrtaye  namaḥ  
+oṃ ānandāya namaḥ  
+oṃ śikhiṇḍikṛta ketanāya namaḥ  
+oṃ ḍambhāya namaḥ  
+oṃ parama ḍambhāya namaḥ  
+oṃ mahā ḍambhāya namaḥ  
+oṃ krupākapaye namaḥ 
+‖ 90 ‖
+
+oṃ kāraṇopātta dehāya namaḥ  
+oṃ kāraṇātīta vigrahāya namaḥ  
+oṃ anīśvarāya namaḥ  
+oṃ amṛtāya namaḥ  
+oṃ prāṇāya namaḥ  
+oṃ prāṇāyāma pārāyaṇāya namaḥ  
+oṃ viruddahantre namaḥ  
+oṃ vīraghnāya namaḥ  
+oṃ raktāsyāya  namaḥ  
+oṃ śyāma kandharāya namaḥ 
+‖ 100 ‖
+
+oṃ subra hmaṇyāya namaḥ  
+ān guhāya namaḥ  
+oṃ prītāya namaḥ  
+oṃ brāhmaṇyāya namaḥ  
+oṃ brāhmaṇa priyāya namaḥ  
+oṃ vedavedyāya namaḥ  
+oṃ akśhaya phaladāya namaḥ  
+oṃ vallī devasenā sameta śrī subrahmaṇya svāmine namaḥ 
+‖ 108 ‖
+
+### PlainEnglish
+
+#### subrahmaNya ashhTottara shata naamaavaLi
+
+oM skaMdaaya namaH  
+oM guhaaya namaH  
+oM shhaNmukhaaya namaH  
+oM phaalanetra  sutaaya namaH  
+oM prabhave namaH  
+oM piMgaLaaya namaH  
+oM kruttikaasoonave namaH  
+oM sikhivaahaaya namaH  
+oM dvishhanNe traaya namaH 
+‖ 10 ‖
+
+oM shaktidharaaya namaH  
+oM phishitaasha prabhaMjanaaya namaH  
+oM taarakaasura saMhaartre namaH  
+oM rakshhobalavimarda naaya namaH  
+oM mattaaya namaH  
+oM pramattaaya namaH  
+oM unmattaaya namaH  
+oM surasainya ssurakshha kaaya namaH  
+oM deevasenaapataye namaH  
+oM praagnyaaya  namaH 
+‖ 20 ‖
+
+oM kRRipaaLave namaH  
+oM bhaktavatsalaaya namaH  
+oM umaasutaaya namaH  
+oM shaktidharaaya namaH  
+oM kumaaraaya namaH  
+oM krauMca daaraNaaya namaH   
+oM senaaniye namaH  
+oM agnijanmane namaH  
+oM vishaakhaaya namaH  
+oM shaMkaraatmajaaya namaH 
+‖ 30 ‖
+
+oM shivasvaamine namaH  
+oM guNa svaamine namaH  
+oM sarvasvaamine namaH  
+oM sanaatanaaya namaH  
+oM anaMta shaktiye namaH  
+oM akshhobhyaaya namaH  
+oM paarvatipriyanaMdanaaya  namaH  
+oM gaMgaasutaaya namaH  
+oM sarodbhootaaya namaH  
+oM ahootaaya namaH  
+‖ 40 ‖
+
+oM paavakaatmajaaya namaH  
+oM jruMbhaaya namaH  
+oM prajruMbhaaya namaH  
+oM ujjruMbhaaya namaH  
+oM kamalaasana saMstutaaya namaH  
+oM ekavarNaaya namaH  
+oM dvivarNaaya namaH  
+oM trivarNaaya namaH  
+oM sumanoharaaya namaH  
+oM caturva rNaaya namaH 
+‖ 50 ‖
+
+oM paMca varNaaya namaH  
+oM prajaapataye namaH  
+oM aahaarpataye namaH  
+oM agnigarbhaaya namaH  
+oM shameegarbhaaya namaH  
+oM vishvaretase namaH  
+oM suraarighne namaH  
+oM haridvarNaaya namaH  
+oM shubhakaaraaya namaH  
+oM vaTave namaH 
+‖ 60 ‖
+
+oM vaTaveshha bhrute namaH  
+oM pooshhaaya namaH  
+oM gabhastiye namaH  
+oM gahanaaya namaH  
+oM caMdravarNaaya namaH  
+oM kaLaadharaaya namaH  
+oM maayaadharaaya namaH  
+oM mahaamaayine namaH  
+oM kaivalyaaya namaH  
+oM shaMkaraatmajaaya  namaH 
+‖ 70 ‖
+
+oM visvayoniye  namaH  
+oM ameyaatmaa namaH  
+oM tejonidhaye namaH  
+oM anaamayaaya namaH  
+oM parameshhTine namaH  
+oM parabrahmaya namaH  
+oM vedagarbhaaya namaH  
+oM  viraaTsutaaya namaH  
+oM puLiMdakanyaabhartaaya  namaH  
+oM mahaasaara svataavrutaaya namaH 
+‖ 80 ‖
+
+oM aashrita khiladaatre namaH  
+oM coraghnaaya namaH  
+oM roganaashanaaya namaH  
+oM anaMta moortaye  namaH  
+oM aanaMdaaya namaH  
+oM shikhiMDikRRita ketanaaya namaH  
+oM DaMbhaaya namaH  
+oM parama DaMbhaaya namaH  
+oM mahaa DaMbhaaya namaH  
+oM krupaakapaye namaH 
+‖ 90 ‖
+
+oM kaaraNopaatta dehaaya namaH  
+oM kaaraNaateeta vigrahaaya namaH  
+oM aneeshvaraaya namaH  
+oM amRRitaaya namaH  
+oM praaNaaya namaH  
+oM praaNaayaama paaraayaNaaya namaH  
+oM viruddahaMtre namaH  
+oM veeraghnaaya namaH  
+oM raktaasyaaya  namaH  
+oM shyaama kaMdharaaya namaH 
+‖ 100 ‖
+
+oM subra hmaNyaaya namaH  
+aan guhaaya namaH  
+oM preetaaya namaH  
+oM braahmaNyaaya namaH  
+oM braahmaNa priyaaya namaH  
+oM vedavedyaaya namaH  
+oM akshhaya phaladaaya namaH  
+oM vallee devasenaa sameta shree subrahmaNya svaamine namaH 
+‖ 108 ‖
+

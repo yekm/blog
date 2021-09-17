@@ -302,3 +302,47 @@ nirati shreeveMkaTesha neDu melukovayyaa ‖
 నిరతి శ్రీవేంకటేశ నేడు మేలుకోవయ్యా ‖  
 
 
+### English
+
+#### annamayya kīrtana medini jīvula gāva
+
+medini jīvula gāva melukovayyā ❘  
+nīdaye mākella rakśha nidra melukovayyā ‖
+
+tagugopikala kannudāmaralu vikasiñce   
+migula sūryanetruḍa melukovayyā ❘  
+teguva rākśhasulane timiramu viriyaga   
+negaḍina parañjyoti nidra melukovayyā ‖
+
+ghanaduritapu galuvalu vikasiñce   
+minuku śaśinetruḍa melukovayyā ❘  
+panivaḍi vedālane pakśhulellā balukaga   
+janaka! yāśritapārijāta melukovayyā ‖
+
+varalakśhmī kucacakravākamu loṇḍoṇṭi rāya   
+merayudośharahita melukovayyā ❘  
+porasi nīvu nityabhogamulu bhogiñca   
+nirati śrīveṅkaṭeśa neḍu melukovayyā ‖
+
+### PlainEnglish
+
+#### annamayya keertana medini jeevula gaava
+
+medini jeevula gaava melukovayyaa ❘  
+needaye maak.ella rakshha nidra melukovayyaa ‖
+
+tagugopikala kannudaamaralu vikasiMc.e   
+migula sooryanetruDa melukovayyaa ❘  
+t.eguva raakshhasulane timiramu viriyaga   
+n.egaDina paraMjyoti nidra melukovayyaa ‖
+
+ghanaduritapu galuvalu vikasiMc.e   
+minuku shashinetruDa melukovayyaa ❘  
+panivaDi vedaalane pakshhul.ellaa balukaga   
+janaka! yaashritapaarijaata melukovayyaa ‖
+
+varalakshhmee kucacakravaakamu l.oMD.oMTi raaya   
+m.erayudoshharahita melukovayyaa ❘  
+p.orasi neevu nityabhogamulu bhogiMca   
+nirati shreeveMkaTesha neDu melukovayyaa ‖
+

@@ -315,3 +315,49 @@ t.eruvu praaNula k.ella t.elip.eDi cheyi ‖
 తిరువేంకటాచల ధీశుడై మోక్షంబు  
 తెరువు ప్రాణుల కెల్ల తెలిపెడి చేయి ‖  
 
+### English
+
+#### annamayya kīrtana indariki abhayambu
+
+rāgaṃ: kāmbhoji rāgaṃ  
+indarikī abhayambu lichchu cheyi  
+kanduvagu mañchi baṅgāru cheyi ‖
+
+velaleni vedamulu vediki techchina cheyi  
+viluku gubbali kinda cherchu cheyi ❘  
+kalikiyagu bhūkānta kāgaliñchina cheyi  
+valavaina konagolla vāḍicheyi ‖
+
+tanivoka bali cheta dānamaḍigina cheyi  
+vonaraṅga bhū dāna mosagu cheyi ❘  
+monasi jalanidhi yammumonaku techchina cheyi  
+enaya nāgelu dhariyiñchu cheyi ‖
+
+purasatula mānamulu pollasesina cheyi  
+turagambu barapeḍi doḍḍa cheyi ❘  
+tiruveṅkaṭāchala dhīśuḍai mokśhambu  
+teruvu prāṇula kella telipeḍi cheyi ‖
+
+### PlainEnglish
+
+#### annamayya keertana iMdariki abhayaMbu
+
+raagaM: kaaMbhoji raagaM  
+iMdarikee abhayaMbu lichchu cheyi  
+kaMduvagu maMchi baMgaaru cheyi ‖
+
+v.elaleni vedamulu v.ediki t.echchina cheyi  
+viluku gubbali kiMda cherchu cheyi ❘  
+kalikiyagu bhookaaMta kaagaliMchina cheyi  
+valavaina k.onagolla vaaDicheyi ‖
+
+tanivoka bali cheta daanamaDigina cheyi  
+v.onaraMga bhoo daana m.osagu cheyi ❘  
+m.onasi jalanidhi yammum.onaku t.echchina cheyi  
+.enaya naagelu dhariyiMchu cheyi ‖
+
+purasatula maanamulu p.ollasesina cheyi  
+turagaMbu barap.eDi d.oDDa cheyi ❘  
+tiruveMkaTaachala dheeshuDai mokshhaMbu  
+t.eruvu praaNula k.ella t.elip.eDi cheyi ‖
+

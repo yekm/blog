@@ -484,3 +484,95 @@ shree naaraayaNa teertha varada kRRishhNaM ‖aalokaye‖
 నంద సునందాది వందిత కృష్ణం  
 శ్రీ నారాయణ తీర్థ వరద కృష్ణం ‖ఆలోకయే‖  
 
+### English
+
+#### ālokaye śrī bālakṛśhṇam
+
+rāgaṃ: huseni  
+tāḻaṃ: ādi   
+ālokaye śrī bāla kṛśhṇaṃ  
+sakhi ānanda sundara tāṇḍava kṛśhṇaṃ 
+‖ālokaye‖
+
+caraṇa nikvaṇita nūpura kṛśhṇaṃ  
+kara saṅgata kanaka kaṅkaṇa kṛśhṇaṃ 
+‖ālokaye‖
+
+kiṅkiṇī jāla ghaṇa ghaṇita kṛśhṇaṃ  
+loka śaṅkita tārāvaḻi mauktika kṛśhṇaṃ 
+‖ālokaye‖
+
+sundara nāsā mauktika śobhita kṛśhṇaṃ  
+nanda nandanaṃ akhaṇḍa vibhūti kṛśhṇaṃ 
+‖ālokaye‖
+
+kaṇṭhopa kaṇṭha śobhi kaustubha kṛśhṇaṃ  
+kali kalmaśha timira bhāskara kṛśhṇaṃ 
+‖ālokaye‖
+
+navanīta khaṇṭha dadhi cora kṛśhṇaṃ  
+bhakta bhava pāśa bandha mocana kṛśhṇaṃ 
+‖ālokaye‖
+
+nīla megha śyāma sundara kṛśhṇaṃ  
+nitya nirmalānanda bodha lakśhaṇa kṛśhṇaṃ 
+‖ālokaye‖
+
+vaṃśī nāda vinoda sundara kṛśhṇaṃ  
+paramahaṃsa kula śaṃsita carita kṛśhṇaṃ 
+‖ālokaye‖
+
+govatsa bṛnda pālaka kṛśhṇaṃ  
+kṛta gopikā cāla khelana kṛśhṇaṃ 
+‖ālokaye‖
+
+nanda sunandādi vandita kṛśhṇaṃ  
+śrī nārāyaṇa tīrtha varada kṛśhṇaṃ 
+‖ālokaye‖
+
+### PlainEnglish
+
+#### aalokaye shree baalakRRishhNam
+
+raagaM: huseni  
+taaLaM: aadi   
+aalokaye shree baala kRRishhNaM  
+sakhi aanaMda suMdara taaMDava kRRishhNaM 
+‖aalokaye‖
+
+caraNa nikvaNita noopura kRRishhNaM  
+kara saMgata kanaka kaMkaNa kRRishhNaM 
+‖aalokaye‖
+
+kiMkiNee jaala ghaNa ghaNita kRRishhNaM  
+loka shaMkita taaraavaLi mauktika kRRishhNaM 
+‖aalokaye‖
+
+suMdara naasaa mauktika shobhita kRRishhNaM  
+naMda naMdanaM akhaMDa vibhooti kRRishhNaM 
+‖aalokaye‖
+
+kaMThopa kaMTha shobhi kaustubha kRRishhNaM  
+kali kalmashha timira bhaaskara kRRishhNaM 
+‖aalokaye‖
+
+navaneeta khaMTha dadhi cora kRRishhNaM  
+bhakta bhava paasha baMdha mocana kRRishhNaM 
+‖aalokaye‖
+
+neela megha shyaama suMdara kRRishhNaM  
+nitya nirmalaanaMda bodha lakshhaNa kRRishhNaM 
+‖aalokaye‖
+
+vaMshee naada vinoda suMdara kRRishhNaM  
+paramahaMsa kula shaMsita carita kRRishhNaM 
+‖aalokaye‖
+
+govatsa bRRiMda paalaka kRRishhNaM  
+kRRita gopikaa caala khelana kRRishhNaM 
+‖aalokaye‖
+
+naMda sunaMdaadi vaMdita kRRishhNaM  
+shree naaraayaNa teertha varada kRRishhNaM 
+‖aalokaye‖
+

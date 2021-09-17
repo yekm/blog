@@ -211,3 +211,35 @@ bhuvana maanavaabhyudaya vijayamade manaku shubhaM ‖
 ఉదయోజ్వల భాస్కర కిరణోదంచితమురా నభం  
 భువన మానవాభ్యుదయ విజయమదే మనకు శుభం ‖  
 
+### English
+
+#### mana svatantrya bhārata
+
+mana svatantrya bhārata ketanamunetti naḍuvarā  
+kaṭi bigiñci ripudhāṭini kāla rāci niluvarā ‖
+
+ārdhika samatā ghaṇṭika alladigo mrogenurā  
+andaramoka kuṭumbamai ānandamu kanavalerā ‖
+
+matasamaikyatā ninādame manaku balamurā  
+gatacaritra talaci jagad~hitamu neḍu kanumurā ‖
+
+udayojvala bhāskara kiraṇodañcitamurā nabhaṃ  
+bhuvana mānavābhyudaya vijayamade manaku śubhaṃ ‖
+
+### PlainEnglish
+
+#### mana svataMtrya bhaarata
+
+mana svataMtrya bhaarata ketanamun.etti naDuvaraa  
+kaTi bigiMci ripudhaaTini kaala raaci niluvaraa ‖
+
+aardhika samataa ghaMTika alladigo mrog.enuraa  
+aMdaram.oka kuTuMbamai aanaMdamu kanaval.eraa ‖
+
+matasamaikyataa ninaadame manaku balamuraa  
+gatacaritra talaci jagad~hitamu neDu kanumuraa ‖
+
+udayojvala bhaaskara kiraNodaMcitamuraa nabhaM  
+bhuvana maanavaabhyudaya vijayamade manaku shubhaM ‖
+

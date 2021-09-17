@@ -406,3 +406,81 @@ kleshaa layaM yaaMti labhecca sheeghraM shreeputtra vidyaarthi gRRihaM ca muktim
 ‖ ఇతి శ్రీ గణేశ మహిమ్న స్తోత్రమ్ ‖  
 
 
+### English
+
+#### gaṇeśa mahimnā stotram
+
+anirvācyaṃ rūpaṃ stavana nikaro yatra gaḻitaḥ tathā vakśhye stotraṃ prathama puruśhasyātra mahataḥ ❘  
+yato jātaṃ viśvasthitimapi sadā yatra vilayaḥ sakīdṛggīrvāṇaḥ sunigama nutaḥ śrīgaṇapatiḥ 
+‖ 1 ‖
+
+gakāro herambaḥ saguṇa iti puṃ nirguṇamayo dvidhāpyekojātaḥ prakṛti puruśho brahma hi gaṇaḥ ❘  
+sa ceśaścotpatti sthiti laya karoyaṃ pramathako yatobhūtaṃ bhavyaṃ bhavati patirīśo gaṇapatiḥ 
+‖ 2 ‖
+
+gakāraḥ kaṇṭhordhvaṃ gajamukhasamo martyasadṛśo ṇakāraḥ kaṇṭhādho jaṭhara sadṛśākāra iti ca ❘  
+adhobhāvaḥ kaṭyāṃ caraṇa iti hīśosya ca tamaḥ vibhātītthaṃ nāma tribhuvana samaṃ bhū rbhuva ssuvaḥ 
+‖ 3 ‖
+
+gaṇādhyakśho jyeśhṭhaḥ kapila aparo maṅgaḻanidhiḥ dayāḻurherambo varada iti cintāmaṇi rajaḥ ❘  
+varānīśo ḍhuṇḍhirgajavadana nāmā śivasuto mayūreśo gaurītanaya iti nāmāni paṭhati 
+‖ 4 ‖
+
+maheśoyaṃ viśhṇuḥ sa kavi ravirinduḥ kamalajaḥ kśhiti stoyaṃ vahniḥ śvasana iti khaṃ tvadrirudadhiḥ ❘  
+kujastāraḥ śukro pururuḍu budhogucca dhanado yamaḥ pāśī kāvyaḥ śanirakhila rūpo gaṇapatiḥ 
+‖5 ‖
+
+mukhaṃ vahniḥ pādau harirasi vidhāta prajananaṃ ravirnetre candro hṛdaya mapi kāmosya madana ❘  
+karau śukraḥ kaṭyāmavanirudaraṃ bhāti daśanaṃ gaṇeśasyāsan vai kratumaya vapu ścaiva sakalam 
+‖ 6 ‖
+
+site bhādre māse pratiśaradi madhyāhna samaye mṛdo mūrtiṃ kṛtvā gaṇapatitithau ḍhuṇḍhi sadṛśīṃ ❘  
+samarcatyutsāhaḥ prabhavati mahān sarvasadane vilokyānandastāṃ prabhavati nṛṇāṃ vismaya iti 
+‖7 ‖
+
+gaṇeśadevasya māhātmyametadyaḥ śrāvayedvāpi paṭhecca tasya ❘  
+kleśā layaṃ yānti labhecca śīghraṃ śrīputtra vidyārthi gṛhaṃ ca muktim 
+‖ 8 ‖
+
+
+‖ iti śrī gaṇeśa mahimna stotram ‖
+
+### PlainEnglish
+
+#### gaNesha mahimnaa stotram
+
+anirvaacyaM roopaM stavana nikaro yatra gaLitaH tathaa vakshhye stotraM prathama purushhasyaatra mahataH ❘  
+yato jaataM vishvasthitimapi sadaa yatra vilayaH sakeedRRiggeervaaNaH sunigama nutaH shreegaNapatiH 
+‖ 1 ‖
+
+gakaaro heraMbaH saguNa iti puM nirguNamayo dvidhaapyekojaataH prakRRiti purushho brahma hi gaNaH ❘  
+sa ceshashcotpatti sthiti laya karoyaM pramathako yatobhootaM bhavyaM bhavati patireesho gaNapatiH 
+‖ 2 ‖
+
+gakaaraH kaMThordhvaM gajamukhasamo martyasadRRisho NakaaraH kaMThaadho jaThara sadRRishaakaara iti ca ❘  
+adhobhaavaH kaTyaaM caraNa iti heeshosya ca tamaH vibhaateetthaM naama tribhuvana samaM bhoo rbhuva ssuvaH 
+‖ 3 ‖
+
+gaNaadhyakshho jyeshhThaH kapila aparo maMgaLanidhiH dayaaLurheraMbo varada iti ciMtaamaNi rajaH ❘  
+varaaneesho DhuMDhirgajavadana naamaa shivasuto mayooresho gaureetanaya iti naamaani paThati 
+‖ 4 ‖
+
+maheshoyaM vishhNuH sa kavi raviriMduH kamalajaH kshhiti stoyaM vahniH shvasana iti khaM tvadrirudadhiH ❘  
+kujastaaraH shukro pururuDu budhogucca dhanado yamaH paashee kaavyaH shanirakhila roopo gaNapatiH 
+‖5 ‖
+
+mukhaM vahniH paadau harirasi vidhaata prajananaM ravirnetre caMdro hRRidaya mapi kaamosya madana ❘  
+karau shukraH kaTyaamavanirudaraM bhaati dashanaM gaNeshasyaasan vai kratumaya vapu shcaiva sakalam 
+‖ 6 ‖
+
+site bhaadre maase pratisharadi madhyaahna samaye mRRido moortiM kRRitvaa gaNapatitithau DhuMDhi sadRRisheeM ❘  
+samarcatyutsaahaH prabhavati mahaan sarvasadane vilokyaanaMdastaaM prabhavati nRRiNaaM vismaya iti 
+‖7 ‖
+
+gaNeshadevasya maahaatmyametadyaH shraavayedvaapi paThecca tasya ❘  
+kleshaa layaM yaaMti labhecca sheeghraM shreeputtra vidyaarthi gRRihaM ca muktim 
+‖ 8 ‖
+
+
+‖ iti shree gaNesha mahimna stotram ‖
+

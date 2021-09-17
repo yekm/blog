@@ -1160,3 +1160,241 @@ raakshhasaasura betaaLa daitya daanava saMbhavaaH ‖ 27 ‖
 
 ‖ ఇతి శ్రీ గణేశపురాణే శ్రీ గణేశ కవచం సంపూర్ణమ్ ‖  
 
+### English
+
+#### gaṇeśa kavacham
+
+eśhoti capalo daityān bālyepi nāśayatyaho ❘  
+agre kiṃ karma karteti na jāne munisattama 
+‖ 1 ‖
+
+daityā nānāvidhā duśhṭāssādhu devadrumaḥ khalāḥ ❘  
+atosya kaṇṭhe kiñcittyaṃ rakśhāṃ sambaddhumarhasi 
+‖ 2 ‖
+
+dhyāyet siṃhagataṃ vināyakamamuṃ digbāhu mādye yuge  
+tretāyāṃ tu mayūra vāhanamamuṃ śhaḍbāhukaṃ siddhidam ❘  
+ī  
+dvāparetu gajānanaṃ yugabhujaṃ raktāṅgarāgaṃ vibhum turye  
+tu dvibhujaṃ sitāṅgaruciraṃ sarvārthadaṃ sarvadā 
+‖ 3 ‖
+
+vināyaka śśikhāmpātu paramātmā parātparaḥ ❘  
+atisundara kāyastu mastakaṃ sumahotkaṭaḥ 
+‖ 4 ‖
+
+lalāṭaṃ kaśyapaḥ pātu bhrūyugaṃ tu mahodaraḥ ❘  
+nayane bālacandrastu gajāsyastyośhṭha pallavau 
+‖ 5 ‖
+
+jihvāṃ pātu gajakrīḍaścubukaṃ girijāsutaḥ ❘  
+vācaṃ vināyakaḥ pātu dantān^^ rakśhatu durmukhaḥ 
+‖ 6 ‖
+
+śravaṇau pāśapāṇistu nāsikāṃ cintitārthadaḥ ❘  
+gaṇeśastu mukhaṃ pātu kaṇṭhaṃ pātu gaṇādhipaḥ 
+‖ 7 ‖
+
+skandhau pātu gajaskandhaḥ stane vighnavināśanaḥ ❘  
+hṛdayaṃ gaṇanāthastu herambo jaṭharaṃ mahān 
+‖ 8 ‖
+
+dharādharaḥ pātu pārśvau pṛśhṭhaṃ vighnaharaśśubhaḥ ❘  
+liṅgaṃ guhyaṃ sadā pātu vakratuṇḍo mahābalaḥ 
+‖ 9 ‖
+
+gajakrīḍo jānu jaṅgho ūrū maṅgaḻakīrtimān ❘  
+ekadanto mahābuddhiḥ pādau gulphau sadāvatu 
+‖ 10 ‖
+
+kśhipra prasādano bāhu pāṇī āśāprapūrakaḥ ❘  
+aṅguḻīśca nakhān pātu padmahasto rināśanaḥ 
+‖ 11 ‖
+
+sarvāṅgāni mayūreśo viśvavyāpī sadāvatu ❘  
+anuktamapi yat sthānaṃ dhūmaketuḥ sadāvatu 
+‖ 12 ‖
+
+āmodastvagrataḥ pātu pramodaḥ pṛśhṭhatovatu ❘  
+prācyāṃ rakśhatu buddhīśa āgneyyāṃ siddhidāyakaḥ 
+‖ 13 ‖
+
+dakśhiṇasyāmumāputro naiṛtyāṃ tu gaṇeśvaraḥ ❘  
+pratīcyāṃ vighnahartā vyādvāyavyāṃ gajakarṇakaḥ 
+‖ 14 ‖
+
+kauberyāṃ nidhipaḥ pāyādīśānyāviśanandanaḥ ❘  
+divāvyādekadanta stu rātrau sandhyāsu yaḥvighnahṛt 
+‖ 15 ‖
+
+rākśhasāsura betāḻa graha bhūta piśācataḥ ❘  
+pāśāṅkuśadharaḥ pātu rajassattvatamassmṛtīḥ 
+‖ 16 ‖
+
+GYānaṃ dharmaṃ ca lakśhmī ca lajjāṃ kīrtiṃ tathā kulam ❘  
+ī  
+vapurdhanaṃ ca dhānyaṃ ca gṛhaṃ dārāssutānsakhīn 
+‖ 17 ‖
+
+sarvāyudha dharaḥ pautrān mayūreśo vatāt sadā ❘  
+kapilo jānukaṃ pātu gajāśvān vikaṭovatu 
+‖ 18 ‖
+
+bhūrjapatre likhitvedaṃ yaḥ kaṇṭhe dhārayet sudhīḥ ❘  
+na bhayaṃ jāyate tasya yakśha rakśhaḥ piśācataḥ 
+‖ 19 ‖
+
+trisandhyaṃ japate yastu vajrasāra tanurbhavet ❘  
+yātrākāle paṭhedyastu nirvighnena phalaṃ labhet 
+‖ 20 ‖
+
+yuddhakāle paṭhedyastu vijayaṃ cāpnuyāddhruvam ❘  
+māraṇoccāṭanākarśha stambha mohana karmaṇi 
+‖ 21 ‖
+
+saptavāraṃ japedetaddanānāmekaviṃśatiḥ ❘  
+tattatphalamavāpnoti sādhako nātra saṃśayaḥ 
+‖ 22 ‖
+
+ekaviṃśativāraṃ ca paṭhettāvaddināni yaḥ ❘  
+kārāgṛhagataṃ sadyo rāGYāvadhyaṃ ca mocayot 
+‖ 23 ‖
+
+rājadarśana veḻāyāṃ paṭhedetat trivārataḥ ❘  
+sa rājānaṃ vaśaṃ nītvā prakṛtīśca sabhāṃ jayet 
+‖ 24 ‖
+
+idaṃ gaṇeśakavacaṃ kaśyapena saviritam ❘  
+mudgalāya ca te nātha māṇḍavyāya maharśhaye 
+‖ 25 ‖
+
+mahyaṃ sa prāha kṛpayā kavacaṃ sarva siddhidam ❘  
+na deyaṃ bhaktihīnāya deyaṃ śraddhāvate śubham 
+‖ 26 ‖
+
+anenāsya kṛtā rakśhā na bādhāsya bhavet vyācit ❘  
+rākśhasāsura betāḻa daitya dānava sambhavāḥ 
+‖ 27 ‖
+
+
+‖ iti śrī gaṇeśapurāṇe śrī gaṇeśa kavacaṃ sampūrṇam ‖
+
+### PlainEnglish
+
+#### gaNesha kavacham
+
+eshhoti capalo daityaan baalyepi naashayatyaho ❘  
+agre kiM karma karteti na jaane munisattama 
+‖ 1 ‖
+
+daityaa naanaavidhaa dushhTaassaadhu devadrumaH khalaaH ❘  
+atosya kaMThe kiMcittyaM rakshhaaM saMbaddhumarhasi 
+‖ 2 ‖
+
+dhyaayet siMhagataM vinaayakamamuM digbaahu maadye yuge  
+tretaayaaM tu mayoora vaahanamamuM shhaDbaahukaM siddhidam ❘  
+ee  
+dvaaparetu gajaananaM yugabhujaM raktaaMgaraagaM vibhum turye  
+tu dvibhujaM sitaaMgaruciraM sarvaarthadaM sarvadaa 
+‖ 3 ‖
+
+vinaayaka shshikhaaMpaatu paramaatmaa paraatparaH ❘  
+atisuMdara kaayastu mastakaM sumahotkaTaH 
+‖ 4 ‖
+
+lalaaTaM kashyapaH paatu bhrooyugaM tu mahodaraH ❘  
+nayane baalacaMdrastu gajaasyastyoshhTha pallavau 
+‖ 5 ‖
+
+jihvaaM paatu gajakreeDashcubukaM girijaasutaH ❘  
+vaacaM vinaayakaH paatu daMtaan^^ rakshhatu durmukhaH 
+‖ 6 ‖
+
+shravaNau paashapaaNistu naasikaaM ciMtitaarthadaH ❘  
+gaNeshastu mukhaM paatu kaMThaM paatu gaNaadhipaH 
+‖ 7 ‖
+
+skaMdhau paatu gajaskaMdhaH stane vighnavinaashanaH ❘  
+hRRidayaM gaNanaathastu heraMbo jaTharaM mahaan 
+‖ 8 ‖
+
+dharaadharaH paatu paarshvau pRRishhThaM vighnaharashshubhaH ❘  
+liMgaM guhyaM sadaa paatu vakratuMDo mahaabalaH 
+‖ 9 ‖
+
+gajakreeDo jaanu jaMgho ooroo maMgaLakeertimaan ❘  
+ekadaMto mahaabuddhiH paadau gulphau sadaavatu 
+‖ 10 ‖
+
+kshhipra prasaadano baahu paaNee aashaaprapoorakaH ❘  
+aMguLeeshca nakhaan paatu padmahasto rinaashanaH 
+‖ 11 ‖
+
+sarvaaMgaani mayooresho vishvavyaapee sadaavatu ❘  
+anuktamapi yat sthaanaM dhoomaketuH sadaavatu 
+‖ 12 ‖
+
+aamodastvagrataH paatu pramodaH pRRishhThatovatu ❘  
+praacyaaM rakshhatu buddheesha aagneyyaaM siddhidaayakaH 
+‖ 13 ‖
+
+dakshhiNasyaamumaaputro naiRRityaaM tu gaNeshvaraH ❘  
+prateecyaaM vighnahartaa vyaadvaayavyaaM gajakarNakaH 
+‖ 14 ‖
+
+kauberyaaM nidhipaH paayaadeeshaanyaavishanaMdanaH ❘  
+divaavyaadekadaMta stu raatrau saMdhyaasu yaHvighnahRRit 
+‖ 15 ‖
+
+raakshhasaasura betaaLa graha bhoota pishaacataH ❘  
+paashaaMkushadharaH paatu rajassattvatamassmRRiteeH 
+‖ 16 ‖
+
+gnyaanaM dharmaM ca lakshhmee ca lajjaaM keertiM tathaa kulam ❘  
+ee  
+vapurdhanaM ca dhaanyaM ca gRRihaM daaraassutaansakheen 
+‖ 17 ‖
+
+sarvaayudha dharaH pautraan mayooresho vataat sadaa ❘  
+kapilo jaanukaM paatu gajaashvaan vikaTovatu 
+‖ 18 ‖
+
+bhoorjapatre likhitvedaM yaH kaMThe dhaarayet sudheeH ❘  
+na bhayaM jaayate tasya yakshha rakshhaH pishaacataH 
+‖ 19 ‖
+
+trisaMdhyaM japate yastu vajrasaara tanurbhavet ❘  
+yaatraakaale paThedyastu nirvighnena phalaM labhet 
+‖ 20 ‖
+
+yuddhakaale paThedyastu vijayaM caapnuyaaddhruvam ❘  
+maaraNoccaaTanaakarshha staMbha mohana karmaNi 
+‖ 21 ‖
+
+saptavaaraM japedetaddanaanaamekaviMshatiH ❘  
+tattatphalamavaapnoti saadhako naatra saMshayaH 
+‖ 22 ‖
+
+ekaviMshativaaraM ca paThettaavaddinaani yaH ❘  
+kaaraagRRihagataM sadyo raagnyaavadhyaM ca mocayot 
+‖ 23 ‖
+
+raajadarshana veLaayaaM paThedetat trivaarataH ❘  
+sa raajaanaM vashaM neetvaa prakRRiteeshca sabhaaM jayet 
+‖ 24 ‖
+
+idaM gaNeshakavacaM kashyapena saviritam ❘  
+mudgalaaya ca te naatha maaMDavyaaya maharshhaye 
+‖ 25 ‖
+
+mahyaM sa praaha kRRipayaa kavacaM sarva siddhidam ❘  
+na deyaM bhaktiheenaaya deyaM shraddhaavate shubham 
+‖ 26 ‖
+
+anenaasya kRRitaa rakshhaa na baadhaasya bhavet vyaacit ❘  
+raakshhasaasura betaaLa daitya daanava saMbhavaaH 
+‖ 27 ‖
+
+
+‖ iti shree gaNeshapuraaNe shree gaNesha kavacaM saMpoorNam ‖
+

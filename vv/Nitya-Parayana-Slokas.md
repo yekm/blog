@@ -1849,3 +1849,289 @@ dvaadashaakshhari - oM namo bhagavate vaasudevaaya
 అష్టాక్షరి - ఓమ్ నమో నారాయణాయ  
 ద్వాదశాక్షరి - ఓం నమో భగవతే వాసుదేవాయ  
 
+### English
+
+#### nitya pārāyaṇa ślokāḥ
+
+prabhāta ślokaṃ  
+karāgre vasate lakśhmīḥ karamadhye sarasvatī ❘  
+karamūle sthitā gaurī prabhāte karadarśanam ‖
+
+prabhāta bhūmi ślokaṃ  
+samudra vasane devī parvata stana maṇḍale ❘  
+viśhṇupatni namastubhyaṃ, pādasparśaṃ kśhamasvame ‖
+
+sūryodaya ślokaṃ  
+brahmasvarūpa mudaye madhyāhnetu maheśvaram ❘  
+sāhaṃ dhyāyetsadā viśhṇuṃ trimūrtiñca divākaram ‖
+
+snāna ślokaṃ  
+gaṅge cha yamune chaiva godāvarī sarasvatī   
+narmade sindhu kāverī jalesmin sannidhiṃ kuru ‖
+
+bhasma dhāraṇa ślokaṃ  
+śrīkaraṃ cha pavitraṃ cha śoka nivāraṇam ❘  
+loke vaśīkaraṃ puṃsāṃ bhasmaṃ tryailokya pāvanam ‖
+
+bhojana pūrva ślokaṃ  
+brahmārpaṇaṃ brahma haviḥ brahmāgnau brahmaṇāhutam ❘  
+brahmaiva tena gantavyaṃ brahma karma samādhinaḥ ‖
+
+ahaṃ vaiśvānaro bhūtvā prāṇināṃ deha-māśritaḥ ❘  
+prāṇāpāna samāyuktaḥ pachāmyannaṃ chaturvidham ‖
+
+tvadīyaṃ vastu govinda tubhyameva samarpaye ❘  
+gṛhāṇa sumukho bhūtvā prasīda parameśvara ‖
+
+bhojanānantara ślokaṃ  
+agastyaṃ vainateyaṃ cha śamīṃ cha baḍabālanam ❘  
+āhāra pariṇāmārthaṃ smarāmi cha vṛkodaram ‖
+
+sandhyā dīpa darśana ślokaṃ  
+dīpaṃ jyoti parabrahma dīpaṃ sarvatamopahaṃ ❘  
+dīpena sādhyate sarvaṃ sandhyā dīpaṃ namoastute ‖
+
+nidrā ślokaṃ  
+rāmaṃ skandhaṃ hanumantaṃ vainateyaṃ vṛkodaraṃ ❘  
+śayane yaḥ smarennityam dusvapna-stasyanaśyati ‖
+
+kārya prārambha ślokaṃ  
+vakratuṇḍa mahākāya sūryakoṭi samaprabhaḥ ❘  
+nirvighnaṃ kuru me deva sarva kāryeśhu sarvadā ‖
+
+gāyatri mantraṃ  
+oṃ bhūrbhuvassuvaḥ ❘  
+tathsa'viturvare''ṇyaṃ ❘  
+bhargo' devasya' dhīmahi ❘  
+dhiyo yo na'ḥ prachodayā''t ‖
+
+hanuma stotraṃ  
+manojavaṃ māruta tulyavegaṃ jitendriyaṃ buddhimatāṃ variśhṭaṃ ❘  
+vātātmajaṃ vānarayūdha mukhyaṃ śrīrāmadūtaṃ śirasā namāmi ‖
+
+buddhirbalaṃ yaśodhairyaṃ nirbhayatva-marogatā ❘  
+ajāḍyaṃ vākpaṭutvaṃ cha hanumat-smaraṇād-bhavet ‖
+
+śrīrāma stotraṃ  
+śrī rāma rāma rāmetī rame rāme manorame  
+sahasranāma tattulyaṃ rāma nāma varānane  
+gaṇeśa stotraṃ  
+śuklāṃ baradharaṃ viśhṇuṃ śaśivarṇam chaturbhujaṃ ❘  
+prasannavadanaṃ dhyāyet sarva vighnopaśāntaye ‖
+
+agajānana padmārkaṃ gajānana maharniśam ❘  
+anekadantaṃ bhaktānā-mekadanta-mupāsmahe ‖
+
+śiva stotraṃ  
+trya'mbakaṃ yajāmahe sugandhiṃ pu'śhṭivardha'naṃ ❘  
+urvārukami'va bandha'nān-mṛtyo'r-mukśhīya mā'mṛtā''t ‖
+
+guru ślokaṃ  
+gururbrahmā gururviśhṇuḥ gururdevo maheśvaraḥ ❘  
+guruḥ sākśhāt parabrahmā tasmai śrī gurave namaḥ ‖
+
+sarasvatī ślokaṃ  
+sarasvatī namastubhyaṃ varade kāmarūpiṇī ❘  
+vidyārambhaṃ kariśhyāmi siddhirbhavatu me sadā ‖
+
+yā kundendu tuśhāra hāra dhavaḻā, yā śubhra vastrāvṛtā ❘  
+yā vīṇā varadaṇḍa maṇḍita karā, yā śveta padmāsanā ❘  
+yā brahmāchyuta śaṅkara prabhṛtibhir-devaiḥ sadā pūjitā ❘  
+sā mām pātu sarasvatī bhagavatī niśśeśhajāḍyāpahā ❘  
+lakśhmī ślokaṃ  
+lakśhmīṃ kśhīrasamudra rāja tanayāṃ śrīraṅga dhāmeśvarīṃ ❘  
+dāsībhūta samasta deva vanitāṃ lokaika dīpāṅkurām ❘  
+śrīmanmandha kaṭākśha labdha vibhava brahmendra gaṅgādharāṃ ❘  
+tvāṃ trailokyakuṭumbinīṃ sarasijāṃ vande mukundapriyām ‖
+
+veṅkaṭeśvara ślokaṃ  
+śriyaḥ kāntāya kaḻyāṇanidhaye nidhayearthinām ❘  
+śrī veṅkaṭa nivāsāya śrīnivāsāya maṅgaḻam ‖
+
+devī ślokaṃ  
+sarva maṅgala māṅgalye śive sarvārtha sādhike ❘  
+śaraṇye tryambake devi nārāyaṇi namostute ‖
+
+dakśhiṇāmūrti ślokaṃ  
+gurave sarvalokānāṃ bhiśhaje bhavarogiṇāṃ ❘  
+nidhaye sarvavidyānāṃ dakśhiṇāmūrtaye namaḥ ‖
+
+aparādha kśhamāpaṇa stotraṃ  
+aparādha sahasrāṇi, kriyanteaharniśaṃ mayā ❘  
+dāsoaya miti māṃ matvā, kśhamasva parameśvara ‖
+
+karacharaṇa kṛtaṃ vā karma vākkāyajaṃ vā  
+śravaṇa nayanajaṃ vā mānasaṃ vāparādham ❘  
+vihita mavihitaṃ vā sarvametat kśhamasva  
+śiva śiva karuṇābdhe śrī mahādeva śambho ‖
+
+kāyena vāchā manasendriyairvā  
+buddhyātmanā vā prakṛteḥ svabhāvāt ❘  
+karomi yadyatsakalaṃ parasmai nārāyaṇāyeti samarpayāmi ‖
+
+bauddha prārthana  
+buddhaṃ śaraṇaṃ gacChāmi  
+dharmaṃ śaraṇaṃ gacChāmi  
+saṅghaṃ śaraṇaṃ gacChāmi  
+śānti mantraṃ  
+asatomā sadgamayā ❘  
+tamasomā jyotirgamayā ❘  
+mṛtyormā amṛtaṅgamayā ❘  
+oṃ śāntiḥ śāntiḥ śāntiḥ  
+sarve bhavantu sukhinaḥ sarve santu nirāmayāḥ ❘  
+sarve bhadrāṇi paśyantu mā kaśchidduḥkha bhāgbhavet ‖
+
+oṃ saha nā'vavatu ❘  
+sa nau' bhunaktu ❘  
+saha vīrya'ṃ karavāvahai ❘  
+tejasvināvadhī'tamastu mā vi'dviśhāvahai'' ‖
+
+oṃ śāntiḥ śāntiḥ śānti'ḥ ‖
+
+viśeśha mantrāḥ  
+pañchākśhari - oṃ namaśśivāya  
+aśhṭākśhari - om namo nārāyaṇāya  
+dvādaśākśhari - oṃ namo bhagavate vāsudevāya  
+### PlainEnglish
+
+#### nitya paaraayaNa shlokaaH
+
+prabhaata shlokaM  
+karaagre vasate lakshhmeeH karamadhye sarasvatee ❘  
+karamoole sthitaa gauree prabhaate karadarshanam ‖
+
+prabhaata bhoomi shlokaM  
+samudra vasane devee parvata stana maMDale ❘  
+vishhNupatni namastubhyaM, paadasparshaM kshhamasvame ‖
+
+sooryodaya shlokaM  
+brahmasvaroopa mudaye madhyaahnetu maheshvaram ❘  
+saahaM dhyaayetsadaa vishhNuM trimoortiMca divaakaram ‖
+
+snaana shlokaM  
+gaMge cha yamune chaiva godaavaree sarasvatee   
+narmade siMdhu kaaveree jalesmin sannidhiM kuru ‖
+
+bhasma dhaaraNa shlokaM  
+shreekaraM cha pavitraM cha shoka nivaaraNam ❘  
+loke vasheekaraM puMsaaM bhasmaM tryailokya paavanam ‖
+
+bhojana poorva shlokaM  
+brahmaarpaNaM brahma haviH brahmaagnau brahmaNaahutam ❘  
+brahmaiva tena gaMtavyaM brahma karma samaadhinaH ‖
+
+ahaM vaishvaanaro bhootvaa praaNinaaM deha-maashritaH ❘  
+praaNaapaana samaayuktaH pachaamyannaM chaturvidham ‖
+
+tvadeeyaM vastu goviMda tubhyameva samarpaye ❘  
+gRRihaaNa sumukho bhootvaa praseeda parameshvara ‖
+
+bhojanaanaMtara shlokaM  
+agastyaM vainateyaM cha shameeM cha baDabaalanam ❘  
+aahaara pariNaamaarthaM smaraami cha vRRikodaram ‖
+
+saMdhyaa deepa darshana shlokaM  
+deepaM jyoti parabrahma deepaM sarvatamopahaM ❘  
+deepena saadhyate sarvaM saMdhyaa deepaM namo.astute ‖
+
+nidraa shlokaM  
+raamaM skaMdhaM hanumantaM vainateyaM vRRikodaraM ❘  
+shayane yaH smarennityam dusvapna-stasyanashyati ‖
+
+kaarya praaraMbha shlokaM  
+vakratuNDa mahaakaaya sooryakoTi samaprabhaH ❘  
+nirvighnaM kuru me deva sarva kaaryeshhu sarvadaa ‖
+
+gaayatri maMtraM  
+oM bhoorbhuvassuvaH ❘  
+tathsa'viturvare''NyaM ❘  
+bhargo' devasya' dheemahi ❘  
+dhiyo yo na'H prachodayaa''t ‖
+
+hanuma stotraM  
+manojavaM maaruta tulyavegaM jitendriyaM buddhimataaM varishhTaM ❘  
+vaataatmajaM vaanarayoodha mukhyaM shreeraamadootaM shirasaa namaami ‖
+
+buddhirbalaM yash.odhairyaM nirbhayatva-marogataa ❘  
+ajaaDyaM vaakpaTutvaM cha hanumat-smaraNaad-bhavet ‖
+
+shreeraama stotraM  
+shree raama raama raametee rame raame manorame  
+sahasranaama tattulyaM raama naama varaanane  
+gaNesha stotraM  
+shuklaaM baradharaM vishhNuM shashivarNam chaturbhujaM ❘  
+prasannavadanaM dhyaayet sarva vighnopashaaMtaye ‖
+
+agajaanana padmaarkaM gajaanana maharnisham ❘  
+anekadaMtaM bhaktaanaa-mekadaMta-mupaasmahe ‖
+
+shiva stotraM  
+trya'MbakaM yajaamahe sugandhiM pu'shhTivardha'naM ❘  
+urvaarukami'va baMdha'naan-mRRityo'r-mukshheeya maa.amRRitaa''t ‖
+
+guru shlokaM  
+gururbrahmaa gururvishhNuH gururdevo maheshvaraH ❘  
+guruH saakshhaat parabrahmaa tasmai shree gurave namaH ‖
+
+sarasvatee shlokaM  
+sarasvatee namastubhyaM varade kaamaroopiNee ❘  
+vidyaaraMbhaM karishhyaami siddhirbhavatu me sadaa ‖
+
+yaa kuMdeMdu tushhaara haara dhavaLaa, yaa shubhra vastraavRRitaa ❘  
+yaa veeNaa varadaMDa maMDita karaa, yaa shveta padmaasanaa ❘  
+yaa brahmaachyuta shaMkara prabhRRitibhir-devaiH sadaa poojitaa ❘  
+saa maam paatu sarasvatee bhagavatee nishsheshhajaaDyaapahaa ❘  
+lakshhmee shlokaM  
+lakshhmeeM kshheerasamudra raaja tanayaaM shreeraMga dhaameshvareeM ❘  
+daaseebhoota samasta deva vanitaaM lokaika deepaaMkuraam ❘  
+shreemanmaMdha kaTaakshha labdha vibhava brahmeMdra gaMgaadharaaM ❘  
+tvaaM trailokyakuTuMbineeM sarasijaaM vaMde mukuMdapriyaam ‖
+
+veMkaTeshvara shlokaM  
+shriyaH kaaMtaaya kaLyaaNanidhaye nidhaye.arthinaam ❘  
+shree veMkaTa nivaasaaya shreenivaasaaya maMgaLam ‖
+
+devee shlokaM  
+sarva maMgala maaMgalye shive sarvaartha saadhike ❘  
+sharaNye tryaMbake devi naaraayaNi namostute ‖
+
+dakshhiNaamoorti shlokaM  
+gurave sarvalokaanaaM bhishhaje bhavarogiNaaM ❘  
+nidhaye sarvavidyaanaaM dakshhiNaamoortaye namaH ‖
+
+aparaadha kshhamaapaNa stotraM  
+aparaadha sahasraaNi, kriyaMte.aharnishaM mayaa ❘  
+daaso.aya miti maaM matvaa, kshhamasva parameshvara ‖
+
+karacharaNa kRRitaM vaa karma vaakkaayajaM vaa  
+shravaNa nayanajaM vaa maanasaM vaaparaadham ❘  
+vihita mavihitaM vaa sarvametat kshhamasva  
+shiva shiva karuNaabdhe shree mahaadeva shaMbho ‖
+
+kaayena vaachaa manaseMdriyairvaa  
+buddhyaatmanaa vaa prakRRiteH svabhaavaat ❘  
+karomi yadyatsakalaM parasmai naaraayaNaayeti samarpayaami ‖
+
+bauddha praarthana  
+buddhaM sharaNaM gacChaami  
+dharmaM sharaNaM gacChaami  
+saMghaM sharaNaM gacChaami  
+shaaMti maMtraM  
+asatomaa sadgamayaa ❘  
+tamasomaa jyotirgamayaa ❘  
+mRRityormaa amRRitaMgamayaa ❘  
+oM shaaMtiH shaaMtiH shaaMtiH  
+sarve bhavantu sukhinaH sarve santu niraamayaaH ❘  
+sarve bhadraaNi pashyantu maa kashchidduHkha bhaagbhavet ‖
+
+oM saha naa'vavatu ❘  
+sa nau' bhunaktu ❘  
+saha veerya'M karavaavahai ❘  
+tejasvinaavadhee'tamastu maa vi'dvishhaavahai'' ‖
+
+oM shaaMtiH shaaMtiH shaaMti'H ‖
+
+visheshha maMtraaH  
+paMchaakshhari - oM namashshivaaya  
+ashhTaakshhari - om namo naaraayaNaaya  
+dvaadashaakshhari - oM namo bhagavate vaasudevaaya  

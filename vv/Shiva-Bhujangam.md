@@ -2473,3 +2473,461 @@ suputraayuraarogyamaishvaryameti ‖ 40 ‖
 సుపుత్రాయురారోగ్యమైశ్వర్యమేతి ‖ 40 ‖  
 
 
+### English
+
+#### śiva bhujaṅgam
+
+galaddānagaṇḍaṃ miladbhṛṅgaśhaṇḍaṃ   
+chalachchāruśuṇḍaṃ jagattrāṇaśauṇḍam ❘  
+kanaddantakāṇḍaṃ vipadbhaṅgachaṇḍaṃ   
+śivapremapiṇḍaṃ bhaje vakratuṇḍam 
+‖ 1 ‖
+
+anādyantamādyaṃ paraṃ tattvamarthaṃ   
+chidākāramekaṃ turīyaṃ tvameyam ❘  
+haribrahmamṛgyaṃ parabrahmarūpaṃ   
+manovāgatītaṃ mahaḥśaivamīḍe 
+‖ 2 ‖
+
+svaśaktyādi śaktyanta siṃhāsanasthaṃ   
+manohāri sarvāṅgaratnorubhūśham ❘  
+jaṭāhīndugaṅgāsthiśamyākamauḻiṃ   
+parāśaktimitraṃ namaḥ pañchavaktram 
+‖ 3 ‖
+
+śiveśānatatpūruśhāghoravāmādibhiḥ   
+pañchabhirhṛnmukhaiḥ śhaḍbhiraṅgaiḥ ❘  
+anaupamya śhaṭtriṃśataṃ tattvavidyāmatītaṃ   
+paraṃ tvāṃ kathaṃ vetti ko vā 
+‖ 4 ‖
+
+pravāḻapravāhaprabhāśoṇamardhaṃ   
+marutvanmaṇi śrīmahaḥ śyāmamardham ❘  
+guṇasyūtametadvapuḥ śaivamantaḥ   
+smarāmi smarāpattisampattihetoḥ 
+‖ 5 ‖
+
+svasevāsamāyātadevāsurendrā   
+namanmauḻimandāramālābhiśhiktam ❘  
+namasyāmi śambho padāmbhoruhaṃ te   
+bhavāmbhodhipotaṃ bhavānī vibhāvyam 
+‖ 6 ‖
+
+jagannātha mannātha gaurīsanātha   
+prapannānukampinvipannārtihārin ❘  
+mahaḥstomamūrte samastaikabandho   
+namaste namaste punaste namoastu 
+‖ 7 ‖
+
+virūpākśha viśveśa viśvādideva   
+trayī mūla śambho śiva tryambaka tvam ❘  
+prasīda smara trāhi paśyāvamuktyai   
+kśhamāṃ prāpnuhi tryakśha māṃ rakśha modāt 
+‖ 8 ‖
+
+mahādeva deveśa devādideva   
+smarāre purāre yamāre hareti ❘  
+bruvāṇaḥ smariśhyāmi bhaktyā \line bhavantaṃ tato me dayāśīla deva prasīda 
+‖ 9 ‖
+
+tvadanyaḥ śaraṇyaḥ prapannasya neti   
+prasīda smaranneva hanyāstu dainyam ❘  
+na chette bhavedbhaktavātsalyahānistato   
+me dayāḻo sadā sannidhehi 
+‖ 10 ‖
+
+ayaṃ dānakālastvahaṃ dānapātraṃ   
+bhavāneva dātā tvadanyaṃ na yāche ❘  
+bhavadbhaktimeva sthirāṃ dehi mahyaṃ   
+kṛpāśīla śambho kṛtārthoasmi tasmāt 
+‖ 11 ‖
+
+paśuṃ vetsi chenmāṃ tamevādhirūḍhaḥ   
+kalaṅkīti vā mūrdhni dhatse tameva ❘  
+dvijihvaḥ punaḥ soapi te kaṇṭhabhūśhā   
+tvadaṅgīkṛtāḥ śarva sarveapi dhanyāḥ 
+‖ 12 ‖
+
+na śaknomi kartuṃ paradrohaleśaṃ   
+kathaṃ prīyase tvaṃ na jāne girīśa ❘  
+tathāhi prasannoasi kasyāpi   
+kāntāsutadrohiṇo vā pitṛdrohiṇo vā 
+‖ 13 ‖
+
+stutiṃ dhyānamarchāṃ yathāvadvidhātuṃ   
+bhajannapyajānanmaheśāvalambe ❘  
+trasantaṃ sutaṃ trātumagre   
+mṛkaṇḍoryamaprāṇanirvāpaṇaṃ tvatpadābjam 
+‖ 14 ‖
+
+śiro dṛśhṭi hṛdroga śūla pramehajvarārśo jarāyakśhmahikkāviśhārtān ❘  
+tvamādyo bhiśhagbheśhajaṃ bhasma śambho   
+tvamullāghayāsmānvapurlāghavāya 
+‖ 15 ‖
+
+daridroasmyabhadroasmi bhagnoasmi dūye   
+viśhaṇṇoasmi sannoasmi khinnoasmi chāham ❘  
+bhavānprāṇināmantarātmāsi śambho   
+mamādhiṃ na vetsi prabho rakśha māṃ tvam 
+‖ 16 ‖
+
+tvadakśhṇoḥ kaṭākśhaḥ patettryakśha yatra   
+kśhaṇaṃ kśhmā cha lakśhmīḥ svayaṃ taṃ vṛṇāte ❘  
+kirīṭasphurachchāmarachChatramālākalāchīgajakśhaumabhūśhāviśeśhaiḥ 
+‖ 17 ‖
+
+bhavānyai bhavāyāpi mātre cha pitre   
+mṛḍānyai mṛḍāyāpyaghaghnyai makhaghne ❘  
+śivāṅgyai śivāṅgāya kurmaḥ śivāyai   
+śivāyāmbikāyai namastryambakāya 
+‖ 18 ‖
+
+bhavadgauravaṃ mallaghutvaṃ viditvā   
+prabho rakśha kāruṇyadṛśhṭyānugaṃ mām ❘  
+śivātmānubhāvastutāvakśhamoahaṃ   
+svaśaktyā kṛtaṃ meaparādhaṃ kśhamasva 
+‖ 19 ‖
+
+yadā karṇarandhraṃ vrajetkālavāhadviśhatkaṇṭhaghaṇṭā ghaṇātkāranādaḥ ❘  
+vṛśhādhīśamāruhya devaupavāhyantadā   
+vatsa mā bhīriti prīṇaya tvam 
+‖ 20 ‖
+
+yadā dāruṇābhāśhaṇā bhīśhaṇā me   
+bhaviśhyantyupānte kṛtāntasya dūtāḥ ❘  
+tadā manmanastvatpadāmbhoruhasthaṃ   
+kathaṃ niśchalaṃ syānnamasteastu śambho 
+‖ 21 ‖
+
+yadā durnivāravyathoahaṃ śayāno   
+luṭhanniḥśvasanniḥsṛtāvyaktavāṇiḥ ❘  
+tadā jahnukanyājalālaṅkṛtaṃ te   
+jaṭāmaṇḍalaṃ manmanomandire syāt 
+‖ 22 ‖
+
+yadā putramitrādayo matsakāśe   
+rudantyasya hā kīdṛśīyaṃ daśeti ❘  
+tadā devadeveśa gaurīśa śambho   
+namaste śivāyetyajasraṃ bravāṇi 
+‖ 23 ‖
+
+yadā paśyatāṃ māmasau vetti   
+nāsmānayaṃ śvāsa eveti vācho bhaveyuḥ ❘  
+tadā bhūtibhūśhaṃ bhujaṅgāvanaddhaṃ   
+purāre bhavantaṃ sphuṭaṃ bhāvayeyam 
+‖ 24 ‖
+
+yadā yātanādehasandehavāhī   
+bhavedātmadehe na moho mahānme ❘  
+tadā kāśaśītāṃśusaṅkāśamīśa   
+smarāre vapuste namaste smarāmi 
+‖ 25 ‖
+
+yadāpāramachChāyamasthānamadbhirjanairvā vihīnaṃ gamiśhyāmi mārgam ❘  
+tadā taṃ nirundhaṅkṛtāntasya mārgaṃ   
+mahādeva mahyaṃ manoGYaṃ prayachCha 
+‖ 26 ‖
+
+yadā rauravādi smaranneva bhītyā   
+vrajāmyatra mohaṃ mahādeva ghoram ❘  
+tadā māmaho nātha kastārayiśhyatyanāthaṃ parādhīnamardhendumauḻe 
+‖ 27 ‖
+
+yadā śvetapatrāyatālaṅghyaśakteḥ   
+kṛtāntādbhayaṃ bhaktivātsalyabhāvāt ❘  
+tadā pāhi māṃ pārvatīvallabhānyaṃ   
+na paśyāmi pātārametādṛśaṃ me 
+‖ 28 ‖
+
+idānīmidānīṃ mṛtirme bhavitrītyaho santataṃ chintayā pīḍitoasmi ❘  
+kathaṃ nāma mā bhūnmṛtau bhītireśhā   
+namaste gatīnāṃ gate nīlakaṇṭha 
+‖ 29 ‖
+
+amaryādamevāhamābālavṛddhaṃ   
+harantaṃ kṛtāntaṃ samīkśhyāsmi bhītaḥ ❘  
+mṛtau tāvakāṅghryabjadivyaprasādādbhavānīpate nirbhayoahaṃ bhavāni 
+‖ 30 ‖
+
+jarājanmagarbhādhivāsādiduḥkhānyasahyāni jahyāṃ jagannātha deva ❘  
+bhavantaṃ vinā me gatirnaiva śambho   
+dayāḻo na jāgarti kiṃ vā dayā te 
+‖ 31 ‖
+
+śivāyeti śabdo namaḥpūrva eśha   
+smaranmuktikṛnmṛtyuhā tattvavāchī ❘  
+maheśāna mā gānmanasto vachastaḥ   
+sadā mahyametatpradānaṃ prayachCha 
+‖ 32 ‖
+
+tvamapyamba māṃ paśya śītāṃśumauḻipriye bheśhajaṃ tvaṃ bhavavyādhiśāntau  
+bahukleśabhājaṃ padāmbhojapote   
+bhavābdhau nimagnaṃ nayasvādya pāram 
+‖ 33 ‖
+
+anudyallalāṭākśhi vahni prarohairavāmasphurachchāruvāmoruśobhaiḥ ❘  
+anaṅgabhramadbhogibhūśhāviśeśhairachandrārdhachūḍairalaṃ daivatairnaḥ 
+‖ 34 ‖
+
+akaṇṭhekalaṅkādanaṅgebhujaṅgādapāṇaukapālādaphāleanalākśhāt ❘  
+amauḻauśaśāṅkādavāmekaḻatrādahaṃ devamanyaṃ na manye na manye 
+‖ 35 ‖
+
+mahādeva śambho girīśa triśūliṃstvadīyaṃ samastaṃ vibhātīti yasmāt ❘  
+śivādanyathā daivataṃ nābhijāne   
+śivoahaṃ śivoahaṃ śivoahaṃ śivoaham 
+‖ 36 ‖
+
+yatoajāyatedaṃ prapañchaṃ vichitraṃ   
+sthitiṃ yāti yasminyadekāntamante ❘  
+sa karmādihīnaḥ svayañjyotirātmā   
+śivoahaṃ śivoahaṃ śivoahaṃ śivoaham 
+‖ 37 ‖
+
+kirīṭe niśeśo lalāṭe hutāśo   
+bhuje bhogirājo gale kālimā cha ❘  
+tanau kāminī yasya tattulyadevaṃ   
+na jāne na jāne na jāne na jāne 
+‖ 38 ‖
+
+anena stavenādarādambikeśaṃ   
+parāṃ bhaktimāsādya yaṃ ye namanti ❘  
+mṛtau nirbhayāste janāstaṃ bhajante   
+hṛdambhojamadhye sadāsīnamīśam 
+‖ 39 ‖
+
+bhujaṅgapriyākalpa śambho mayaivaṃ   
+bhujaṅgaprayātena vṛttena klṛptam ❘  
+naraḥ stotrametatpaṭhitvorubhaktyā   
+suputrāyurārogyamaiśvaryameti 
+‖ 40 ‖
+
+### PlainEnglish
+
+#### shiva bhujaMgam
+
+galaddaanagaMDaM miladbhRRiMgashhaMDaM   
+chalachchaarushuMDaM jagattraaNashauMDam ❘  
+kanaddaMtakaaMDaM vipadbhaMgachaMDaM   
+shivapremapiMDaM bhaje vakratuMDam 
+‖ 1 ‖
+
+anaadyaMtamaadyaM paraM tattvamarthaM   
+chidaakaaramekaM tureeyaM tvameyam ❘  
+haribrahmamRRigyaM parabrahmaroopaM   
+manovaagateetaM mahaHshaivameeDe 
+‖ 2 ‖
+
+svashaktyaadi shaktyaMta siMhaasanasthaM   
+manohaari sarvaaMgaratnorubhooshham ❘  
+jaTaaheeMdugaMgaasthishamyaakamauLiM   
+paraashaktimitraM namaH paMchavaktram 
+‖ 3 ‖
+
+shiveshaanatatpoorushhaaghoravaamaadibhiH   
+paMchabhirhRRinmukhaiH shhaDbhiraMgaiH ❘  
+anaupamya shhaTtriMshataM tattvavidyaamateetaM   
+paraM tvaaM kathaM vetti ko vaa 
+‖ 4 ‖
+
+pravaaLapravaahaprabhaashoNamardhaM   
+marutvanmaNi shreemahaH shyaamamardham ❘  
+guNasyootametadvapuH shaivamaMtaH   
+smaraami smaraapattisaMpattihetoH 
+‖ 5 ‖
+
+svasevaasamaayaatadevaasureMdraa   
+namanmauLimaMdaaramaalaabhishhiktam ❘  
+namasyaami shaMbho padaaMbhoruhaM te   
+bhavaaMbhodhipotaM bhavaanee vibhaavyam 
+‖ 6 ‖
+
+jagannaatha mannaatha gaureesanaatha   
+prapannaanukaMpinvipannaartihaarin ❘  
+mahaHstomamoorte samastaikabaMdho   
+namaste namaste punaste namo.astu 
+‖ 7 ‖
+
+viroopaakshha vishvesha vishvaadideva   
+trayee moola shaMbho shiva tryaMbaka tvam ❘  
+praseeda smara traahi pashyaavamuktyai   
+kshhamaaM praapnuhi tryakshha maaM rakshha modaat 
+‖ 8 ‖
+
+mahaadeva devesha devaadideva   
+smaraare puraare yamaare hareti ❘  
+bruvaaNaH smarishhyaami bhaktyaa \lin.e bhavaMtaM tato me dayaasheela deva praseeda 
+‖ 9 ‖
+
+tvadanyaH sharaNyaH prapannasya neti   
+praseeda smaranneva hanyaastu dainyam ❘  
+na chette bhavedbhaktavaatsalyahaanistato   
+me dayaaLo sadaa sannidhehi 
+‖ 10 ‖
+
+ayaM daanakaalastvahaM daanapaatraM   
+bhavaaneva daataa tvadanyaM na yaache ❘  
+bhavadbhaktimeva sthiraaM dehi mahyaM   
+kRRipaasheela shaMbho kRRitaartho.asmi tasmaat 
+‖ 11 ‖
+
+pashuM vetsi chenmaaM tamevaadhirooDhaH   
+kalaMkeeti vaa moordhni dhatse tameva ❘  
+dvijihvaH punaH so.api te kaMThabhooshhaa   
+tvadaMgeekRRitaaH sharva sarve.api dhanyaaH 
+‖ 12 ‖
+
+na shaknomi kartuM paradrohaleshaM   
+kathaM preeyase tvaM na jaane gireesha ❘  
+tathaahi prasanno.asi kasyaapi   
+kaaMtaasutadrohiNo vaa pitRRidrohiNo vaa 
+‖ 13 ‖
+
+stutiM dhyaanamarchaaM yathaavadvidhaatuM   
+bhajannapyajaananmaheshaavalaMbe ❘  
+trasaMtaM sutaM traatumagre   
+mRRikaMDoryamapraaNanirvaapaNaM tvatpadaabjam 
+‖ 14 ‖
+
+shiro dRRishhTi hRRidroga shoola pramehajvaraarsho jaraayakshhmahikkaavishhaartaan ❘  
+tvamaadyo bhishhagbheshhajaM bhasma shaMbho   
+tvamullaaghayaasmaanvapurlaaghavaaya 
+‖ 15 ‖
+
+daridro.asmyabhadro.asmi bhagno.asmi dooye   
+vishhaNNo.asmi sanno.asmi khinno.asmi chaaham ❘  
+bhavaanpraaNinaamaMtaraatmaasi shaMbho   
+mamaadhiM na vetsi prabho rakshha maaM tvam 
+‖ 16 ‖
+
+tvadakshhNoH kaTaakshhaH patettryakshha yatra   
+kshhaNaM kshhmaa cha lakshhmeeH svayaM taM vRRiNaate ❘  
+kireeTasphurachchaamarachChatramaalaakalaacheegajakshhaumabhooshhaavisheshhaiH 
+‖ 17 ‖
+
+bhavaanyai bhavaayaapi maatre cha pitre   
+mRRiDaanyai mRRiDaayaapyaghaghnyai makhaghne ❘  
+shivaaMgyai shivaaMgaaya kurmaH shivaayai   
+shivaayaaMbikaayai namastryaMbakaaya 
+‖ 18 ‖
+
+bhavadgauravaM mallaghutvaM viditvaa   
+prabho rakshha kaaruNyadRRishhTyaanugaM maam ❘  
+shivaatmaanubhaavastutaavakshhamo.ahaM   
+svashaktyaa kRRitaM me.aparaadhaM kshhamasva 
+‖ 19 ‖
+
+yadaa karNaraMdhraM vrajetkaalavaahadvishhatkaMThaghaMTaa ghaNaatkaaranaadaH ❘  
+vRRishhaadheeshamaaruhya devaupavaahyaMtadaa   
+vatsa maa bheeriti preeNaya tvam 
+‖ 20 ‖
+
+yadaa daaruNaabhaashhaNaa bheeshhaNaa me   
+bhavishhyaMtyupaaMte kRRitaaMtasya dootaaH ❘  
+tadaa manmanastvatpadaaMbhoruhasthaM   
+kathaM nishchalaM syaannamaste.astu shaMbho 
+‖ 21 ‖
+
+yadaa durnivaaravyatho.ahaM shayaano   
+luThanniHshvasanniHsRRitaavyaktavaaNiH ❘  
+tadaa jahnukanyaajalaalaMkRRitaM te   
+jaTaamaMDalaM manmanomaMdire syaat 
+‖ 22 ‖
+
+yadaa putramitraadayo matsakaashe   
+rudaMtyasya haa keedRRisheeyaM dasheti ❘  
+tadaa devadevesha gaureesha shaMbho   
+namaste shivaayetyajasraM bravaaNi 
+‖ 23 ‖
+
+yadaa pashyataaM maamasau vetti   
+naasmaanayaM shvaasa eveti vaacho bhaveyuH ❘  
+tadaa bhootibhooshhaM bhujaMgaavanaddhaM   
+puraare bhavaMtaM sphuTaM bhaavayeyam 
+‖ 24 ‖
+
+yadaa yaatanaadehasaMdehavaahee   
+bhavedaatmadehe na moho mahaanme ❘  
+tadaa kaashasheetaaMshusaMkaashameesha   
+smaraare vapuste namaste smaraami 
+‖ 25 ‖
+
+yadaapaaramachChaayamasthaanamadbhirjanairvaa viheenaM gamishhyaami maargam ❘  
+tadaa taM niruMdhaMkRRitaaMtasya maargaM   
+mahaadeva mahyaM manognyaM prayachCha 
+‖ 26 ‖
+
+yadaa rauravaadi smaranneva bheetyaa   
+vrajaamyatra mohaM mahaadeva ghoram ❘  
+tadaa maamaho naatha kastaarayishhyatyanaathaM paraadheenamardheMdumauLe 
+‖ 27 ‖
+
+yadaa shvetapatraayataalaMghyashakteH   
+kRRitaaMtaadbhayaM bhaktivaatsalyabhaavaat ❘  
+tadaa paahi maaM paarvateevallabhaanyaM   
+na pashyaami paataarametaadRRishaM me 
+‖ 28 ‖
+
+idaaneemidaaneeM mRRitirme bhavitreetyaho saMtataM chiMtayaa peeDito.asmi ❘  
+kathaM naama maa bhoonmRRitau bheetireshhaa   
+namaste gateenaaM gate neelakaMTha 
+‖ 29 ‖
+
+amaryaadamevaahamaabaalavRRiddhaM   
+haraMtaM kRRitaaMtaM sameekshhyaasmi bheetaH ❘  
+mRRitau taavakaaMghryabjadivyaprasaadaadbhavaaneepate nirbhayo.ahaM bhavaani 
+‖ 30 ‖
+
+jaraajanmagarbhaadhivaasaadiduHkhaanyasahyaani jahyaaM jagannaatha deva ❘  
+bhavaMtaM vinaa me gatirnaiva shaMbho   
+dayaaLo na jaagarti kiM vaa dayaa te 
+‖ 31 ‖
+
+shivaayeti shabdo namaHpoorva eshha   
+smaranmuktikRRinmRRityuhaa tattvavaachee ❘  
+maheshaana maa gaanmanasto vachastaH   
+sadaa mahyametatpradaanaM prayachCha 
+‖ 32 ‖
+
+tvamapyaMba maaM pashya sheetaaMshumauLipriye bheshhajaM tvaM bhavavyaadhishaaMtau  
+bahukleshabhaajaM padaaMbhojapote   
+bhavaabdhau nimagnaM nayasvaadya paaram 
+‖ 33 ‖
+
+anudyallalaaTaakshhi vahni prarohairavaamasphurachchaaruvaamorushobhaiH ❘  
+anaMgabhramadbhogibhooshhaavisheshhairachaMdraardhachooDairalaM daivatairnaH 
+‖ 34 ‖
+
+akaMThekalaMkaadanaMgebhujaMgaadapaaNaukapaalaadaphaale.analaakshhaat ❘  
+amauLaushashaaMkaadavaamekaLatraadahaM devamanyaM na manye na manye 
+‖ 35 ‖
+
+mahaadeva shaMbho gireesha trishooliMstvadeeyaM samastaM vibhaateeti yasmaat ❘  
+shivaadanyathaa daivataM naabhijaane   
+shivo.ahaM shivo.ahaM shivo.ahaM shivo.aham 
+‖ 36 ‖
+
+yato.ajaayatedaM prapaMchaM vichitraM   
+sthitiM yaati yasminyadekaaMtamaMte ❘  
+sa karmaadiheenaH svayaMjyotiraatmaa   
+shivo.ahaM shivo.ahaM shivo.ahaM shivo.aham 
+‖ 37 ‖
+
+kireeTe nishesho lalaaTe hutaasho   
+bhuje bhogiraajo gale kaalimaa cha ❘  
+tanau kaaminee yasya tattulyadevaM   
+na jaane na jaane na jaane na jaane 
+‖ 38 ‖
+
+anena stavenaadaraadaMbikeshaM   
+paraaM bhaktimaasaadya yaM ye namaMti ❘  
+mRRitau nirbhayaaste janaastaM bhajaMte   
+hRRidaMbhojamadhye sadaaseenameesham 
+‖ 39 ‖
+
+bhujaMgapriyaakalpa shaMbho mayaivaM   
+bhujaMgaprayaatena vRRittena klRRiptam ❘  
+naraH stotrametatpaThitvorubhaktyaa   
+suputraayuraarogyamaishvaryameti 
+‖ 40 ‖
+

@@ -315,3 +315,99 @@ yaaH _pha_ lineeryaa a' _pha_ laa a' _pu_ shhpaayaashcha' _pu_ shhpiNee''H ❘ b
  **శుద్ధోదక అభిషేకం  
 ** ఓం ఆ _పో_ హిష్ఠా మ' _యో_ భువః' ❘ తా న' _ఊ_ ర్జే ద'ధాతన | _మ_ హేరణా' _య_ చక్ష'సే | యో వః' _శి_ వత' _మో_ రసః' | తస్య' భాజయ _తే_ హ _నః_ | _ఉ_ _ష_ తీరి'వ _మా_ తరః' | త _స్మా_ అర'ంగ మామ వః | య _స్య_ క్షయా' _య_ జి'న్వథ | ఆపో' _జ_ నయ'థా చ నః ‖ ఇతి పంచామృతేన స్నాపయిత్వా ‖  
 
+### English
+
+#### pañchāmṛta snānābhiśhekam
+
+kśhīrābhiśhekaṃ  
+āpyā'yasva same'tu te viśvata'ssomavṛśhṇi'yaṃ ❘  
+bhavāvāja'sya saṅgadhe 
+‖ kśhīreṇa snapayāmi ‖
+
+dadhyābhiśhekaṃ  
+dadhikrāvaṇṇo' akāriśhaṃ jiśhṇoraśva'sya vājina'ḥ ❘  
+surabhino mukhā'karatpraṇa āyūg'ṃśhitāriśhat 
+‖ dadhnā snapayāmi ‖
+
+ājyābhiśhekaṃ  
+śukrama'si jyoti'rasi tejo''si devovassa'vitotpu'nā tvacChi'dreṇa pavitre'ṇa vaso ssūrya'sya raśmibhi'ḥ 
+‖ ājyena snapayāmi ‖
+
+madhu abhiśhekaṃ  
+madhuvātā' ṛtāyate madhukśharanti sindha'vaḥ ❘  
+mādhvī''rnassantvośha'dhīḥ ❘  
+madhunakta' mutośhasi madhu'matpārthi'vagṃ raja'ḥ ❘  
+madhudyaura'stu naḥ pitā ❘  
+madhu'mānno vanaspatirmadhu'māgṃ astu sūrya'ḥ ❘  
+mādhvīrgāvo' bhavantu naḥ 
+‖ madhunā snapayāmi ‖
+
+śarkarābhiśhekaṃ  
+svāduḥ pa'vasva divyāya janma'ne svādurindrā''ya suhavī''tu nāmne'' ❘  
+svādurmitrāya varu'ṇāya vāyave bṛhaspata'ye madhu'māgṃ adā''bhyaḥ 
+‖ śarkarayā snapayāmi ‖
+
+yāḥ phalinīryā a'phalā a'puśhpāyāścha' puśhpiṇī''ḥ ❘  
+bṛhaspati' prasūtāstāno muñchastvagṃ ha'saḥ 
+‖ phalodakena snapayāmi ‖
+
+śuddhodaka abhiśhekaṃ  
+oṃ āpo hiśhṭhā ma'yobhuva'ḥ ❘  
+tā na' ūrje da'dhātana ❘  
+maheraṇā'ya chakśha'se ❘  
+yo va'ḥ śivata'mo rasa'ḥ ❘  
+tasya' bhājayate ha naḥ ❘  
+uśhatīri'va mātara'ḥ ❘  
+tasmā ara'ṅga māma vaḥ ❘  
+ yasya kśhayā'ya ji'nvatha ❘  
+āpo' janaya'thā cha naḥ 
+‖ iti pañchāmṛtena snāpayitvā ‖
+
+### PlainEnglish
+
+#### panchaamRRita snaanaabhishhekam
+
+kshheeraabhishhekaM  
+aapyaa'yasva same'tu te vishvata'ssomavRRishhNi'yaM ❘  
+bhavaavaaja'sya saMgadhe 
+‖ kshheereNa snapayaami ‖
+
+dadhyaabhishhekaM  
+dadhikraavaNNo' akaarishhaM jishhNorashva'sya vaajina'H ❘  
+surabhino mukhaa'karatpraNa aayoog'Mshhitaarishhat 
+‖ dadhnaa snapayaami ‖
+
+aajyaabhishhekaM  
+shukrama'si jyoti'rasi tejo'.asi devovassa'vitotpu'naa tvacChi'dreNa pavitre'Na vaso ssoorya'sya rashmibhi'H 
+‖ aajyena snapayaami ‖
+
+madhu abhishhekaM  
+madhuvaataa' RRitaayate madhukshharaMti siMdha'vaH ❘  
+maadhvee''rnassaMtvoshha'dheeH ❘  
+madhunakta' mutoshhasi madhu'matpaarthi'vagM raja'H ❘  
+madhudyaura'stu naH pitaa ❘  
+madhu'maanno vanaspatirmadhu'maagM astu soorya'H ❘  
+maadhveergaavo' bhavaMtu naH 
+‖ madhunaa snapayaami ‖
+
+sharkaraabhishhekaM  
+svaaduH pa'vasva divyaaya janma'ne svaaduriMdraa''ya suhavee''tu naamne'' ❘  
+svaadurmitraaya varu'Naaya vaayave bRRihaspata'ye madhu'maagM adaa''bhyaH 
+‖ sharkarayaa snapayaami ‖
+
+yaaH phalineeryaa a'phalaa a'pushhpaayaashcha' pushhpiNee''H ❘  
+bRRihaspati' prasootaastaano muMchastvagM ha'saH 
+‖ phalodakena snapayaami ‖
+
+shuddhodaka abhishhekaM  
+oM aapo hishhThaa ma'yobhuva'H ❘  
+taa na' oorje da'dhaatana ❘  
+maheraNaa'ya chakshha'se ❘  
+yo va'H shivata'mo rasa'H ❘  
+tasya' bhaajayate ha naH ❘  
+ushhateeri'va maatara'H ❘  
+tasmaa ara'nga maama vaH ❘  
+ yasya kshhayaa'ya ji'nvatha ❘  
+aapo' janaya'thaa cha naH 
+‖ iti paMchaamRRitena snaapayitvaa ‖
+

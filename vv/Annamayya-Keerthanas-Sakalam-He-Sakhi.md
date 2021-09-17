@@ -302,3 +302,49 @@ d\f2
 వినుత భొగ సుఖ విభవం దధసే ‖  
 ద్\f2  
 
+### English
+
+#### annamayya kīrtana sakalaṃ he sakhi
+
+sakalaṃ he\f1  \f0 sakhi jānāme tat   
+prakata vilāsaṃ paramaṃ dadhase ‖
+
+alika mRRīga mada maya maśhi   
+kalanau jvalatāhe sakhi jānāme ❘  
+lalitaṃ tava pallavi tamanasi ni-  
+scalatara megha śyāmaṃ dadhase ‖
+
+cārukapola sthala karāṅkita   
+vicāraṃ he sakhi jānāme ❘  
+nārayaṇa mahināyaka śayanaṃ   
+śriramanaṃ tava citte dadhase ‖
+
+ghana kuca śaila krascita vibhumani   
+jananaṃ he sakhi jānāme ❘  
+kanaturasa veṅkaṭa giripati   
+vinuta bhoga sukha vibhavaṃ dadhase ‖
+
+d\f2  
+### PlainEnglish
+
+#### annamayya keertana sakalaM he sakhi
+
+sakalaM he\f1  \f0 sakhi jaanaam.e tat   
+prakata vilaasaM paramaM dadhase ‖
+
+alika mRReega mada maya mashhi   
+kalanau jvalataahe sakhi jaanaame ❘  
+lalitaM tava pallavi tamanasi ni-  
+scalatara megha shyaamaM dadhase ‖
+
+caarukap.ola sthala karaaMkita   
+vicaaraM he sakhi jaanaame ❘  
+naarayaNa mahinaayaka shayanaM   
+shriramanaM tava citte dadhase ‖
+
+ghana kuca shaila krascita vibhumani   
+jananaM he sakhi jaanaame ❘  
+kanaturasa veMkaTa giripati   
+vinuta bh.oga sukha vibhavaM dadhase ‖
+
+d\f2  

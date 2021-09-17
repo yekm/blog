@@ -458,3 +458,81 @@ rogabaMdhavimokshhaM ca satyametanna saMshayaH ‖
 ‖ ఇతి శ్రీ మార్కండేయపురాణే అంగారక కవచం సంపూర్ణమ్ ‖  
 
 
+### English
+
+#### aṅgāraka kavacham (kuja kavacham)
+
+asya śrī aṅgāraka kavacasya, kaśyapa ṛśhīḥ, anuśhṭup candaḥ, aṅgārako devatā, bhauma prītyarthe jape viniyogaḥ ‖
+
+dhyānam  
+raktāmbaro raktavapuḥ kirīṭī caturbhujo meśhagamo gadābhṛt ❘  
+dharāsutaḥ śaktidharaśca śūlī sadā mama syādvaradaḥ praśāntaḥ ‖
+
+atha aṅgāraka kavacam  
+aṅgārakaḥ śiro rakśhet mukhaṃ vai dharaṇīsutaḥ ❘  
+śravau raktambaraḥ pātu netre me raktalocanaḥ 
+‖ 1 ‖
+
+nāsāṃ śaktidharaḥ pātu mukhaṃ me raktalocanaḥ ❘  
+bhujau me raktamālī ca hastau śaktidharastathā 
+‖2 ‖
+
+vakśhaḥ pātu varāṅgaśca hṛdayaṃ pātu rohitaḥ ❘  
+kaṭiṃ me graharājaśca mukhaṃ caiva dharāsutaḥ 
+‖ 3 ‖
+
+jānujaṅghe kujaḥ pātu pādau bhaktapriyaḥ sadā ❘  
+sarvāṇyanyāni cāṅgāni rakśhenme meśhavāhanaḥ 
+‖ 4 ‖
+
+phalaśrutiḥ  
+ya idaṃ kavacaṃ divyaṃ sarvaśatrunivāraṇam ❘  
+bhūtapretapiśācānāṃ nāśanaṃ sarvasiddhidam ‖
+
+sarvarogaharaṃ caiva sarvasampatpradaṃ śubham ❘  
+bhuktimuktipradaṃ nRRīṇāṃ sarvasaubhāgyavardhanam ‖
+
+rogabandhavimokśhaṃ ca satyametanna saṃśayaḥ ‖
+
+
+‖ iti śrī mārkaṇḍeyapurāṇe aṅgāraka kavacaṃ sampūrṇam ‖
+
+### PlainEnglish
+
+#### aMgaaraka kavacham (kuja kavacham)
+
+asya shree aMgaaraka kavacasya, kashyapa RRishheeH, anushhTup caMdaH, aMgaarako devataa, bhauma preetyarthe jape viniyogaH ‖
+
+dhyaanam  
+raktaaMbaro raktavapuH kireeTee caturbhujo meshhagamo gadaabhRRit ❘  
+dharaasutaH shaktidharashca shoolee sadaa mama syaadvaradaH prashaaMtaH ‖
+
+atha aMgaaraka kavacam  
+aMgaarakaH shiro rakshhet mukhaM vai dharaNeesutaH ❘  
+shravau raktaMbaraH paatu netre me raktalocanaH 
+‖ 1 ‖
+
+naasaaM shaktidharaH paatu mukhaM me raktalocanaH ❘  
+bhujau me raktamaalee ca hastau shaktidharastathaa 
+‖2 ‖
+
+vakshhaH paatu varaaMgashca hRRidayaM paatu rohitaH ❘  
+kaTiM me graharaajashca mukhaM caiva dharaasutaH 
+‖ 3 ‖
+
+jaanujaMghe kujaH paatu paadau bhaktapriyaH sadaa ❘  
+sarvaaNyanyaani caaMgaani rakshhenme meshhavaahanaH 
+‖ 4 ‖
+
+phalashrutiH  
+ya idaM kavacaM divyaM sarvashatrunivaaraNam ❘  
+bhootapretapishaacaanaaM naashanaM sarvasiddhidam ‖
+
+sarvarogaharaM caiva sarvasaMpatpradaM shubham ❘  
+bhuktimuktipradaM nRReeNaaM sarvasaubhaagyavardhanam ‖
+
+rogabaMdhavimokshhaM ca satyametanna saMshayaH ‖
+
+
+‖ iti shree maarkaMDeyapuraaNe aMgaaraka kavacaM saMpoorNam ‖
+

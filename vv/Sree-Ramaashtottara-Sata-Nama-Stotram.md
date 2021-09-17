@@ -861,3 +861,177 @@ raghunaathaaya naathaaya seetaayaaHpataye namaH ‖ 19 ‖
 
 ‖ ఇతి శ్రీస్కందపుఱాణే శ్రీరామ అష్టోత్తర శతనామస్తోత్రమ్ ‖  
 
+### English
+
+#### śrī rāmāśhṭottara śata nāma stotram
+
+
+‖ śrī rāma aśhṭottara śatanāmastotram ‖
+
+śrīrāmo rāmabhadraścha rāmachandraścha śāśvataḥ ❘  
+rājīvalochanaḥ śrīmān rājendro raghupuṅgavaḥ 
+‖ 1 ‖
+
+jānakīvallabho jaitro jitāmitro janārdanaḥ ❘  
+viśvāmitrapriyo dāntaḥ śaraṇatrāṇatatparaḥ 
+‖ 2 ‖
+
+vālipramathano vāgmī satyavāk satyavikramaḥ ❘  
+satyavrato vratadharaḥ sadā hanumadāśrita: 
+‖ 3 ‖
+
+kousalyeyaḥ kharadhvaṃsī virādhavadhapaṇḍitaḥ ❘  
+vibhīśhaṇaparitrātā harakodaṇḍakhaṇḍanaḥ 
+‖ 4 ‖
+
+saptatālaprabhettā cha daśagrīvaśiroharaḥ ❘  
+jāmadagvyamahādarpadalanastāṭakāntakaḥ 
+‖ 5 ‖
+
+vedāntasāro vedātmā bhavarogasya bheśhajam ❘  
+dūśhaṇatriśirohantā trimūrtistriguṇātmakaḥ 
+‖ 6 ‖
+
+trivikramastrilokātmā puṇyachāritrakīrtanaḥ ❘  
+trilokarakśhako dhanvī daṇḍakāraṇyakarśhaṇaḥ 
+‖ 7 ‖
+
+ahalyāśāpaśamanaḥ pitṛbhakto varapradaḥ ❘  
+jitendriyo jitakrodho jitāvadyo jagadguruḥ 
+‖ 8 ‖
+
+ṛkśhavānarasaṅghātī chitrakūṭasamāśrayaḥ ❘  
+jayantatrāṇavaradaḥ sumitrāputrasevitaḥ 
+‖ 9 ‖
+
+sarvadevādhidevaśchamṛtavānarajīvanaḥ ❘  
+māyāmārīchahantā cha mahādevo mahābhujaḥ 
+‖ 10 ‖
+
+sarvadevastutaḥ soumyo brahmaṇyo munisaṃstutaḥ ❘  
+mahāyogī mahodāraḥ sugrīvepsitarājyadaḥ 
+‖ 11 ‖
+
+sarvapuṇyādhikaphalaḥ smṛtasarvāghanāśanaḥ ❘  
+ādipuruśhaḥ paramapuruśho mahāpuruśha eva cha 
+‖ 12 ‖
+
+puṇyodayo dayāsāraḥ purāṇapuruśhottamaḥ ❘  
+smitavaktro mitābhāśhī pūrvabhāśhī cha rāghavaḥ 
+‖ 13 ‖
+
+anantaguṇagambhīro dhīrodāttaguṇottamaḥ ❘  
+māyāmānuśhachāritro mahādevādipūjitaḥ 
+‖ 14 ‖
+
+setukṛjjitavārāśiḥ sarvatīrthamayo hariḥ ❘  
+śyāmāṅgaḥ sundaraḥ śūraḥ pītavāsā dhanurdharaḥ 
+‖ 15 ‖
+
+sarvayaGYādhipo yajvā jarāmaraṇavarjitaḥ ❘  
+vibhīśhaṇapratiśhṭhātā sarvāpaguṇavarjitaḥ 
+‖ 16 ‖
+
+paramātmā paraṃ brahma sacchidānandavigrahaḥ ❘  
+parañjyotiḥ parandhāma parākāśaḥ parātparaḥ ❘  
+pareśaḥ pāragaḥ pāraḥ sarvadevātmakaḥ paraḥ 
+‖ 17 ‖
+
+śrīrāmāśhṭottaraśataṃ bhavatāpanivārakam ❘  
+sampatkaraṃ trisandhyāsu paṭhatāṃ bhaktipūrvakam 
+‖ 18 ‖
+
+rāmāya rāmabhadrāya rāmachandrāya vedhase ❘  
+raghunāthāya nāthāya sītāyāḥpataye namaḥ 
+‖ 19 ‖
+
+
+‖ iti śrīskandapuRāṇe śrīrāma aśhṭottara śatanāmastotram ‖
+
+### PlainEnglish
+
+#### shree raamaashhTottara shata naama stotram
+
+
+‖ shree raama ashhTottara shatanaamastotram ‖
+
+shreeraamo raamabhadrashcha raamachaMdrashcha shaashvataH ❘  
+raajeevalochanaH shreemaan raajeMdro raghupuMgavaH 
+‖ 1 ‖
+
+jaanakeevallabho jaitro jitaamitro janaardanaH ❘  
+vishvaamitrapriyo daaMtaH sharaNatraaNatatparaH 
+‖ 2 ‖
+
+vaalipramathano vaagmee satyavaak satyavikramaH ❘  
+satyavrato vratadharaH sadaa hanumadaashrita: 
+‖ 3 ‖
+
+k.ousalyeyaH kharadhvaMsee viraadhavadhapaMDitaH ❘  
+vibheeshhaNaparitraataa harakodaMDakhaMDanaH 
+‖ 4 ‖
+
+saptataalaprabhettaa cha dashagreevashiroharaH ❘  
+jaamadagvyamahaadarpadalanastaaTakaaMtakaH 
+‖ 5 ‖
+
+vedaaMtasaaro vedaatmaa bhavarogasya bheshhajam ❘  
+dooshhaNatrishirohaMtaa trimoortistriguNaatmakaH 
+‖ 6 ‖
+
+trivikramastrilokaatmaa puNyachaaritrakeertanaH ❘  
+trilokarakshhako dhanvee daMDakaaraNyakarshhaNaH 
+‖ 7 ‖
+
+ahalyaashaapashamanaH pitRRibhakto varapradaH ❘  
+jiteMdriyo jitakrodho jitaavadyo jagadguruH 
+‖ 8 ‖
+
+RRikshhavaanarasaMghaatee chitrakooTasamaashrayaH ❘  
+jayaMtatraaNavaradaH sumitraaputrasevitaH 
+‖ 9 ‖
+
+sarvadevaadhidevashchamRRitavaanarajeevanaH ❘  
+maayaamaareechahaMtaa cha mahaadevo mahaabhujaH 
+‖ 10 ‖
+
+sarvadevastutaH s.oumyo brahmaNyo munisaMstutaH ❘  
+mahaayogee mahodaaraH sugreevepsitaraajyadaH 
+‖ 11 ‖
+
+sarvapuNyaadhikaphalaH smRRitasarvaaghanaashanaH ❘  
+aadipurushhaH paramapurushho mahaapurushha eva cha 
+‖ 12 ‖
+
+puNyodayo dayaasaaraH puraaNapurushhottamaH ❘  
+smitavaktro mitaabhaashhee poorvabhaashhee cha raaghavaH 
+‖ 13 ‖
+
+anaMtaguNagaMbheero dheerodaattaguNottamaH ❘  
+maayaamaanushhachaaritro mahaadevaadipoojitaH 
+‖ 14 ‖
+
+setukRRijjitavaaraashiH sarvateerthamayo hariH ❘  
+shyaamaaMgaH suMdaraH shooraH peetavaasaa dhanurdharaH 
+‖ 15 ‖
+
+sarvayagnyaadhipo yajvaa jaraamaraNavarjitaH ❘  
+vibheeshhaNapratishhThaataa sarvaapaguNavarjitaH 
+‖ 16 ‖
+
+paramaatmaa paraM brahma sacchidaanaMdavigrahaH ❘  
+paraMjyotiH paraMdhaama paraakaashaH paraatparaH ❘  
+pareshaH paaragaH paaraH sarvadevaatmakaH paraH 
+‖ 17 ‖
+
+shreeraamaashhTottarashataM bhavataapanivaarakam ❘  
+saMpatkaraM trisaMdhyaasu paThataaM bhaktipoorvakam 
+‖ 18 ‖
+
+raamaaya raamabhadraaya raamachaMdraaya vedhase ❘  
+raghunaathaaya naathaaya seetaayaaHpataye namaH 
+‖ 19 ‖
+
+
+‖ iti shreeskaMdapuRaaNe shreeraama ashhTottara shatanaamastotram ‖
+

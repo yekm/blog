@@ -315,3 +315,49 @@ aravirai nunu j.emalu naMTinadigaana ‖
 తిరు వేంకటాచలా ధిపుని కౌగిట గలసి  
 అరవిరై నును జెమలు నంటినదిగాన ‖  
 
+### English
+
+#### annamayya kīrtana paluku tenela talli
+
+rāgaṃ: sāḻaṅganāṭa  
+paluku denela talli pavaḻiñcenu ❘  
+kaliki tanamula vibhuni galasinadi gāna ‖
+
+niganigani momupai neRulu gelakula jedara  
+pagalaina dāka jeli pavaḻiñcenu ❘  
+tegani pariṇatulato tellavārinadāka  
+jagadeka pati manasu jaṭṭi gone gāna ‖
+
+koṅgu jārina meRugu gubba lolayaga daruṇi  
+baṅgāru meḍapai bavaḻiñcenu ❘  
+ceṅgaluva kanugonala siṅgāramulu dolaka  
+aṅgaja gurunitoḍa nalasinadigāna ‖
+
+muripempu naṭanato mutyāla malagupai  
+paravaśambuna daruṇi pavaḻiñcenu ❘  
+tiru veṅkaṭācalā dhipuni kaugiṭa galasi  
+aravirai nunu jemalu naṇṭinadigāna ‖
+
+### PlainEnglish
+
+#### annamayya keertana paluku ten.ela talli
+
+raagaM: saaLaMganaaTa  
+paluku den.ela talli pavaLiMc.enu ❘  
+kaliki tanamula vibhuni galasinadi gaana ‖
+
+niganigani momupai n.eRulu g.elakula j.edara  
+pagalaina daaka j.eli pavaLiMc.enu ❘  
+t.egani pariNatulato t.ellavaarinadaaka  
+jagadeka pati manasu jaTTi g.on.e gaana ‖
+
+k.oMgu jaarina m.eRugu gubba l.olayaga daruNi  
+baMgaaru meDapai bavaLiMc.enu ❘  
+c.eMgaluva kanug.onala siMgaaramulu d.olaka  
+aMgaja gurunitoDa nalasinadigaana ‖
+
+murip.eMpu naTanato mutyaala malagupai  
+paravashaMbuna daruNi pavaLiMc.enu ❘  
+tiru veMkaTaacalaa dhipuni kaugiTa galasi  
+aravirai nunu j.emalu naMTinadigaana ‖
+

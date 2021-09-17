@@ -1498,3 +1498,301 @@ rakshhaaM kRRitvaa ca paaNDoonaaM tatraivaantaradheeyata ‖ 38 ‖
 రక్షాం కృత్వా చ పాండూనాం తత్రైవాంతరధీయత ‖ 38 ‖  
 
 
+### English
+
+#### śrī durgā nakśhatra mālikā stuti
+
+virāṭanagaraṃ ramyaṃ gacChamāno yudhiśhṭhiraḥ ❘  
+astuvanmanasā devīṃ durgāṃ tribhuvaneśvarīm 
+‖ 1 ‖
+
+yaśodāgarbhasambhūtāṃ nārāyaṇavarapriyām ❘  
+nandagopakulejātāṃ maṅgaḻyāṃ kulavardhanīm 
+‖ 2 ‖
+
+kaṃsavidrāvaṇakarīṃ asurāṇāṃ kśhayaṅkarīm ❘  
+śilātaṭavinikśhiptāṃ ākāśaṃ pratigāminīm 
+‖ 3 ‖
+
+vāsudevasya bhaginīṃ divyamālya vibhūśhitām ❘  
+divyāmbaradharāṃ devīṃ khaḍgakheṭakadhāriṇīm 
+‖ 4 ‖
+
+bhārāvataraṇe puṇye ye smaranti sadāśivām ❘  
+tānvai tārayate pāpāt paṅkegāmiva durbalām 
+‖ 5 ‖
+
+stotuṃ pracakrame bhūyo vividhaiḥ stotrasambhavaiḥ ❘  
+āmantrya darśanākāṅkśhī rājā devīṃ sahānujaḥ 
+‖ 6 ‖
+
+namoastu varade kṛśhṇe kumāri brahmacāriṇi ❘  
+bālārka sadṛśākāre pūrṇacandranibhānane 
+‖ 7 ‖
+
+caturbhuje caturvaktre pīnaśroṇipayodhare ❘  
+mayūrapiñChavalaye keyūrāṅgadadhāriṇi 
+‖ 8 ‖
+
+bhāsi devi yadā padmā nārāyaṇaparigrahaḥ ❘  
+svarūpaṃ brahmacaryaṃ ca viśadaṃ tava khecari 
+‖ 9 ‖
+
+kṛśhṇacChavisamā kṛśhṇā saṅkarśhaṇasamānanā ❘  
+bibhratī vipulau bāhū śakradhvajasamucChrayau 
+‖ 10 ‖
+
+pātrī ca paṅkajī kaṇṭhī strī viśuddhā ca yā bhuvi ❘  
+pāśaṃ dhanurmahācakraṃ vividhānyāyudhāni ca 
+‖ 11 ‖
+
+kuṇḍalābhyāṃ supūrṇābhyāṃ karṇābhyāṃ ca vibhūśhitā ❘  
+candravispārdhinā devi mukhena tvaṃ virājase 
+‖ 12 ‖
+
+mukuṭena vicitreṇa keśabandhena śobhinā ❘  
+bhujaṅgā'bhogavāsena śroṇisūtreṇa rājatā 
+‖ 13 ‖
+
+bhrājase cāvabaddhena bhogeneveha mandaraḥ ❘  
+dhvajena śikhipiñChānāṃ ucChritena virājase 
+‖ 14 ‖
+
+kaumāraṃ vratamāsthāya tridivaṃ pāvitaṃ tvayā ❘  
+tena tvaṃ stūyase devi tridaśaiḥ pūjyaseapi ca 
+‖ 15 ‖
+
+trailokya rakśhaṇārthāya mahiśhāsuranāśini ❘  
+prasannā me suraśreśhṭhe dayāṃ kuru śivā bhava 
+‖ 16 ‖
+
+jayā tvaṃ vijayā caiva saṅgrāme ca jayapradā ❘  
+mamā'pi vijayaṃ dehi varadā tvaṃ ca sāmpratam 
+‖ 17 ‖
+
+vindhye caiva nagaśreśhṭe tava sthānaṃ hi śāśvatam ❘  
+kāḻi kāḻi mahākāḻi sīdhumāṃsa paśupriye 
+‖ 18 ‖
+
+kṛtānuyātrā bhūtaistvaṃ varadā kāmacāriṇi ❘  
+bhārāvatāre ye ca tvāṃ saṃsmariśhyanti mānavāḥ 
+‖ 19 ‖
+
+praṇamanti ca ye tvāṃ hi prabhāte tu narā bhuvi ❘  
+na teśhāṃ durlabhaṃ kiñcit putrato dhanatoapi vā 
+‖ 20 ‖
+
+durgāttārayase durge tatvaṃ durgā smṛtā janaiḥ ❘  
+kāntāreśhvavapannānāṃ magnānāṃ ca mahārṇave 
+‖ 21 ‖
+
+(dasyubhirvā niruddhānāṃ tvaṃ gatiḥ paramā nṛṇāma)  
+jalaprataraṇe caiva kāntāreśhvaṭavīśhu ca ❘  
+ye smaranti mahādevīṃ na ca sīdanti te narāḥ 
+‖ 22 ‖
+
+tvaṃ kīrtiḥ śrīrdhṛtiḥ siddhiḥ hrīrvidyā santatirmatiḥ ❘  
+sandhyā rātriḥ prabhā nidrā jyotsnā kāntiḥ kśhamā dayā 
+‖ 23 ‖
+
+nṛṇāṃ ca bandhanaṃ mohaṃ putranāśaṃ dhanakśhayam ❘  
+vyādhiṃ mṛtyuṃ bhayaṃ caiva pūjitā nāśayiśhyasi 
+‖ 24 ‖
+
+soahaṃ rājyātparibhraśhṭaḥ śaraṇaṃ tvāṃ prapannavān ❘  
+praṇataśca yathā mūrdhnā tava devi sureśvari 
+‖ 25 ‖
+
+trāhi māṃ padmapatrākśhi satye satyā bhavasva naḥ ❘  
+śaraṇaṃ bhava me durge śaraṇye bhaktavatsale 
+‖ 26 ‖
+
+evaṃ stutā hi sā devī darśayāmāsa pāṇḍavam ❘  
+upagamya tu rājānamidaṃ vacanamabravīt 
+‖ 27 ‖
+
+śṛṇu rājan mahābāho madīyaṃ vacanaṃ prabho ❘  
+bhaviśhyatyacirādeva saṅgrāme vijayastava 
+‖ 28 ‖
+
+mama prasādānnirjitya hatvā kaurava vāhinīm ❘  
+rājyaṃ niśhkaṇṭakaṃ kṛtvā bhokśhyase medinīṃ punaḥ 
+‖ 29 ‖
+
+bhrātṛbhiḥ sahito rājan prītiṃ prāpsyasi puśhkalām ❘  
+matprasādācca te saukhyaṃ ārogyaṃ ca bhaviśhyati 
+‖ 30 ‖
+
+ye ca saṅkīrtayiśhyanti loke vigatakalmaśhāḥ ❘  
+teśhāṃ tuśhṭā pradāsyāmi rājyamāyurvapussutam 
+‖ 31 ‖
+
+pravāse nagare cāpi saṅgrāme śatrusaṅkaṭe ❘  
+aṭavyāṃ durgakāntāre sāgare gahane girau 
+‖ 32 ‖
+
+ye smariśhyanti māṃ rājan yathāhaṃ bhavatā smṛtā ❘  
+na teśhāṃ durlabhaṃ kiñcidasmin loke bhaviśhyati 
+‖ 33 ‖
+
+ya idaṃ paramastotraṃ bhaktyā śṛṇuyādvā paṭheta vā ❘  
+tasya sarvāṇi kāryāṇi sidhdhiṃ yāsyanti pāṇḍavāḥ 
+‖ 34 ‖
+
+matprasādācca vassarvān virāṭanagare sthitān ❘  
+na praGYāsyanti kuravaḥ narā vā tannivāsinaḥ 
+‖ 35 ‖
+
+ityuktvā varadā devī yudhiśhṭhiramarindamam ❘  
+rakśhāṃ kṛtvā ca pāṇḍūnāṃ tatraivāntaradhīyata 
+‖ 38 ‖
+
+### PlainEnglish
+
+#### shree durgaa nakshhatra maalikaa stuti
+
+viraaTanagaraM ramyaM gacChamaano yudhishhThiraH ❘  
+astuvanmanasaa deveeM durgaaM tribhuvaneshvareem 
+‖ 1 ‖
+
+yashodaagarbhasaMbhootaaM naaraayaNavarapriyaam ❘  
+nandagopakulejaataaM maMgaLyaaM kulavardhaneem 
+‖ 2 ‖
+
+kaMsavidraavaNakareeM asuraaNaaM kshhayaMkareem ❘  
+shilaataTavinikshhiptaaM aakaashaM pratigaamineem 
+‖ 3 ‖
+
+vaasudevasya bhagineeM divyamaalya vibhooshhitaam ❘  
+divyaaMbaradharaaM deveeM khaDgakheTakadhaariNeem 
+‖ 4 ‖
+
+bhaaraavataraNe puNye ye smaranti sadaashivaam ❘  
+taanvai taarayate paapaat paMkegaamiva durbalaam 
+‖ 5 ‖
+
+stotuM pracakrame bhooyo vividhaiH stotrasaMbhavaiH ❘  
+aamantrya darshanaakaankshhee raajaa deveeM sahaanujaH 
+‖ 6 ‖
+
+namo.astu varade kRRishhNe kumaari brahmacaariNi ❘  
+baalaarka sadRRishaakaare poorNacandranibhaanane 
+‖ 7 ‖
+
+caturbhuje caturvaktre peenashroNipayodhare ❘  
+mayoorapiMChavalaye keyooraaMgadadhaariNi 
+‖ 8 ‖
+
+bhaasi devi yadaa padmaa naaraayaNaparigrahaH ❘  
+svaroopaM brahmacaryaM ca vishadaM tava khecari 
+‖ 9 ‖
+
+kRRishhNacChavisamaa kRRishhNaa saMkarshhaNasamaananaa ❘  
+bibhratee vipulau baahoo shakradhvajasamucChrayau 
+‖ 10 ‖
+
+paatree ca paMkajee kaMThee stree vishuddhaa ca yaa bhuvi ❘  
+paashaM dhanurmahaacakraM vividhaanyaayudhaani ca 
+‖ 11 ‖
+
+kuMDalaabhyaaM supoorNaabhyaaM karNaabhyaaM ca vibhooshhitaa ❘  
+candravispaardhinaa devi mukhena tvaM viraajase 
+‖ 12 ‖
+
+mukuTena vicitreNa keshabandhena shobhinaa ❘  
+bhujaMgaa.abhogavaasena shroNisootreNa raajataa 
+‖ 13 ‖
+
+bhraajase caavabaddhena bhogeneveha mandaraH ❘  
+dhvajena shikhipiMChaanaaM ucChritena viraajase 
+‖ 14 ‖
+
+kaumaaraM vratamaasthaaya tridivaM paavitaM tvayaa ❘  
+tena tvaM stooyase devi tridashaiH poojyase.api ca 
+‖ 15 ‖
+
+trailokya rakshhaNaarthaaya mahishhaasuranaashini ❘  
+prasannaa me surashreshhThe dayaaM kuru shivaa bhava 
+‖ 16 ‖
+
+jayaa tvaM vijayaa caiva saMgraame ca jayapradaa ❘  
+mamaa.api vijayaM dehi varadaa tvaM ca saaMpratam 
+‖ 17 ‖
+
+vindhye caiva nagashreshhTe tava sthaanaM hi shaashvatam ❘  
+kaaLi kaaLi mahaakaaLi seedhumaaMsa pashupriye 
+‖ 18 ‖
+
+kRRitaanuyaatraa bhootaistvaM varadaa kaamacaariNi ❘  
+bhaaraavataare ye ca tvaaM saMsmarishhyanti maanavaaH 
+‖ 19 ‖
+
+praNamanti ca ye tvaaM hi prabhaate tu naraa bhuvi ❘  
+na teshhaaM durlabhaM kiMcit putrato dhanato.api vaa 
+‖ 20 ‖
+
+durgaattaarayase durge tatvaM durgaa smRRitaa janaiH ❘  
+kaantaareshhvavapannaanaaM magnaanaaM ca mahaarNave 
+‖ 21 ‖
+
+(dasyubhirvaa niruddhaanaaM tvaM gatiH paramaa nRRiNaama)  
+jalaprataraNe caiva kaantaareshhvaTaveeshhu ca ❘  
+ye smaranti mahaadeveeM na ca seedanti te naraaH 
+‖ 22 ‖
+
+tvaM keertiH shreerdhRRitiH siddhiH hreervidyaa santatirmatiH ❘  
+sandhyaa raatriH prabhaa nidraa jyotsnaa kaantiH kshhamaa dayaa 
+‖ 23 ‖
+
+nRRiNaaM ca bandhanaM mohaM putranaashaM dhanakshhayam ❘  
+vyaadhiM mRRityuM bhayaM caiva poojitaa naashayishhyasi 
+‖ 24 ‖
+
+so.ahaM raajyaatparibhrashhTaH sharaNaM tvaaM prapannavaan ❘  
+praNatashca yathaa moordhnaa tava devi sureshvari 
+‖ 25 ‖
+
+traahi maaM padmapatraakshhi satye satyaa bhavasva naH ❘  
+sharaNaM bhava me durge sharaNye bhaktavatsale 
+‖ 26 ‖
+
+evaM stutaa hi saa devee darshayaamaasa paaNDavam ❘  
+upagamya tu raajaanamidaM vacanamabraveet 
+‖ 27 ‖
+
+shRRiNu raajan mahaabaaho madeeyaM vacanaM prabho ❘  
+bhavishhyatyaciraadeva saMgraame vijayastava 
+‖ 28 ‖
+
+mama prasaadaannirjitya hatvaa kaurava vaahineem ❘  
+raajyaM nishhkaNTakaM kRRitvaa bhokshhyase medineeM punaH 
+‖ 29 ‖
+
+bhraatRRibhiH sahito raajan preetiM praapsyasi pushhkalaam ❘  
+matprasaadaacca te saukhyaM aarogyaM ca bhavishhyati 
+‖ 30 ‖
+
+ye ca saMkeertayishhyanti loke vigatakalmashhaaH ❘  
+teshhaaM tushhTaa pradaasyaami raajyamaayurvapussutam 
+‖ 31 ‖
+
+pravaase nagare caapi saMgraame shatrusaMkaTe ❘  
+aTavyaaM durgakaantaare saagare gahane girau 
+‖ 32 ‖
+
+ye smarishhyanti maaM raajan yathaahaM bhavataa smRRitaa ❘  
+na teshhaaM durlabhaM kiMcidasmin loke bhavishhyati 
+‖ 33 ‖
+
+ya idaM paramastotraM bhaktyaa shRRiNuyaadvaa paTheta vaa ❘  
+tasya sarvaaNi kaaryaaNi sidhdhiM yaasyanti paaNDavaaH 
+‖ 34 ‖
+
+matprasaadaacca vassarvaan viraaTanagare sthitaan ❘  
+na pragnyaasyanti kuravaH naraa vaa tannivaasinaH 
+‖ 35 ‖
+
+ityuktvaa varadaa devee yudhishhThiramarindamam ❘  
+rakshhaaM kRRitvaa ca paaNDoonaaM tatraivaantaradheeyata 
+‖ 38 ‖
+

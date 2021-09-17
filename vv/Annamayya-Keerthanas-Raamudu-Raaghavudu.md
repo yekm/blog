@@ -328,3 +328,49 @@ aadiki anaadiyaina archaavataaramu ‖
 ఆదికి అనాదియైన అర్చావతారము ‖  
 
 
+### English
+
+#### annamayya kīrtana rāmuḍu rāghavuḍu
+
+rāgaṃ: kānaḍa  
+rāmuḍu rāghavuḍu ravikulu ḍitaḍu ❘  
+bhūmijaku patiyaina puruśha nidhānamu ‖
+
+araya putrakāmeśhṭi yandu paramānnamuna ❘  
+paraga janiñchina para brahmamu ❘  
+surala rakśhimpaga asurula śikśhimpaga ❘  
+tiramai udayiñchina divya tejamu ‖
+
+chintiñche yogīndrula chitta sarojamulalo ❘  
+santatamu nilichina sākāramu ❘  
+vintalugā munulella vedakina yaṭṭi ❘  
+kāntula chennu mīrina kaivalya padamu ‖
+
+veda vedāntamulayandu viGYāna śāstramulandu ❘  
+pādukona palikeṭi paramārdhamu ❘  
+prodito śrī veṅkaṭādri poñchi vijaya nagarāna ❘  
+ādiki anādiyaina archāvatāramu ‖
+
+### PlainEnglish
+
+#### annamayya keertana raamuDu raaghavuDu
+
+raagaM: kaanaDa  
+raamuDu raaghavuDu ravikulu DitaDu ❘  
+bhoomijaku patiyaina purushha nidhaanamu ‖
+
+araya putrakaameshhTi yaMdu paramaannamuna ❘  
+paraga janiMchina para brahmamu ❘  
+surala rakshhiMpaga asurula shikshhiMpaga ❘  
+tiramai udayiMchina divya tejamu ‖
+
+chiMtiMche yogeeMdrula chitta sarojamulalo ❘  
+saMtatamu nilichina saakaaramu ❘  
+viMtalugaa munul.ella v.edakina yaTTi ❘  
+kaaMtula ch.ennu meerina kaivalya padamu ‖
+
+veda vedaaMtamulayaMdu vignyaana shaastramulaMdu ❘  
+paaduk.ona palikeTi paramaardhamu ❘  
+prodit.o shree veMkaTaadri p.oMchi vijaya nagaraana ❘  
+aadiki anaadiyaina archaavataaramu ‖
+

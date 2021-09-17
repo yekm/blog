@@ -302,3 +302,47 @@ dakkiMchuk.oMTivi tagulaiti baava ‖
 దక్కించుకొంటివి తగులైతి బావ ‖  
 
 
+### English
+
+#### annamayya kīrtana ele ele maradalā
+
+ele yele maradalā chālujālu ❘  
+chālunu chālu nītoḍi sarasambu bāva ‖
+
+gāṭapu gubbalu gadalaga gulikevu ❘  
+māṭala deṭala maradalā ❘  
+chīṭiki māṭiki jenakeve vaṭṭi ❘  
+būṭakālu mānipove bāva ‖
+
+andinde nannu nadaliñchi vesevu ❘  
+mandamelapu maradalā ❘  
+sanduko dirigevi saṭakārivo bāva ❘  
+pondugādika bove bāva ‖
+
+chokkapu giligintala chūpula nannu ❘  
+makkuva sesina maradalā ❘  
+gakkuna nanu veṅkaṭapati kūḍiti ❘  
+dakkiñchukoṇṭivi tagulaiti bāva ‖
+
+### PlainEnglish
+
+#### annamayya keertana ele ele maradalaa
+
+ele yele maradalaa chaalujaalu ❘  
+chaalunu chaalu neetoDi sarasaMbu baava ‖
+
+gaaTapu gubbalu gadalaga gulikevu ❘  
+maaTala deTala maradalaa ❘  
+cheeTiki maaTiki j.enakeve vaTTi ❘  
+booTakaalu maanipove baava ‖
+
+aMdiMd.e nannu nadaliMchi vesevu ❘  
+maMdamelapu maradalaa ❘  
+saMduko dirigevi saTakaarivo baava ❘  
+p.oMdugaadika bove baava ‖
+
+ch.okkapu giligiMtala choopula nannu ❘  
+makkuva sesina maradalaa ❘  
+gakkuna nanu veMkaTapati kooDiti ❘  
+dakkiMchuk.oMTivi tagulaiti baava ‖
+

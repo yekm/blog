@@ -237,3 +237,37 @@ tiruveMkaTagiri deva sharaNu ‖
 తిరువేంకటగిరి దేవ శరణు ‖  
 
 
+### English
+
+#### annamayya kīrtana śrīmannārāyaṇa
+
+śrīmannārāyaṇa śrīmannārāyaṇa ❘  
+śrīmannārāyaṇa nī śrīpādame śaraṇu ‖
+
+kamalāsatī mukhakamala kamalahita ❘  
+kamalapriya kamalekśhaṇa ❘  
+kamalāsanahita garuḍagamana śrī ❘  
+kamalanābha nīpadakamalame śaraṇu ‖
+
+paramayogijana bhāgadheya śrī ❘  
+paramapūruśha parātpara  
+paramātma paramāṇurūpa śrī ❘  
+tiruveṅkaṭagiri deva śaraṇu ‖
+
+### PlainEnglish
+
+#### annamayya keertana shreemannaaraayaNa
+
+shreemannaaraayaNa shreemannaaraayaNa ❘  
+shreemannaaraayaNa nee shreepaadame sharaNu ‖
+
+kamalaasatee mukhakamala kamalahita ❘  
+kamalapriya kamalekshhaNa ❘  
+kamalaasanahita garuDagamana shree ❘  
+kamalanaabha neepadakamalame sharaNu ‖
+
+paramayogijana bhaagadheya shree ❘  
+paramapoorushha paraatpara  
+paramaatma paramaaNuroopa shree ❘  
+tiruveMkaTagiri deva sharaNu ‖
+
