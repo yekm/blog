@@ -142,7 +142,7 @@ kījai nātha hṛdaya maha ḍerā ‖ 40 ‖
  **dohā  
 ** pavana tanaya saṅkaṭa haraṇa - maṅgalda mūrati rūp ❘  
 rāma lakhana sītā sahita - hṛdaya basahu surabhūp ‖  
-siyāvara rāmachandrakī jaya ❘ pavanasuta hanumānakī jaya | bolo bhāyī saba santanakī jaya |  
+siyāvara rāmachandrakī jaya ❘ pavanasuta hanumānakī jaya ｜ bolo bhāyī saba santanakī jaya ｜  
 
 
 ## PlainEnglish
@@ -286,7 +286,7 @@ keejai naatha hRRidaya maha Deraa ‖ 40 ‖
  **dohaa  
 ** pavana tanaya sankaTa haraNa - mangalda moorati roop ❘  
 raama lakhana seetaa sahita - hRRidaya basahu surabhoop ‖  
-siyaavara raamachandrakee jaya ❘ pavanasuta hanumaanakee jaya | bolo bhaayee saba santanakee jaya |  
+siyaavara raamachandrakee jaya ❘ pavanasuta hanumaanakee jaya ｜ bolo bhaayee saba santanakee jaya ｜  
 
 
 ## Bengali
@@ -430,7 +430,7 @@ siyaavara raamachandrakee jaya ❘ pavanasuta hanumaanakee jaya | bolo bhaayee s
  **দোহা  
 ** পবন তনয সংকট হরণ - মংগ঳ মূরতি রূপ্ ❘  
 রাম লখন সীতা সহিত - হৃদয বসহু সুরভূপ্ ‖  
-সিযাবর রামচংদ্রকী জয ❘ পবনসুত হনুমানকী জয | বোলো ভাযী সব সংতনকী জয |  
+সিযাবর রামচংদ্রকী জয ❘ পবনসুত হনুমানকী জয ｜ বোলো ভাযী সব সংতনকী জয ｜  
 
 
 ## Devanagari
@@ -574,7 +574,7 @@ siyaavara raamachandrakee jaya ❘ pavanasuta hanumaanakee jaya | bolo bhaayee s
  **दोहा  
 ** पवन तनय सङ्कट हरण - मङ्गळ मूरति रूप् ❘  
 राम लखन सीता सहित - हृदय बसहु सुरभूप् ‖  
-सियावर रामचन्द्रकी जय ❘ पवनसुत हनुमानकी जय | बोलो भायी सब सन्तनकी जय |  
+सियावर रामचन्द्रकी जय ❘ पवनसुत हनुमानकी जय ｜ बोलो भायी सब सन्तनकी जय ｜  
 
 
 ## Gujarati
@@ -718,7 +718,7 @@ siyaavara raamachandrakee jaya ❘ pavanasuta hanumaanakee jaya | bolo bhaayee s
  **દોહા  
 ** પવન તનય સંકટ હરણ - મંગળ મૂરતિ રૂપ્ ❘  
 રામ લખન સીતા સહિત - હૃદય બસહુ સુરભૂપ્ ‖  
-સિયાવર રામચંદ્રકી જય ❘ પવનસુત હનુમાનકી જય | બોલો ભાયી સબ સંતનકી જય |  
+સિયાવર રામચંદ્રકી જય ❘ પવનસુત હનુમાનકી જય ｜ બોલો ભાયી સબ સંતનકી જય ｜  
 
 
 ## Hindi
@@ -862,7 +862,7 @@ siyaavara raamachandrakee jaya ❘ pavanasuta hanumaanakee jaya | bolo bhaayee s
  **दोहा  
 ** पवन तनय संकट हरण - मंगळ मूरति रूप् ❘  
 राम लखन सीता सहित - हृदय बसहु सुरभूप् ‖  
-सियावर रामचंद्रकी जय ❘ पवनसुत हनुमानकी जय | बोलो भायी सब संतनकी जय |  
+सियावर रामचंद्रकी जय ❘ पवनसुत हनुमानकी जय ｜ बोलो भायी सब संतनकी जय ｜  
 
 
 ## Kannada
@@ -1006,7 +1006,7 @@ siyaavara raamachandrakee jaya ❘ pavanasuta hanumaanakee jaya | bolo bhaayee s
  **ದೋಹಾ  
 ** ಪವನ ತನಯ ಸಂಕಟ ಹರಣ - ಮಂಗಳ ಮೂರತಿ ರೂಪ್ ❘  
 ರಾಮ ಲಖನ ಸೀತಾ ಸಹಿತ - ಹೃದಯ ಬಸಹು ಸುರಭೂಪ್ ‖  
-ಸಿಯಾವರ ರಾಮಚಂದ್ರಕೀ ಜಯ ❘ ಪವನಸುತ ಹನುಮಾನಕೀ ಜಯ | ಬೋಲೋ ಭಾಯೀ ಸಬ ಸಂತನಕೀ ಜಯ |  
+ಸಿಯಾವರ ರಾಮಚಂದ್ರಕೀ ಜಯ ❘ ಪವನಸುತ ಹನುಮಾನಕೀ ಜಯ ｜ ಬೋಲೋ ಭಾಯೀ ಸಬ ಸಂತನಕೀ ಜಯ ｜  
 
 
 ## Malayalam
@@ -1150,7 +1150,7 @@ siyaavara raamachandrakee jaya ❘ pavanasuta hanumaanakee jaya | bolo bhaayee s
  **ദോഹാ  
 ** പവന തനയ സംകട ഹരണ - മംഗള മൂരതി രൂപ് ❘  
 രാമ ലഖന സീതാ സഹിത - ഹൃദയ ബസഹു സുരഭൂപ് ‖  
-സിയാവര രാമചംദ്രകീ ജയ ❘ പവനസുത ഹനുമാനകീ ജയ | ബോലോ ഭായീ സബ സംതനകീ ജയ |  
+സിയാവര രാമചംദ്രകീ ജയ ❘ പവനസുത ഹനുമാനകീ ജയ ｜ ബോലോ ഭായീ സബ സംതനകീ ജയ ｜  
 
 
 ## Meaning
@@ -1296,7 +1296,7 @@ siyaavara raamachandrakee jaya ❘ pavanasuta hanumaanakee jaya | bolo bhaayee s
  **ଦୋହା  
 ** ପଵନ ତନଯ ସଂକଟ ହରଣ - ମଂଗଳ ମୂରତି ରୂପ୍ ❘  
 ରାମ ଲଖନ ସୀତା ସହିତ - ହୃଦଯ ବସହୁ ସୁରଭୂପ୍ ‖  
-ସିଯାଵର ରାମଚଂଦ୍ରକୀ ଜଯ ❘ ପଵନସୁତ ହନୁମାନକୀ ଜଯ | ବୋଲୋ ଭାଯୀ ସବ ସଂତନକୀ ଜଯ |  
+ସିଯାଵର ରାମଚଂଦ୍ରକୀ ଜଯ ❘ ପଵନସୁତ ହନୁମାନକୀ ଜଯ ｜ ବୋଲୋ ଭାଯୀ ସବ ସଂତନକୀ ଜଯ ｜  
 
 
 ## ShuddhaKannada
@@ -1440,7 +1440,7 @@ siyaavara raamachandrakee jaya ❘ pavanasuta hanumaanakee jaya | bolo bhaayee s
  **ದೋಹಾ  
 ** ಪವನ ತನಯ ಸಙ್ಕಟ ಹರಣ - ಮಙ್ಗಳ ಮೂರತಿ ರೂಪ್ ❘  
 ರಾಮ ಲಖನ ಸೀತಾ ಸಹಿತ - ಹೃದಯ ಬಸಹು ಸುರಭೂಪ್ ‖  
-ಸಿಯಾವರ ರಾಮಚನ್ದ್ರಕೀ ಜಯ ❘ ಪವನಸುತ ಹನುಮಾನಕೀ ಜಯ | ಬೋಲೋ ಭಾಯೀ ಸಬ ಸನ್ತನಕೀ ಜಯ |  
+ಸಿಯಾವರ ರಾಮಚನ್ದ್ರಕೀ ಜಯ ❘ ಪವನಸುತ ಹನುಮಾನಕೀ ಜಯ ｜ ಬೋಲೋ ಭಾಯೀ ಸಬ ಸನ್ತನಕೀ ಜಯ ｜  
 
 
 ## ShuddhaTelugu
@@ -1584,7 +1584,7 @@ siyaavara raamachandrakee jaya ❘ pavanasuta hanumaanakee jaya | bolo bhaayee s
  **దోహా  
 ** పవన తనయ సఙ్కట హరణ - మఙ్గళ మూరతి రూప్ ❘  
 రామ లఖన సీతా సహిత - హృదయ బసహు సురభూప్ ‖  
-సియావర రామచన్ద్రకీ జయ ❘ పవనసుత హనుమానకీ జయ | బోలో భాయీ సబ సన్తనకీ జయ |  
+సియావర రామచన్ద్రకీ జయ ❘ పవనసుత హనుమానకీ జయ ｜ బోలో భాయీ సబ సన్తనకీ జయ ｜  
 
 
 ## Tamil
@@ -1728,7 +1728,7 @@ siyaavara raamachandrakee jaya ❘ pavanasuta hanumaanakee jaya | bolo bhaayee s
  **தோ 3ஹா  
 **பவந தநய ஸஂகட ஹரண - மங்க3ல்த3 மூரதி ரூப் ❘  
 ராம லக2ந ஸீதா ஸஹித - ஹ்ருத3ய ப3ஸஹு ஸுரபூ4ப் ‖  
-ஸியாவர ராமசந்த்3ரகீ ஜய ❘ பவநஸுத ஹநுமாநகீ ஜய | போ3லோ பா4யீ ஸப3 ஸந்தநகீ ஜய |  
+ஸியாவர ராமசந்த்3ரகீ ஜய ❘ பவநஸுத ஹநுமாநகீ ஜய ｜ போ3லோ பா4யீ ஸப3 ஸந்தநகீ ஜய ｜  
 
 
 ## Telugu
@@ -1872,7 +1872,7 @@ siyaavara raamachandrakee jaya ❘ pavanasuta hanumaanakee jaya | bolo bhaayee s
  **దోహా  
 ** పవన తనయ సంకట హరణ - మంగళ మూరతి రూప్ ❘  
 రామ లఖన సీతా సహిత - హృదయ బసహు సురభూప్ ‖  
-సియావర రామచంద్రకీ జయ ❘ పవనసుత హనుమానకీ జయ | బోలో భాయీ సబ సంతనకీ జయ |  
+సియావర రామచంద్రకీ జయ ❘ పవనసుత హనుమానకీ జయ ｜ బోలో భాయీ సబ సంతనకీ జయ ｜  
 
 
 ### English

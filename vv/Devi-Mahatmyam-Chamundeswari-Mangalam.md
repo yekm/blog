@@ -6,7 +6,7 @@
 devī mahātmyam chāmunḍeśvarī maṅgaḻam  
 
 śrī śailarāja tanaye chaṇḍa muṇḍa niśhūdinī  
-mṛgendra vāhane tubhyaṃ chāmuṇḍāyai sumaṅgaḻaṃ❘1|  
+mṛgendra vāhane tubhyaṃ chāmuṇḍāyai sumaṅgaḻaṃ❘1｜  
 
 pañcha viṃśati sālāḍya śrī chakrapua nivāsinī  
 bindupīṭha sthite tubhyaṃ chāmuṇḍāyai sumaṅgaḻaṃ‖2‖  
@@ -114,7 +114,7 @@ anantākhya sute tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ‖
 devee mahaatmyam chaamunDeshvaree maMgaLam  
 
 shree shailaraaja tanaye chaMDa muMDa nishhoodinee  
-mRRigeMdra vaahane tubhyaM chaamuMDaayai sumaMgaLaM❘1|  
+mRRigeMdra vaahane tubhyaM chaamuMDaayai sumaMgaLaM❘1｜  
 
 paMcha viMshati saalaaDya shree chakrapua nivaasinee  
 biMdupeeTha sthit.e tubhyaM chaamuMDaayai sumaMgaLaM‖2‖  
@@ -222,7 +222,7 @@ anaMtaakhya sute tubhyaM chaamooMDaayai sumaMgaLaM‖
 দেবী মহাত্ম্যম্ চামুন্ডেশ্বরী মংগলম্  
 
 শ্রী শৈলরাজ তনযে চংড মুংড নিষূদিনী  
-মৃগেংদ্র বাহনে তুভ্যং চামুংডাযৈ সুমংগলং❘1|  
+মৃগেংদ্র বাহনে তুভ্যং চামুংডাযৈ সুমংগলং❘1｜  
 
 পংচ বিংশতি সালাড্য শ্রী চক্রপুঅ নিবাসিনী  
 বিংদুপীঠ স্থিত৆ তুভ্যং চামুংডাযৈ সুমংগলং‖2‖  
@@ -330,7 +330,7 @@ anaMtaakhya sute tubhyaM chaamooMDaayai sumaMgaLaM‖
 देवी महात्म्यम् चामुन्डेश्वरी मङ्गलम्  
 
 श्री शैलराज तनये चण्ड मुण्ड निषूदिनी  
-मृगेन्द्र वाहने तुभ्यं चामुण्डायै सुमङ्गलं❘1|  
+मृगेन्द्र वाहने तुभ्यं चामुण्डायै सुमङ्गलं❘1｜  
 
 पञ्च विंशति सालाड्य श्री चक्रपुअ निवासिनी  
 बिन्दुपीठ स्थितॆ तुभ्यं चामुण्डायै सुमङ्गलं‖2‖  
@@ -438,7 +438,7 @@ anaMtaakhya sute tubhyaM chaamooMDaayai sumaMgaLaM‖
 દેવી મહાત્મ્યમ્ ચામુન્ડેશ્વરી મંગળમ્  
 
 શ્રી શૈલરાજ તનયે ચંડ મુંડ નિષૂદિની  
-મૃગેંદ્ર વાહને તુભ્યં ચામુંડાયૈ સુમંગળં❘1|  
+મૃગેંદ્ર વાહને તુભ્યં ચામુંડાયૈ સુમંગળં❘1｜  
 
 પંચ વિંશતિ સાલાડ્ય શ્રી ચક્રપુઅ નિવાસિની  
 બિંદુપીઠ સ્થિત૆ તુભ્યં ચામુંડાયૈ સુમંગળં‖2‖  
@@ -546,7 +546,7 @@ anaMtaakhya sute tubhyaM chaamooMDaayai sumaMgaLaM‖
 देवी महात्म्यम् चामुन्डेश्वरी मंगलम्  
 
 श्री शैलराज तनये चंड मुंड निषूदिनी  
-मृगेंद्र वाहने तुभ्यं चामुंडायै सुमंगलं❘1|  
+मृगेंद्र वाहने तुभ्यं चामुंडायै सुमंगलं❘1｜  
 
 पंच विंशति सालाड्य श्री चक्रपुअ निवासिनी  
 बिंदुपीठ स्थितॆ तुभ्यं चामुंडायै सुमंगलं‖2‖  
@@ -654,7 +654,7 @@ anaMtaakhya sute tubhyaM chaamooMDaayai sumaMgaLaM‖
 ದೇವೀ ಮಹಾತ್ಮ್ಯಮ್ ಚಾಮುನ್ಡೇಶ್ವರೀ ಮಂಗಳಮ್  
 
 ಶ್ರೀ ಶೈಲರಾಜ ತನಯೇ ಚಂಡ ಮುಂಡ ನಿಷೂದಿನೀ  
-ಮೃಗೇಂದ್ರ ವಾಹನೇ ತುಭ್ಯಂ ಚಾಮುಂಡಾಯೈ ಸುಮಂಗಳಂ❘1|  
+ಮೃಗೇಂದ್ರ ವಾಹನೇ ತುಭ್ಯಂ ಚಾಮುಂಡಾಯೈ ಸುಮಂಗಳಂ❘1｜  
 
 ಪಂಚ ವಿಂಶತಿ ಸಾಲಾಡ್ಯ ಶ್ರೀ ಚಕ್ರಪುಅ ನಿವಾಸಿನೀ  
 ಬಿಂದುಪೀಠ ಸ್ಥಿತೆ ತುಭ್ಯಂ ಚಾಮುಂಡಾಯೈ ಸುಮಂಗಳಂ‖2‖  
@@ -762,7 +762,7 @@ anaMtaakhya sute tubhyaM chaamooMDaayai sumaMgaLaM‖
 ദേവീ മഹാത്മ്യമ് ചാമുന്ഡേശ്വരീ മംഗളമ്  
 
 ശ്രീ ശൈലരാജ തനയേ ചംഡ മുംഡ നിഷൂദിനീ  
-മൃഗേംദ്ര വാഹനേ തുഭ്യം ചാമുംഡായൈ സുമംഗളം❘1|  
+മൃഗേംദ്ര വാഹനേ തുഭ്യം ചാമുംഡായൈ സുമംഗളം❘1｜  
 
 പംച വിംശതി സാലാഡ്യ ശ്രീ ചക്രപുഅ നിവാസിനീ  
 ബിംദുപീഠ സ്ഥിതെ തുഭ്യം ചാമുംഡായൈ സുമംഗളം‖2‖  
@@ -872,7 +872,7 @@ anaMtaakhya sute tubhyaM chaamooMDaayai sumaMgaLaM‖
 ଦେଵୀ ମହାତ୍ମ୍ଯମ୍ ଚାମୁନ୍ଡେଶ୍ଵରୀ ମଂଗଳମ୍  
 
 ଶ୍ରୀ ଶୈଲରାଜ ତନଯେ ଚଂଡ ମୁଂଡ ନିଷୂଦିନୀ  
-ମୃଗେଂଦ୍ର ଵାହନେ ତୁଭ୍ଯଂ ଚାମୁଂଡାଯୈ ସୁମଂଗଳଂ❘1|  
+ମୃଗେଂଦ୍ର ଵାହନେ ତୁଭ୍ଯଂ ଚାମୁଂଡାଯୈ ସୁମଂଗଳଂ❘1｜  
 
 ପଂଚ ଵିଂଶତି ସାଲାଡ୍ଯ ଶ୍ରୀ ଚକ୍ରପୁଅ ନିଵାସିନୀ  
 ବିଂଦୁପୀଠ ସ୍ଥିତ୆ ତୁଭ୍ଯଂ ଚାମୁଂଡାଯୈ ସୁମଂଗଳଂ‖2‖  
@@ -980,7 +980,7 @@ anaMtaakhya sute tubhyaM chaamooMDaayai sumaMgaLaM‖
 ದೇವೀ ಮಹಾತ್ಮ್ಯಮ್ ಚಾಮುನ್ಡೇಶ್ವರೀ ಮಙ್ಗಳಮ್  
 
 ಶ್ರೀ ಶೈಲರಾಜ ತನಯೇ ಚಣ್ಡ ಮುಣ್ಡ ನಿಷೂದಿನೀ  
-ಮೃಗೇನ್ದ್ರ ವಾಹನೇ ತುಭ್ಯಂ ಚಾಮುಣ್ಡಾಯೈ ಸುಮಙ್ಗಳಂ❘1|  
+ಮೃಗೇನ್ದ್ರ ವಾಹನೇ ತುಭ್ಯಂ ಚಾಮುಣ್ಡಾಯೈ ಸುಮಙ್ಗಳಂ❘1｜  
 
 ಪಞ್ಚ ವಿಂಶತಿ ಸಾಲಾಡ್ಯ ಶ್ರೀ ಚಕ್ರಪುಅ ನಿವಾಸಿನೀ  
 ಬಿನ್ದುಪೀಠ ಸ್ಥಿತೆ ತುಭ್ಯಂ ಚಾಮುಣ್ಡಾಯೈ ಸುಮಙ್ಗಳಂ‖2‖  
@@ -1088,7 +1088,7 @@ anaMtaakhya sute tubhyaM chaamooMDaayai sumaMgaLaM‖
 దేవీ మహాత్మ్యమ్ చామున్డేశ్వరీ మఙ్గళమ్  
 
 శ్రీ శైలరాజ తనయే చణ్డ ముణ్డ నిషూదినీ  
-మృగేన్ద్ర వాహనే తుభ్యం చాముణ్డాయై సుమఙ్గళం❘1|  
+మృగేన్ద్ర వాహనే తుభ్యం చాముణ్డాయై సుమఙ్గళం❘1｜  
 
 పఞ్చ వింశతి సాలాడ్య శ్రీ చక్రపుఅ నివాసినీ  
 బిన్దుపీఠ స్థితె తుభ్యం చాముణ్డాయై సుమఙ్గళం‖2‖  
@@ -1196,7 +1196,7 @@ anaMtaakhya sute tubhyaM chaamooMDaayai sumaMgaLaM‖
 தே3வீ மஹாத்ம்யம் சாமுந்டே3ஶ்வரீ மங்கள3ம்  
 
 ஶ்ரீ ஶைலராஜ தநயே சண்ட3 முண்ட3 நிஷூதி3நீ  
-ம்ருகே3ந்த்3ர வாஹநே துப்4யம் சாமுண்டா3யை ஸுமங்கள3ம்❘1|  
+ம்ருகே3ந்த்3ர வாஹநே துப்4யம் சாமுண்டா3யை ஸுமங்கள3ம்❘1｜  
 
 பஂச விம்ஶதி ஸாலாட்3ய ஶ்ரீ சக்ரபுஅ நிவாஸிநீ  
 பி3ந்து3பீட2 ஸ்தி2தெ துப்4யம் சாமுண்டா3யை ஸுமங்கள3ம்‖2‖  
@@ -1304,7 +1304,7 @@ anaMtaakhya sute tubhyaM chaamooMDaayai sumaMgaLaM‖
 దేవీ మహాత్మ్యమ్ చామున్డేశ్వరీ మంగళమ్  
 
 శ్రీ శైలరాజ తనయే చండ ముండ నిషూదినీ  
-మృగేంద్ర వాహనే తుభ్యం చాముండాయై సుమంగళం❘1|  
+మృగేంద్ర వాహనే తుభ్యం చాముండాయై సుమంగళం❘1｜  
 
 పంచ వింశతి సాలాడ్య శ్రీ చక్రపుఅ నివాసినీ  
 బిందుపీఠ స్థితె తుభ్యం చాముండాయై సుమంగళం‖2‖  
@@ -1412,7 +1412,7 @@ anaMtaakhya sute tubhyaM chaamooMDaayai sumaMgaLaM‖
 #### devī mahātmyam chāmunḍeśvarī maṅgaḻam
 
 śrī śailarāja tanaye chaṇḍa muṇḍa niśhūdinī  
-mṛgendra vāhane tubhyaṃ chāmuṇḍāyai sumaṅgaḻaṃ|1❘  
+mṛgendra vāhane tubhyaṃ chāmuṇḍāyai sumaṅgaḻaṃ｜1❘  
 pañcha viṃśati sālāḍya śrī chakrapua nivāsinī  
 bindupīṭha sthite tubhyaṃ chāmuṇḍāyai sumaṅgaḻaṃ
 ‖2‖
@@ -1538,7 +1538,7 @@ anantākhya sute tubhyaṃ chāmūṇḍāyai sumaṅgaḻaṃ‖
 #### devee mahaatmyam chaamunDeshvaree maMgaLam
 
 shree shailaraaja tanaye chaMDa muMDa nishhoodinee  
-mRRigeMdra vaahane tubhyaM chaamuMDaayai sumaMgaLaM|1❘  
+mRRigeMdra vaahane tubhyaM chaamuMDaayai sumaMgaLaM｜1❘  
 paMcha viMshati saalaaDya shree chakrapua nivaasinee  
 biMdupeeTha sthit.e tubhyaM chaamuMDaayai sumaMgaLaM
 ‖2‖

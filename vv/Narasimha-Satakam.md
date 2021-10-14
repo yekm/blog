@@ -6,19 +6,19 @@
 nārasiṃha śatakam  
 
 001  
-sī. śrīmanohara ❘ surā - rchita sindhugambhīra |  
-bhaktavatsala ❘ koṭi - bhānuteja |  
-kañjanetra ❘ hiraṇya - kaśyapāntaka | śūra |  
-sādhurakśhaṇa ❘ śaṅkha - chakrahasta |  
-prahlāda varada ❘ pā - padhvaṃsa | sarveśa |  
-kśhīrasāgaraśāyi ❘ - kṛśhṇavarṇa |  
-pakśhivāhana ❘ nīla - bhramarakuntalajāla |  
+sī. śrīmanohara ❘ surā - rchita sindhugambhīra ｜  
+bhaktavatsala ❘ koṭi - bhānuteja ｜  
+kañjanetra ❘ hiraṇya - kaśyapāntaka ｜ śūra ｜  
+sādhurakśhaṇa ❘ śaṅkha - chakrahasta ｜  
+prahlāda varada ❘ pā - padhvaṃsa ｜ sarveśa ｜  
+kśhīrasāgaraśāyi ❘ - kṛśhṇavarṇa ｜  
+pakśhivāhana ❘ nīla - bhramarakuntalajāla ｜  
 pallavāruṇapāda - padmayugaḻa ❘  
 
 te chāruśrīchandanāgaru - charchitāṅga ❘  
-kundakuṭmaladanta ❘ vai - kuṇṭhadhāma |  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+kundakuṭmaladanta ❘ vai - kuṇṭhadhāma ｜  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 002  
 sī. padmalochana ❘ sīsa - padyamul nī mīda  
@@ -32,8 +32,8 @@ praGYa nāyadi gādu - prastutimpa
 
 te dappugaligina sadbhakti - takkuvaune  
 cheRakunaku vaṅkapoyina - cheḍune tīpu?  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 003  
 sī. narasiṃha ❘ nī divya - nāmamantramucheta  
@@ -47,8 +47,8 @@ daṇḍahastuni baṇṭla - daramavachchu
 
 te bhaḻira ❘ ne nī mahāmantra - balamucheta  
 divya vaikuṇṭha padavi sā - dhimpavachchu  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 004  
 sī. ādinārāyaṇā ❘ - yanuchu nālukatoḍa  
@@ -62,8 +62,8 @@ chenta jeraganonu - śeśhaśayana
 
 te parama sātvikulaina nī - bhaktavarula  
 dāsulaku dāsuḍanu jumī - dhātrilona  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 005  
 sī. aiśvaryamulaku ni - nnanusarimpagaledu  
@@ -77,8 +77,8 @@ pasula nimmani paṭṭu - paṭṭaledu
 
 te nenu gorina dokkaṭe - nīlavarṇa  
 chayyananu mokśhamichchina - jālu nāku  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 006  
 sī. manduṇḍanani nannu - ninda chesinanemi?  
@@ -92,8 +92,8 @@ ceri dāpaṭa geli - cheyanemi?
 
 te kalpavṛkśhambuvale nīvu - galga niṅka  
 brajala lakśhyambu nākela? - padmanābha ❘  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 007  
 sī. chittaśuddhiga nīku - sevajesedagāni  
@@ -107,8 +107,8 @@ kukśhiniṇḍeḍu kūṭi - koRaku gādu
 
 te pāramārthikamunaku ne bāṭupaḍiti  
 gīrtiki napekśhapaḍaledu - kṛśhṇavarṇa ❘  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 008  
 sī. śravaṇa randhramula nī - satkathal pogaḍaṅga  
@@ -122,8 +122,8 @@ kālamantayu vṛdhā - gaḍapuvāḍu
 
 te vasudhalonella vyardhuṇḍu - vāḍe yagunu  
 maRiyu jeḍugāka yeppuḍu - mamatanondi.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 009  
 sī. gautamīsnānāna - gaḍateRuda maṭanna  
@@ -137,8 +137,8 @@ nimiśhamaina manassu - nilupalenu
 
 te kaśhṭamulakorva nācheta - gādu ninnu  
 smaraṇacheseda nā yadhā - śakti koladi.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 010  
 sī. arthivāṇḍraku nīka - hāni jeyuṭa kaṇṭe  
@@ -152,8 +152,8 @@ goṅguto muśhṭettu - konuṭa melu
 
 te jalajadaḻanetra nī bhakta - janulatoḍi  
 jagaḍamāḍeḍu panikaṇṭe - jāvu melu  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 011  
 sī. gārdabhambuna kela - kastūri tilakambu?  
@@ -167,8 +167,8 @@ bakasantatiki nela - pañjarambu?
 
 te drohachintana jeseḍi - durjanulaku  
 madhuramainaṭṭi nīnāma - mantramela?  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 012  
 sī. pasarambu vañjaina - basulakāpari tappu  
@@ -182,8 +182,8 @@ danti duśhṭayina mā - vantu tappu
 
 te iṭṭi tappuleRuṅgaka - yichchavachchi  
 naṭula melagudu rippu ḍī - yavani janulu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 013  
 sī. kotiki jalatāru - kuḻlāyi yeṭiki?  
@@ -197,8 +197,8 @@ vāvi yeṭiki duśhṭa - vartanunaku?
 
 te māṭa nilukaḍa kuṅkari - moṭu kela?  
 cheviṭivāniki satkatha - śravaṇa mela?  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 014  
 sī. mānyambulīya sa - mardhuḍokkaḍu leḍu  
@@ -212,8 +212,8 @@ beRakānta Raṅkenna - bedda lanta
 
 te yiṭṭi duśhṭula kadhikāra - michchinaṭṭi  
 prabhuvu tappu laṭañchunu - balukavalenu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 015  
 sī. talligarbhamunuṇḍi - dhanamu te ḍevvaḍu  
@@ -227,8 +227,8 @@ dānadharmamu leka - dāchi dāchi
 
 te tudaku doṅgala kitturo - dorala kavuno  
 tene juṇṭīga liyyavā - teruvarulaku?  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 016  
 sī. lokamaṃ devaḍaina - lobhimānavu ḍunna  
@@ -242,8 +242,8 @@ melu kalgina jāla - miṇukuchuṇḍu
 
 te śrīramānātha ❘ yiṭuvaṇṭi - krūrunakunu  
 bhikśhukula śatruvani - peru peṭṭavachchu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 017  
 sī. tanuvulo brāṇamul = taraḻipoyyeḍiveḻa  
@@ -257,8 +257,8 @@ naraka mekkaḍidayya - naḻinanetra
 
 te kamalanābha nī mahimalu - gānaleni  
 tuchChulaku muktidorakuṭa - durlabhambu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 018  
 sī. nīlameghaśyāma ❘ - nīve taṇḍrivi māku  
@@ -272,8 +272,8 @@ nī pada dhyānambu - nityajapamu
 
 te toyajātākśha nī pāda - tulasidaḻamu  
 rogamula kauśhadhamu brahma - rudravinuta.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 019  
 sī. bratikinannāḻlu nī - bhajana tappanu gāni  
@@ -287,8 +287,8 @@ bilutuno śramacheta - biluvano
 
 te nāṭi kippuḍe chetu nī - nāmabhajana  
 talachedanu, jevi niḍavayya ❘ - dhairyamuganu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 020  
 sī. pāñchabhautikamu du - rbalamaina kāyaṃ bi  
@@ -302,8 +302,8 @@ yeppuḍo viḍuchuṭa - yekśhaṇambo
 
 te maraṇame niśchayamu buddhi - mantuḍaina  
 dehamunnantalo mimmu - deliyavalayu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 021  
 sī. tallidaṇḍrulu bhārya - tanayu lāptulu bāva  
@@ -317,8 +317,8 @@ yiñchuka yāyuśhya - miyyaleru
 
 te chuṭṭamulamīdi bhramadīsi - chūra jekki  
 santatamu mimmu nammuṭa - sārthakambu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 022  
 sī. ibharājavarada ❘ ni - nnenta bilchinagāni  
@@ -332,8 +332,8 @@ dorakajāla vademi - dhūrtatanamo?
 
 te mokśhadāyaka ❘ yiṭuvaṇṭi - mūrkhajanuni  
 kaśhṭapeṭṭina nīkemi - kaḍupuniṇḍu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 023  
 sī. nīmīda kīrtanal - nityagānamu jesi  
@@ -347,8 +347,8 @@ vinutiseyanu vyāsa - muninigānu
 
 te sādhuḍanu mūrkhamati manu - śhyādhamuḍanu  
 hīnuḍanu jummi nīvu - na nnelukonumu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 024  
 sī. atiśayambuga galla - lāḍanerchitigāni  
@@ -362,8 +362,8 @@ dhanamu liyyaṅga va - ddanaga nerchitigāni
 
 te baṅkajātākśha ❘ ne nati - pātakuḍanu  
 dappulanniyu kśhamiyimpa - daṇḍri vīve ❘  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 025  
 sī. urvilo nāyuśhya - munna paryantambu  
@@ -377,8 +377,8 @@ dikku ledani nālgu - diśalu chūḍa
 
 te dannu viḍipimpa vachcheḍi - dhanyu ḍeḍi  
 mundu nīdāsuḍai yunna - mukti galugu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 026  
 sī. adhika vidyāvantu - laprayojakulairi  
@@ -392,8 +392,8 @@ duśhṭamānavulu va - rdhiśhṇulairi
 
 te pakśhivāhana ❘ māvaṇṭi - bhikśhukulaku  
 śaktiledāye nika nīve - chāṭu māku.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 027  
 sī. bhujabalambuna bedda - pulula jampagavachchu  
@@ -407,8 +407,8 @@ diṭṭubotula noḻlu - kaṭṭavachchu
 
 te buḍamilo duśhṭulaku GYāna - bodha telipi  
 sajjanula jeyale ḍenta - chaturudaina.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 028  
 sī. avanilogala yātra - lanni cheyagavachchu  
@@ -422,8 +422,8 @@ naiśhṭhikāchāramul - naḍupavachchu
 
 te jitta manyasthalambuna - jerakuṇḍa  
 nī padāmbhojamulayandu - nilaparādu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 029  
 sī. karṇayugmamuna nī - kathalu sokinajālu  
@@ -437,8 +437,8 @@ vintagā gaṇṭhīlu - vesinaṭlu
 
 te pūni ninu golchuṭe sarva - bhūśhaṇambu  
 litara bhūśhaṇamula nichcha - gimpanela.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 030  
 sī. bhuvanarakśhaka ❘ ninnu - bogaḍanerani noru  
@@ -452,8 +452,8 @@ gaṭhinaśilādula - galugu tolalu
 
 te padmalochana nīmīda - bhaktileni  
 mānavuḍu reṇḍupādāla - mahiśhamayya.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 031  
 sī. atividyanerchuṭa - annavastramulake  
@@ -467,8 +467,8 @@ ghanamugā jaduvuṭa - kaḍupu koRake
 
 te yitara kāmambu goraka - satatamuganu  
 bhakti nīyandu nilupuṭa - mukti koRake  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 032  
 sī. dharaṇilo veyeṇḍlu - tanuvu nilvagabodu  
@@ -482,8 +482,8 @@ gochimātrambaina - gonuchuboḍu
 
 te verri kukkala bhramalanni - viḍichi ninnu  
 bhajana jeseḍivāriki - baramasukhamu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 033  
 sī. narasiṃha ❘ nāku du - rṇayamule meṇḍāye  
@@ -497,8 +497,8 @@ buṭṭajesiti vela - bhogiśayana ❘
 
 te abjadaḻanetra ❘ nātaṇḍri - vaina phalamu  
 neramulu gāchi rakśhimpu - nīve dikku.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 034  
 sī. dhīrata barula niṃ - dimpa nerchiti gāni  
@@ -512,23 +512,23 @@ hechchu puṇyamu saṅgra - himpanaiti
 
 te navanilo nenu janmiñchi - nandu kemi  
 sārthakamu gānarādāye - svalpamaina.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 035  
 sī. antyakālamunandu - nāyāsamuna ninnu  
 dalatuno talapano - talatu nipuḍe  
-narasiṃha ❘ narasiṃha | - narasiṃha | lakśhmīśa |  
-dānavāntaka ❘ koṭi - bhānuteja |  
-govinda ❘ govinda | - govinda | sarveśa |  
-pannagādhipaśāyi ❘ - padmanābha |  
-madhuvairi ❘ madhuvairi | - madhuvairi | lokeśa |  
-nīlameghaśarīra ❘ nigamavinuta |  
+narasiṃha ❘ narasiṃha ｜ - narasiṃha ｜ lakśhmīśa ｜  
+dānavāntaka ❘ koṭi - bhānuteja ｜  
+govinda ❘ govinda ｜ - govinda ｜ sarveśa ｜  
+pannagādhipaśāyi ❘ - padmanābha ｜  
+madhuvairi ❘ madhuvairi ｜ - madhuvairi ｜ lokeśa ｜  
+nīlameghaśarīra ❘ nigamavinuta ｜  
 
 te ī vidhambuna nīnāma - miśhṭamuganu  
 bhajanaseyuchu nundu nā - bhāvamandu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 036  
 sī. āyurārogya pu - trārtha sampadalanni  
@@ -542,8 +542,8 @@ mukti bondiñcheḍu - mūrti vīve
 
 te avanilo mānavula kanni - yāsalichchi  
 vyarthulanu jesi telipeḍi - vāḍa vīve  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 037  
 sī. kāya menta bhayāna - gāpāḍinanugāni  
@@ -557,8 +557,8 @@ maraṇa mayyeḍu vyādhi - mānpaleru
 
 te jīvuni prayāṇakālambu - siddhamaina  
 niluchunā deha mindokka - nimiśhamaina?  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 038  
 sī. jande mimpuga vesi - sandhya vārchina nemi  
@@ -572,8 +572,8 @@ yāśa povaka kāḍu - yativaruṇḍu
 
 te enni laukikaveśhālu - gaṭṭukonina  
 guruni jendaka sanmukti - dorakabodu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 039  
 sī. narasiṃha ❘ ne ninnu - namminanduku jāla  
@@ -587,8 +587,8 @@ narakamande yuñchu - naḻinanābha ❘
 
 te echaṭa nannuñchinanugāni - yepuḍu ninnu  
 maRachi pokuṇḍa nīnāma - smaraṇanosagu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 040  
 sī. deha munnavaRaku - mohasāgaramandu  
@@ -602,8 +602,8 @@ ninda jeyaka - tāmu niluvaleru
 
 te mattulainaṭṭi durjāti - manujulella  
 ninnu ganaleru modaṭike - nīrajākśha.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 041  
 sī. ilalona ne janma - mettinappaṭinuṇḍi  
@@ -617,8 +617,8 @@ jesi chūtamaṭanna - jetagādu
 
 te sūryaśaśinetra ❘ nīchāṭu - jochchi nānu  
 kaluśhamulu druñchi nannelu - kaśhṭamanaka.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 042  
 sī. tāpasārchita ❘ nenu - pāpakarmuḍanañchu  
@@ -632,8 +632,8 @@ vaddu vaddana renta - peddalaina
 
 te daṇḍrivai nīvu parapīḍa - dagulajeya  
 vāsigala peru kapakīrti - vachchunayya.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 043  
 sī. dharaṇilopala nenu - talligarbhamunandu  
@@ -647,8 +647,8 @@ itara dānamulaina - niyyaledu
 
 te naḻinadaḻanetra ❘ ninnu ne - namminānu  
 jeri rakśhimpave nannu - śīghramuganu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 044  
 sī. aḍavipakśhula kevva - ḍāhāra michchenu  
@@ -662,8 +662,8 @@ basula mevva ḍosaṅge - bachchipūri
 
 te jīvakoṭlanu bośhimpa - nīvekāni  
 veRe yoka dāta leḍayya - vedakichūḍa.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 045  
 sī. danujāri ❘ nāvaṇṭi - dāsajālamu nīku  
@@ -677,8 +677,8 @@ yinta vṛthājanma - mettinānu
 
 te bhūjanulalona ne napra - yojakuḍanu  
 ganuka nī satkaṭākśhambu - galugajeyu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 046  
 sī. kamalalochana ❘ nannu - gannataṇḍrivigāna  
@@ -692,8 +692,8 @@ kuṇḍalambulu paiḍi - golusu lammu
 
 te kosaku nī śaṅkha chakramul - kuduvabeṭṭi  
 grāsamu nosaṅgi pośhiñchu - kapaṭamuḍigi.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 047  
 sī. kuvalayaśyāma ❘ nī - koluvu chesina nāku  
@@ -707,8 +707,8 @@ nika ne sahimpa nī - vipuḍu nannemaina
 
 te neḍu karuṇimpakuṇṭivā - niśchayamuga  
 degabaḍiti chūḍu nītoḍa - jagaḍamunaku.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 048  
 sī. hari ❘ nīku baryaṅka - maina śeśhuḍu chāla  
@@ -722,8 +722,8 @@ prema bakvānnamul - peṭṭuchuṇḍru
 
 te svasthamuga nīku grāsamu - jaruguchuṇḍu  
 gāsu nī cheti dokaṭaina - gādu vyayamu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 049  
 sī. puṇḍarīkākśha ❘ nā - reṇḍu kannula niṇḍa  
@@ -737,8 +737,8 @@ buṇyavantulanoṭa - bogaḍa viṇṭi
 
 te nemiṭiki vistariñche nī - kinta kīrti  
 drohinainanu nā kīvu - dorakarāde?  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 050  
 sī. pachchi charmapu ditti - pasaledu dehambu  
@@ -752,8 +752,8 @@ niluva dasthiramaina - nīṭibugga
 
 te bondilo nuṇḍu prāṇamul - poyinanta  
 gāṭike gāni koRagādu - gavvakaina.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 051  
 sī. palurogamulaku nī - pādatīrame kāni  
@@ -767,8 +767,8 @@ dāni mantramu nenu - talapanayya
 
 te dorikitivi nāku daṇḍi vai - dyuḍavu nīvu  
 veyikaśhṭālu vachchinan - veRavanayya.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 052  
 sī. kūṭikosaramu ne - goRagāni janulache  
@@ -782,8 +782,8 @@ parula jūchina bhīti - paḍagavalase?
 
 te niṭula saṃsāravāridhi - nīdaleka  
 veyividhamula ninnu ne - veḍukoṇṭi.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 053  
 sī. sādhu sajjanulato - jagaḍamāḍina gīḍu  
@@ -797,8 +797,8 @@ guruni dravyamu dochu - konina gīḍu
 
 te duśhṭakāryamu lonariñchu - durjanulaku  
 ghanatarambaina narakambu - gaṭṭimulle  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 054  
 sī. paruladravyamumīda - bhrānti nondinavāḍu  
@@ -812,8 +812,8 @@ dharmasādhula diṭṭa - dalachuvāḍu
 
 te prajala jantula hiṃsiñchu - pātakuṇḍu  
 kālakiṅkara gadalache - gaśhṭamondu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 055  
 sī. narasiṃha ❘ nā taṇḍri - nannelu nannelu  
@@ -827,8 +827,8 @@ padmalochana ❘ cheyi - paṭṭu paṭṭu
 
 te suravinuta ❘ nenu nīchāṭu - jochchinānu  
 nā moRāliñchi kaḍaterchu - nāgaśayana ❘  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 056  
 sī. nī bhaktulanu ganul - niṇḍa jūchiyu reṇḍu  
@@ -842,8 +842,8 @@ dāsoha mani chera - dalachuvāḍu
 
 te paramabhaktuṇḍu dhanyuṇḍu - bhānuteja ❘  
 vāni ganugonna buṇyambu - vasudhalona.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 057  
 sī. pakśhivāhana ❘ nenu - bratikinannidinālu  
@@ -857,8 +857,8 @@ karuṇato nāyodda - gāva luñchu
 
 te kosaku nī sannidhiki bilchu - koniyu nīku  
 sevakuni jesikonavayya - śeśhaśayana ❘  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 058  
 sī. nigamādiśāstramul - nerchina dvijuḍaina  
@@ -872,8 +872,8 @@ sakala yātralu salpu - sarasuḍaina
 
 te garvamuna gaśhṭapaḍi ninnu - gānakunna  
 mokśhasāmrājya mondaḍu - mohanāṅga ❘  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 059  
 sī. pañjarambuna gāki - baṭṭi yuñchina lessa  
@@ -887,8 +887,8 @@ sāgune veṭāḍu - ḍegavalenu?
 
 te kujanulanu dechchi nī seva - koRaku beṭṭa  
 vāñChato jeture bhakta - varulavalenu?  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 060  
 sī. nīku dāsuḍa naṇṭi - ninnu nammukayuṇṭi  
@@ -902,8 +902,8 @@ ghorapātakarāśi - goṭṭivaichi
 
 te śīghramuga gorku līḍerchu - chinta dīrchu  
 niratamuga nannu bośhiñchu - nenaru nuñchu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 061  
 sī. vidya nerchiti nañchu - virravīgagaledu  
@@ -917,8 +917,8 @@ kāryavantuḍa nañchu - gaḍapaledu
 
 te naluguriki meppugānaina - naḍuvaledu  
 naḻinadaḻanetra ❘ ninnu ne - namminānu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 062  
 sī. atilobhulanu bhikśha - maḍugabovuṭa rota  
@@ -930,10 +930,10 @@ guRileni bandhula - gūḍa rota
 ādāyamulu leka - yappudīyuṭa rota  
 jāra chorula gūḍi - chanuṭa rota  
 
-te yādilakśhmīśa ❘ nībaṇṭa - naitinayya |  
+te yādilakśhmīśa ❘ nībaṇṭa - naitinayya ｜  
 yiṅka neḍabāsi janmambu - letta rota.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 063  
 sī. verrivāniki nela - vedākśharambulu?  
@@ -947,8 +947,8 @@ doṅgabaṇṭuku mañchi - saṅga tela?
 
 te krūrajanulaku nīmīda - gori kela?  
 drohi pāpātmunaku dayā - duḥkha mela?  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 064  
 sī. nā taṇḍri nādāta - nāyiśhṭadaivamā  
@@ -962,8 +962,8 @@ garuṇiñchi rakśhiñchu - kamalanābha ❘
 
 te daṇḍidora vañchu nīveṇṭa - dagilinānu  
 neḍu pratyakśhamai nannu - nirvahimpu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 065  
 sī. vemāRu nīkathal - vinuchu nuṇḍeḍivāḍu  
@@ -977,8 +977,8 @@ chelagi nīchulaperu - dalapaboḍu
 
 te ninnu nammina bhaktuṇḍu - niśchayamuga  
 gori chillara velpula - golvaboḍu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 066  
 sī. ne nenta veḍina - nī kela dayarādu?  
@@ -992,8 +992,8 @@ baru levva raguduru - paṅkajākśha ❘
 
 te dāta daivambu talliyu - daṇḍri vīve  
 nammiyunnānu nīpāda - naḻinamulanu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 067  
 sī. vedamul chadiveḍu - vipravaryuṇḍaina  
@@ -1007,8 +1007,8 @@ nī mahītalamandu - nevvaḍaina
 
 te ninnu goniyāḍuchuṇḍenā - niśchayamuga  
 vāḍu mokśhādhikāri yī - vasudhalona.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 068  
 sī. sakalavidyalu nerchi - sabha jayimpagavachchu  
@@ -1022,8 +1022,8 @@ meka rītiga nāku - mesavavachchu
 
 te tāmarasagarbha hara puraṃ - darulakaina  
 ninnu varṇimpa daramaune - nīrajākśha ❘  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 069  
 sī. narasiṃha ❘ nīvaṇṭi - doranu sampādiñchi  
@@ -1035,10 +1035,10 @@ gaśhṭa mentaṭi svalpa - kāryamayya?
 peṭṭajālaka yela - bhikśhamettiñchedu  
 nannu bīdanu jesi - nā vademi?  
 
-te amala ❘ kamalākśha | ne niṭlu - śramapaḍaṅga  
+te amala ❘ kamalākśha ｜ ne niṭlu - śramapaḍaṅga  
 gannulaku baṇḍuvai nīku - gānabaḍune?  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 070  
 sī. vanaruhanābha ❘ nī - vaṅka jeriti nenu  
@@ -1052,8 +1052,8 @@ vārikainanu loṅgi - vaḍakabonu
 
 te gopagāḍanu nīvu nā - guṇamu telisi  
 yippuḍe nannu rakśhiñchi - yelukommu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 071  
 sī. prahlādu ḍepāṭi - paiḍi kānuka lichche?  
@@ -1067,8 +1067,8 @@ draupadi nī kenta - dravya michche?
 
 te nīku vīranda Rayinaṭlu - nenu gāna?  
 yendu kani nannu rakśhimpa - vinduvadana ❘  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 072  
 sī. vāñChato balichakra - vartidaggara jeri  
@@ -1082,8 +1082,8 @@ bokkasāgiti vela - lekkagonaka?
 
 te bhaktulaku nīvu peṭṭuṭa - bhāgyamaunu  
 vāri kāśiñchitivi tiṇḍi - vāḍa vaguchu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 073  
 sī. stambhamaṃ dudayiñchi - dānavendruni druñchi  
@@ -1097,8 +1097,8 @@ bahusampadala nichchi - pampināvu
 
 te vārivale nannu bośhimpa - vaśamugāde?  
 yanta valapakśha mela śrī - kānta ❘ nīku?  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 074  
 sī. vyāsu ḍe kulamandu - vāsigā janmiñche?  
@@ -1112,8 +1112,8 @@ guhu ḍanu puṇyu ḍe - kulamuvāḍu?
 
 te ne kulambuna vī rinda - Rechchināru?  
 nīkṛpāpātrulaku jāti - nītu lela?  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 075  
 sī. vasudhāsthalambuna - varṇahīnuḍu gāni  
@@ -1127,8 +1127,8 @@ modaṭi ke meRugani - moṭu gāni
 
 te pratidinamu nīdu bhajanache - baragunaṭṭi  
 vāni ke vaṅka ledayya - vachchu mukti.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 076  
 sī. ibhakumbhamulamīdi - kegireḍi siṅgambu  
@@ -1142,8 +1142,8 @@ mesavune bhamata nu - mmettakāya?
 
 te nilanu nīkīrtanalu pāḍa - nerchinataḍu  
 parulakīrtana bāḍune - yarasi chūḍa?  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 077  
 sī. sarveśa ❘ nīpāda - sarasijadvayamandu  
@@ -1157,8 +1157,8 @@ bhaktimārgaṃ banu - pālu posi
 
 te premato nannu bośhiñchi - peñchukonumu  
 ghanata kekkiñchu nīdāsa - gaṇamulona.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 078  
 sī. jīmūtavarṇa ❘ nī - momuto sarirāka  
@@ -1172,8 +1172,8 @@ puśhpabāṇuḍu nīku - butru ḍayye
 
 te nindirādevi ninnu mo - hiñchi viḍaka  
 nīku baṭṭamahiśhi yayye - niśchayamuga.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 079  
 sī. haridāsulanu ninda - lāḍakuṇḍina jālu  
@@ -1187,8 +1187,8 @@ ganakakambapu guḻlu - gaṭṭinaṭlu
 
 te okari varśāśanamu muñcha - kunna jālu  
 berukīrtiga satramul - peṭṭinaṭlu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 080  
 sī. ihalokasaukhyamu - lichchagiñcheda manna  
@@ -1202,8 +1202,8 @@ gālamṛtyuvucheta - golupovu
 
 te nammarā dayya ❘ yidi māya - nāṭakambu  
 janma mika nolla na nnelu - jalajanābha ❘  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 081  
 sī. vadanambu nīnāma - bhajana goruchunuṇḍu  
@@ -1217,8 +1217,8 @@ nātma nīdai yuṇḍu - narasi chūḍa
 
 te svapnamuna naina neveḻa - santatamunu  
 buddhi nī pādamulayandu - būniyuṇḍu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 082  
 sī. padmākśha ❘ mamatache - baramu nandeda mañchu  
@@ -1232,23 +1232,23 @@ muRiki chettalu cherchi - mūṭa kaṭṭe
 
 te nī śarīrālu paḍipovu - ṭeRuga kemu  
 kāmukula maiti mika mimmu - gānalemu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 083  
-sī. garuḍavāhana ❘ divya - kaustubhālaṅkāra |  
-ravikoṭiteja ❘ sā - raṅgavadana |  
-maṇigaṇānvita ❘ hema - makuṭābharaṇa | chāru  
-makarakuṇḍala ❘ lasa - nmandahāsa |  
-kāñchanāmbara ❘ ratna - kāñchivibhūśhita |  
-suravarārchita ❘ chandra - sūryanayana |  
-kamalanābha ❘ mukunda | - gaṅgādharastuta |  
-rākśhasāntaka ❘ nāga - rājaśayana |  
+sī. garuḍavāhana ❘ divya - kaustubhālaṅkāra ｜  
+ravikoṭiteja ❘ sā - raṅgavadana ｜  
+maṇigaṇānvita ❘ hema - makuṭābharaṇa ｜ chāru  
+makarakuṇḍala ❘ lasa - nmandahāsa ｜  
+kāñchanāmbara ❘ ratna - kāñchivibhūśhita ｜  
+suravarārchita ❘ chandra - sūryanayana ｜  
+kamalanābha ❘ mukunda ｜ - gaṅgādharastuta ｜  
+rākśhasāntaka ❘ nāga - rājaśayana ｜  
 
-te patitapāvana ❘ lakśhīśa | - brahmajanaka |  
-bhaktavatsala ❘ sarveśa | - paramapuruśha |  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+te patitapāvana ❘ lakśhīśa ｜ - brahmajanaka ｜  
+bhaktavatsala ❘ sarveśa ｜ - paramapuruśha ｜  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 084  
 sī. palumāRu daśarūpa - mulu dariñchiti vela?  
@@ -1262,8 +1262,8 @@ gajaturaṅgāndoḻi - kamulu leve?
 
 te vanajalochana ❘ yiṭuvaṇṭi - vaibhavamulu  
 sogasugā nīku docheno - sundarāṅga?  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 085  
 sī. tirupati sthalamandu - dinnagā ne nunna  
@@ -1277,8 +1277,8 @@ garivaraduḍu poṭṭa - gaḍapaleḍo?
 
 te yendu bovaka nenu nī - mandiramuna  
 nilichitini nīku nāmīda - nenaru ledu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 086  
 sī. tārkśhyavāhana ❘ nīvu - daṇḍidāta vaṭañchu  
@@ -1292,8 +1292,8 @@ vāñCha dīrpumu - nīlavarṇa ❘ vega
 
 te nīku nāvidya harśhambu - gāka yunna  
 tepatepaku veśhamul - denu summi.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 087  
 sī. amarendravinuta ❘ ne - natidurātmuḍa nañchu  
@@ -1307,23 +1307,23 @@ nityanaivedyamul - nemamuganu
 
 te naḍupuchunu ninnu golicheda - nammi buddhi  
 nī prapañchambu galugu nā - kinte chālu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 088  
-sī. bhuvaneśa ❘ govinda | - ravikoṭisaṅkāśa |  
-pakśhivāhana ❘ bhakta - pārijāta |  
+sī. bhuvaneśa ❘ govinda ｜ - ravikoṭisaṅkāśa ｜  
+pakśhivāhana ❘ bhakta - pārijāta ｜  
 yambhojabhava rudra - jambhārisannuta ❘  
-sāmagānavilola ❘ - sārasākśha |  
-vanadhigambhīra ❘ śrī - vatsakaustubhavakśha |  
+sāmagānavilola ❘ - sārasākśha ｜  
+vanadhigambhīra ❘ śrī - vatsakaustubhavakśha ｜  
 śaṅkhachakragadāsi - śārGYahasta ❘  
-dīnarakśhaka ❘ vāsu - deva | daityavināśa |  
-nāradārchita ❘ divya - nāgaśayana |  
+dīnarakśhaka ❘ vāsu - deva ｜ daityavināśa ｜  
+nāradārchita ❘ divya - nāgaśayana ｜  
 
 te chāru navaratnakuṇḍala - śravaṇayugaḻa ❘  
-vibudhavandita pādabja ❘ - viśvarūpa |  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+vibudhavandita pādabja ❘ - viśvarūpa ｜  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 089  
 sī. nāgendraśayana ❘ nī - nāmamādhuryambu  
@@ -1337,8 +1337,8 @@ daśaśatākśhula puraṃ - daruni keRuka
 
 te vīri keRukagu nīkathal - vinta lella  
 narula keRu kanna nevaraina - navvipore?  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 090  
 sī. arthu lemaina ni - nnaḍugavachcheda rañchu  
@@ -1351,9 +1351,9 @@ dāsulu nīdvāra - māsimpakuṇṭaku
 mañchi yodhula kāva - luñchināvu  
 
 te lāvu galavāḍa vaiti ve - lāgu nenu  
-ninnu jūtunu nātaṇḍri ❘ - nīrajākśha |  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+ninnu jūtunu nātaṇḍri ❘ - nīrajākśha ｜  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 091  
 sī. nīkathal chevulalo - sokuṭa modalugā  
@@ -1362,13 +1362,13 @@ nayamaina nī divya - nāmakīrtanalona
 magnuḍai dehambu - maRachuvāḍu  
 phālambuto nīdu - pādayugmamunaku  
 bremato daṇḍa ma - rpiñchuvāḍu  
-hā puṇḍarīkākśha ❘ - hā rāma | hari | yañchu  
+hā puṇḍarīkākśha ❘ - hā rāma ｜ hari ｜ yañchu  
 veḍkato gekalu - veyuvāḍu  
 
 te chittakamalambunanu ninnu - jerchuvāḍu  
 nīdulokambunaṃ duṇḍu - nīrajākśha ❘  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 092  
 sī. nigamagochara ❘ nenu - nīku meppagunaṭlu  
@@ -1382,8 +1382,8 @@ bhārgavīdevi nī - bhārya yayye
 
 te nanni galavāḍa vakhila lo - kādhipativi ❘  
 nīku sommulu peṭṭa ne - nentavāḍa ❘  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 093  
 sī. navasarojadaḻākśha ❘ - nannu bośhiñcheḍu  
@@ -1397,8 +1397,8 @@ nirvahimpumu nannu - nerputoḍa
 
 te baramasantośha māye nā - prāṇamulaku  
 nī^^ṛṇamu dīrchukona nera - nīrajākśha ❘  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 094  
 sī. phaṇulapuṭṭalamīda - bavvaḻiñchinayaṭlu  
@@ -1412,23 +1412,23 @@ kammaguḍise mandu - gālchinaṭlu
 
 te svāmi nī bhaktavarulu du - rjanulatoḍa  
 jelimi jesinaya ṭlaina - jeṭu vachchu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 095  
-sī. danujasaṃhāra ❘ chakra - dhara | nīku daṇḍambu  
+sī. danujasaṃhāra ❘ chakra - dhara ｜ nīku daṇḍambu  
 lindirādhipa ❘ nīku - vandanambu  
 patitapāvana ❘ nīku - bahunamaskāramul  
 nīrajātadaḻākśha ❘ - nīku śaraṇu  
-vāsavārchita ❘ megha - varṇa | nīku śubhambu  
+vāsavārchita ❘ megha - varṇa ｜ nīku śubhambu  
 mandaradhara ❘ nīku - maṅgaḻambu  
-kambukandhara ❘ śārjga - kara | nīku bhadrambu  
+kambukandhara ❘ śārjga - kara ｜ nīku bhadrambu  
 dīnarakśhaka ❘ nīku - digvijayamu  
 
 te sakalavaibhavamulu nīku - sārvabhauma ❘  
 nityakalyāṇamulu nagu - nīku nepuḍu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 096  
 sī. matsyāvatāra mai - maḍugulopala jochchi  
@@ -1442,8 +1442,8 @@ manuju landaRu nīdu - mahima delisi
 
 te yundu raravindanayana ❘ nī - yuniki deliyu  
 vāralaku vega mokśhambu - vachchu nanagha ❘  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 097  
 sī. kūrmāvatāramai - kudharambukrindanu  
@@ -1456,9 +1456,9 @@ vāmanarūpamai - vasudhalo balichakra
 varti naRampavā - vaira muḍigi?  
 
 te yiṭṭi panu lella jeyagā - nevarikeni  
-tagune narasiṃha ❘ nīkidi - dagunu gāka |  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+tagune narasiṃha ❘ nīkidi - dagunu gāka ｜  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 098  
 sī. lakśhmīśa ❘ nīdivya - lakśhaṇaguṇamula  
@@ -1472,8 +1472,8 @@ nīpādakamalamul - nirata menu
 
 te nammiyunnānu nīpāda - naḻinabhakti  
 vega dayachesi rakśhimpu - vedavidya ❘  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 099  
 sī. amarendravinuta ❘ ni - nnanusariñchinavāru  
@@ -1487,8 +1487,8 @@ chelagi nīpanulanu - jeyuvāḍa
 
 te nanuchu balumāRu veḍeda - nabjanābha ❘  
 nāku bratyakśha magumu nin - namminānu.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 100  
 sī. śeśhappa yanu kavi - cheppina padyamul  
@@ -1502,27 +1502,27 @@ duritajālambulu - dolagipovu
 
 te niddi puṇyākaraṃ bani - yepuḍu janulu  
 gaśhaṭa mennaka paṭhiyimpa - galugu mukti.  
-bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa |  
-duśhṭasaṃhāra ❘ narasiṃha - duritadūra |  
+bhūśhaṇavikāsa ❘ śrīdharma - puranivāsa ｜  
+duśhṭasaṃhāra ❘ narasiṃha - duritadūra ｜  
 
 ## PlainEnglish
 
 naarasiMha shatakam  
 
 001  
-see. shreemanohara ❘ suraa - rchita siMdhugaMbheera |  
-bhaktavatsala ❘ koTi - bhaanuteja |  
-kaMjanetra ❘ hiraNya - kashyapaaMtaka | shoora |  
-saadhurakshhaNa ❘ shaMkha - chakrahasta |  
-prahlaada varada ❘ paa - padhvaMsa | sarvesha |  
-kshheerasaagarashaayi ❘ - kRRishhNavarNa |  
-pakshhivaahana ❘ neela - bhramarakuMtalajaala |  
+see. shreemanohara ❘ suraa - rchita siMdhugaMbheera ｜  
+bhaktavatsala ❘ koTi - bhaanuteja ｜  
+kaMjanetra ❘ hiraNya - kashyapaaMtaka ｜ shoora ｜  
+saadhurakshhaNa ❘ shaMkha - chakrahasta ｜  
+prahlaada varada ❘ paa - padhvaMsa ｜ sarvesha ｜  
+kshheerasaagarashaayi ❘ - kRRishhNavarNa ｜  
+pakshhivaahana ❘ neela - bhramarakuMtalajaala ｜  
 pallavaaruNapaada - padmayugaLa ❘  
 
 te. chaarushreechaMdanaagaru - charchitaaMga ❘  
-kuMdakuTmaladaMta ❘ vai - kuMThadhaama |  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+kuMdakuTmaladaMta ❘ vai - kuMThadhaama ｜  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 002  
 see. padmalochana ❘ seesa - padyamul nee meeda  
@@ -1536,8 +1536,8 @@ pragnya naayadi gaadu - prastutiMpa
 
 te. dappugaligina sadbhakti - takkuvaun.e  
 ch.eRakunaku vaMkapoyina - ch.eDun.e teepu?  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 003  
 see. narasiMha ❘ nee divya - naamamaMtramucheta  
@@ -1551,8 +1551,8 @@ daMDahastuni baMTla - daramavachchu
 
 te. bhaLira ❘ ne nee mahaamaMtra - balamucheta  
 divya vaikuMTha padavi saa - dhiMpavachchu  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 004  
 see. aadinaaraayaNaa ❘ - yanuchu naalukatoDa  
@@ -1566,8 +1566,8 @@ ch.eMta jeraganonu - sheshhashayana
 
 te. parama saatvikulaina nee - bhaktavarula  
 daasulaku daasuDanu jumee - dhaatrilona  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 005  
 see. aishvaryamulaku ni - nnanusariMpagaledu  
@@ -1581,8 +1581,8 @@ pasula nimmani paTTu - paTTaledu
 
 te. nenu gorina d.okkaTe - neelavarNa  
 chayyananu mokshhamichchina - jaalu naaku  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 006  
 see. maMduMDanani nannu - niMda chesinanemi?  
@@ -1596,8 +1596,8 @@ ceri daapaTa geli - cheyanemi?
 
 te. kalpavRRikshhaMbuval.e neevu - galga niMka  
 brajala lakshhyaMbu naakela? - padmanaabha ❘  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 007  
 see. chittashuddhiga neeku - sevajes.edagaani  
@@ -1611,8 +1611,8 @@ kukshhiniMD.eDu kooTi - k.oRaku gaadu
 
 te. paaramaarthikamunaku ne baaTupaDiti  
 geertiki napekshhapaDaledu - kRRishhNavarNa ❘  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 008  
 see. shravaNa raMdhramula nee - satkathal p.ogaDaMga  
@@ -1626,8 +1626,8 @@ kaalamaMtayu vRRidhaa - gaDapuvaaDu
 
 te. vasudhalon.ella vyardhuMDu - vaaD.e yagunu  
 maRiyu j.eDugaaka y.eppuDu - mamatan.oMdi.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 009  
 see. gautameesnaanaana - gaDateRuda maTanna  
@@ -1641,8 +1641,8 @@ nimishhamaina manassu - nilupalenu
 
 te. kashhTamulakorva naacheta - gaadu ninnu  
 smaraNaches.eda naa yadhaa - shakti k.oladi.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 010  
 see. arthivaaMDraku neeka - haani jeyuTa kaMT.e  
@@ -1656,8 +1656,8 @@ g.oMguto mushhT.ettu - k.onuTa melu
 
 te. jalajadaLanetra nee bhakta - janulatoDi  
 jagaDamaaD.eDu panikaMT.e - jaavu melu  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 011  
 see. gaardabhaMbuna kela - kastoori tilakaMbu?  
@@ -1671,8 +1671,8 @@ bakasaMtatiki nela - paMjaraMbu?
 
 te. drohachiMtana jes.eDi - durjanulaku  
 madhuramainaTTi neenaama - maMtramela?  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 012  
 see. pasaraMbu vaMjaina - basulakaapari tappu  
@@ -1686,8 +1686,8 @@ daMti dushhTayina maa - vaMtu tappu
 
 te. iTTi tappul.eRuMgaka - yichchavachchi  
 naTula m.elagudu rippu Dee - yavani janulu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 013  
 see. kotiki jalataaru - kuLlaayi yeTiki?  
@@ -1701,8 +1701,8 @@ vaavi yeTiki dushhTa - vartanunaku?
 
 te. maaTa nilukaDa kuMkari - moTu kela?  
 ch.eviTivaaniki satkatha - shravaNa mela?  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 014  
 see. maanyaMbuleeya sa - mardhuD.okkaDu leDu  
@@ -1716,8 +1716,8 @@ b.eRakaaMta RaMk.enna - b.edda laMta
 
 te. yiTTi dushhTula kadhikaara - michchinaTTi  
 prabhuvu tappu laTaMchunu - balukaval.enu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 015  
 see. talligarbhamunuMDi - dhanamu te D.evvaDu  
@@ -1731,8 +1731,8 @@ daanadharmamu leka - daachi daachi
 
 te. tudaku d.oMgala kitturo - d.orala kavun.o  
 ten.e juMTeega liyyavaa - t.eruvarulaku?  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 016  
 see. lokamaM d.evaDaina - lobhimaanavu Dunna  
@@ -1746,8 +1746,8 @@ melu kalgina jaala - miNukuchuMDu
 
 te. shreeramaanaatha ❘ yiTuvaMTi - kroorunakunu  
 bhikshhukula shatruvani - peru p.eTTavachchu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 017  
 see. tanuvulo braaNamul = taraLip.oyy.eDiveLa  
@@ -1761,8 +1761,8 @@ naraka m.ekkaDidayya - naLinanetra
 
 te. kamalanaabha nee mahimalu - gaanaleni  
 tuchChulaku muktid.orakuTa - durlabhaMbu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 018  
 see. neelameghashyaama ❘ - neev.e taMDrivi maaku  
@@ -1776,8 +1776,8 @@ nee pada dhyaanaMbu - nityajapamu
 
 te. toyajaataakshha nee paada - tulasidaLamu  
 rogamula kaushhadhamu brahma - rudravinuta.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 019  
 see. bratikinannaaLlu nee - bhajana tappanu gaani  
@@ -1791,8 +1791,8 @@ bilutuno shramacheta - biluvan.o
 
 te. naaTi kippuD.e chetu nee - naamabhajana  
 talach.edanu, j.evi niDavayya ❘ - dhairyamuganu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 020  
 see. paaMchabhautikamu du - rbalamaina kaayaM bi  
@@ -1806,8 +1806,8 @@ y.eppuDo viDuchuTa - yekshhaNaMb.o
 
 te. maraName nishchayamu buddhi - maMtuDaina  
 dehamunnaMtalo mimmu - d.eliyavalayu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 021  
 see. tallidaMDrulu bhaarya - tanayu laaptulu baava  
@@ -1821,8 +1821,8 @@ yiMchuka yaayushhya - miyyaleru
 
 te. chuTTamulameedi bhramadeesi - choora j.ekki  
 saMtatamu mimmu nammuTa - saarthakaMbu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 022  
 see. ibharaajavarada ❘ ni - nn.eMta bilchinagaani  
@@ -1836,8 +1836,8 @@ d.orakajaala vademi - dhoortatanam.o?
 
 te. mokshhadaayaka ❘ yiTuvaMTi - moorkhajanuni  
 kashhTap.eTTina neekemi - kaDupuniMDu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 023  
 see. neemeeda keertanal - nityagaanamu jesi  
@@ -1851,8 +1851,8 @@ vinutiseyanu vyaasa - muninigaanu
 
 te. saadhuDanu moorkhamati manu - shhyaadhamuDanu  
 heenuDanu jummi neevu - na nneluk.onumu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 024  
 see. atishayaMbuga galla - laaDanerchitigaani  
@@ -1866,8 +1866,8 @@ sheeghra michch.eDunaTlu - ch.eppanera
 
 te. baMkajaataakshha ❘ ne nati - paatakuDanu  
 dappulanniyu kshhamiyiMpa - daMDri veev.e ❘  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 025  
 see. urvilo naayushhya - munna paryaMtaMbu  
@@ -1881,8 +1881,8 @@ dikku ledani naalgu - dishalu chooDa
 
 te. dannu viDipiMpa vachch.eDi - dhanyu DeDi  
 muMdu needaasuDai yunna - mukti galugu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 026  
 see. adhika vidyaavaMtu - laprayojakulairi  
@@ -1896,8 +1896,8 @@ dushhTamaanavulu va - rdhishhNulairi
 
 te. pakshhivaahana ❘ maavaMTi - bhikshhukulaku  
 shaktiledaay.e nika neev.e - chaaTu maaku.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 027  
 see. bhujabalaMbuna b.edda - pulula jaMpagavachchu  
@@ -1911,8 +1911,8 @@ diTTubotula noLlu - kaTTavachchu
 
 te. buDamilo dushhTulaku gnyaana - bodha t.elipi  
 sajjanula jeyale D.eMta - chaturudaina.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 028  
 see. avanilogala yaatra - lanni cheyagavachchu  
@@ -1926,8 +1926,8 @@ naishhThikaachaaramul - naDupavachchu
 
 te. jitta manyasthalaMbuna - jerakuMDa  
 nee padaaMbhojamulayaMdu - nilaparaadu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 029  
 see. karNayugmamuna nee - kathalu sokinajaalu  
@@ -1941,8 +1941,8 @@ viMtagaa gaMTheelu - vesinaTlu
 
 te. pooni ninu g.olchuTe sarva - bhooshhaNaMbu  
 litara bhooshhaNamula nichcha - giMpanela.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 030  
 see. bhuvanarakshhaka ❘ ninnu - b.ogaDanerani noru  
@@ -1956,8 +1956,8 @@ gaThinashilaadula - galugu t.olalu
 
 te. padmalochana neemeeda - bhaktileni  
 maanavuDu r.eMDupaadaala - mahishhamayya.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 031  
 see. atividyanerchuTa - annavastramulake  
@@ -1971,8 +1971,8 @@ ghanamugaa jaduvuTa - kaDupu k.oRak.e
 
 te. yitara kaamaMbu goraka - satatamuganu  
 bhakti neeyaMdu nilupuTa - mukti k.oRak.e  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 032  
 see. dharaNilo veyeMDlu - tanuvu nilvagabodu  
@@ -1986,8 +1986,8 @@ gochimaatraMbaina - g.onuchuboDu
 
 te. v.erri kukkala bhramalanni - viDichi ninnu  
 bhajana jes.eDivaariki - baramasukhamu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 033  
 see. narasiMha ❘ naaku du - rNayamule m.eMDaay.e  
@@ -2001,8 +2001,8 @@ buTTajesiti vela - bhogishayana ❘
 
 te. abjadaLanetra ❘ naataMDri - vaina phalamu  
 neramulu gaachi rakshhiMpu - neev.e dikku.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 034  
 see. dheerata barula niM - diMpa nerchiti gaani  
@@ -2016,23 +2016,23 @@ h.echchu puNyamu saMgra - hiMpanaiti
 
 te. navanilo nenu janmiMchi - naMdu kemi  
 saarthakamu gaanaraadaay.e - svalpamaina.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 035  
 see. aMtyakaalamunaMdu - naayaasamuna ninnu  
 dalatuno talapano - talatu nipuD.e  
-narasiMha ❘ narasiMha | - narasiMha | lakshhmeesha |  
-daanavaaMtaka ❘ koTi - bhaanuteja |  
-goviMda ❘ goviMda | - goviMda | sarvesha |  
-pannagaadhipashaayi ❘ - padmanaabha |  
-madhuvairi ❘ madhuvairi | - madhuvairi | lokesha |  
-neelameghashareera ❘ nigamavinuta |  
+narasiMha ❘ narasiMha ｜ - narasiMha ｜ lakshhmeesha ｜  
+daanavaaMtaka ❘ koTi - bhaanuteja ｜  
+goviMda ❘ goviMda ｜ - goviMda ｜ sarvesha ｜  
+pannagaadhipashaayi ❘ - padmanaabha ｜  
+madhuvairi ❘ madhuvairi ｜ - madhuvairi ｜ lokesha ｜  
+neelameghashareera ❘ nigamavinuta ｜  
 
 te. ee vidhaMbuna neenaama - mishhTamuganu  
 bhajanaseyuchu nuMdu naa - bhaavamaMdu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 036  
 see. aayuraarogya pu - traartha saMpadalanni  
@@ -2046,8 +2046,8 @@ mukti b.oMdiMch.eDu - moorti veev.e
 
 te. avanilo maanavula kanni - yaasalichchi  
 vyarthulanu jesi t.elip.eDi - vaaDa veev.e.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 037  
 see. kaaya m.eMta bhayaana - gaapaaDinanugaani  
@@ -2061,8 +2061,8 @@ maraNa mayy.eDu vyaadhi - maanpaleru
 
 te. jeevuni prayaaNakaalaMbu - siddhamaina  
 niluchunaa deha miMd.okka - nimishhamaina?  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 038  
 see. jaMd.e miMpuga vesi - saMdhya vaarchina nemi  
@@ -2076,8 +2076,8 @@ yaasha povaka kaaDu - yativaruMDu
 
 te. .enni laukikaveshhaalu - gaTTuk.onina  
 guruni j.eMdaka sanmukti - d.orakabodu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 039  
 see. narasiMha ❘ ne ninnu - namminaMduku jaala  
@@ -2091,8 +2091,8 @@ narakamaMde yuMchu - naLinanaabha ❘
 
 te. .echaTa nannuMchinanugaani - y.epuDu ninnu  
 maRachi pokuMDa neenaama - smaraNan.osagu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 040  
 see. deha munnavaRaku - mohasaagaramaMdu  
@@ -2106,8 +2106,8 @@ niMda jeyaka - taamu niluvaleru
 
 te. mattulainaTTi durjaati - manujul.ella  
 ninnu ganaleru m.odaTike - neerajaakshha.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 041  
 see. ilalona ne janma - m.ettinappaTinuMDi  
@@ -2121,8 +2121,8 @@ jesi chootamaTanna - jetagaadu
 
 te. sooryashashinetra ❘ neechaaTu - j.ochchi naanu  
 kalushhamulu druMchi nannelu - kashhTamanaka.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 042  
 see. taapasaarchita ❘ nenu - paapakarmuDanaMchu  
@@ -2136,8 +2136,8 @@ vaddu vaddana r.eMta - p.eddalaina
 
 te. daMDrivai neevu parapeeDa - dagulajeya  
 vaasigala peru kapakeerti - vachchunayya.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 043  
 see. dharaNilopala nenu - talligarbhamunaMdu  
@@ -2151,8 +2151,8 @@ itara daanamulaina - niyyaledu
 
 te. naLinadaLanetra ❘ ninnu ne - namminaanu  
 jeri rakshhiMpave nannu - sheeghramuganu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 044  
 see. aDavipakshhula k.evva - Daahaara michch.enu  
@@ -2166,8 +2166,8 @@ basula m.evva D.osaMg.e - bachchipoori
 
 te. jeevakoTlanu boshhiMpa - neev.ekaani  
 veR.e y.oka daata leDayya - v.edakichooDa.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 045  
 see. danujaari ❘ naavaMTi - daasajaalamu neeku  
@@ -2181,8 +2181,8 @@ yiMta vRRithaajanma - m.ettinaanu
 
 te. bhoojanulalona ne napra - yojakuDanu  
 ganuka nee satkaTaakshhaMbu - galugajeyu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 046  
 see. kamalalochana ❘ nannu - gannataMDrivigaana  
@@ -2196,8 +2196,8 @@ kuMDalaMbulu paiDi - g.olusu lammu
 
 te. k.osaku nee shaMkha chakramul - kuduvab.eTTi  
 graasamu n.osaMgi poshhiMchu - kapaTamuDigi.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 047  
 see. kuvalayashyaama ❘ nee - k.oluvu chesina naaku  
@@ -2211,8 +2211,8 @@ shikshha chesina jeyu - siddhamayiti
 
 te. neDu karuNiMpakuMTivaa - nishchayamuga  
 d.egabaDiti chooDu neetoDa - jagaDamunaku.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 048  
 see. hari ❘ neeku baryaMka - maina sheshhuDu chaala  
@@ -2226,8 +2226,8 @@ prema bakvaannamul - p.eTTuchuMDru
 
 te. svasthamuga neeku graasamu - jaruguchuMDu  
 gaasu nee cheti d.okaTaina - gaadu vyayamu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 049  
 see. puMDareekaakshha ❘ naa - r.eMDu kannula niMDa  
@@ -2241,8 +2241,8 @@ buNyavaMtulanoTa - b.ogaDa viMTi
 
 te. nemiTiki vistariMch.e nee - kiMta keerti  
 drohinainanu naa keevu - d.orakaraad.e?  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 050  
 see. pachchi charmapu ditti - pasaledu dehaMbu  
@@ -2256,8 +2256,8 @@ niluva dasthiramaina - neeTibugga
 
 te. b.oMdilo nuMDu praaNamul - poyinaMta  
 gaaTike gaani k.oRagaadu - gavvakaina.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 051  
 see. palurogamulaku nee - paadateeram.e kaani  
@@ -2271,8 +2271,8 @@ daani maMtramu nenu - talapanayya
 
 te. d.orikitivi naaku daMDi vai - dyuDavu neevu  
 veyikashhTaalu vachchinan - v.eRavanayya.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 052  
 see. kooTikosaramu ne - g.oRagaani janulache  
@@ -2286,8 +2286,8 @@ parula joochina bheeti - paDagavalas.e?
 
 te. niTula saMsaaravaaridhi - needaleka  
 veyividhamula ninnu ne - veDuk.oMTi.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 053  
 see. saadhu sajjanulato - jagaDamaaDina geeDu  
@@ -2301,8 +2301,8 @@ guruni dravyamu dochu - k.onina geeDu
 
 te. dushhTakaaryamu l.onariMchu - durjanulaku  
 ghanataraMbaina narakaMbu - gaTTimull.e.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 054  
 see. paruladravyamumeeda - bhraaMti n.oMdinavaaDu  
@@ -2316,8 +2316,8 @@ dharmasaadhula diTTa - dalachuvaaDu
 
 te. prajala jaMtula hiMsiMchu - paatakuMDu  
 kaalakiMkara gadalache - gashhTam.oMdu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 055  
 see. narasiMha ❘ naa taMDri - nannelu nannelu  
@@ -2331,8 +2331,8 @@ padmalochana ❘ cheyi - paTTu paTTu
 
 te. suravinuta ❘ nenu neechaaTu - j.ochchinaanu  
 naa m.oRaaliMchi kaDaterchu - naagashayana ❘  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 056  
 see. nee bhaktulanu ganul - niMDa joochiyu r.eMDu  
@@ -2346,8 +2346,8 @@ daasoha mani chera - dalachuvaaDu
 
 te. paramabhaktuMDu dhanyuMDu - bhaanuteja ❘  
 vaani ganug.onna buNyaMbu - vasudhalona.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 057  
 see. pakshhivaahana ❘ nenu - bratikinannidinaalu  
@@ -2361,8 +2361,8 @@ karuNato naay.odda - gaava luMchu
 
 te. k.osaku nee sannidhiki bilchu - k.oniyu neeku  
 sevakuni jesik.onavayya - sheshhashayana ❘  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 058  
 see. nigamaadishaastramul - nerchina dvijuDaina  
@@ -2376,8 +2376,8 @@ sakala yaatralu salpu - sarasuDaina
 
 te. garvamuna gashhTapaDi ninnu - gaanakunna  
 mokshhasaamraajya m.oMdaDu - mohanaaMga ❘  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 059  
 see. paMjaraMbuna gaaki - baTTi yuMchina l.essa  
@@ -2391,8 +2391,8 @@ saagune veTaaDu - Degaval.enu?
 
 te. kujanulanu d.echchi nee seva - k.oRaku b.eTTa  
 vaaMChato jeture bhakta - varulaval.enu?  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 060  
 see. neeku daasuDa naMTi - ninnu nammukayuMTi  
@@ -2406,8 +2406,8 @@ ghorapaatakaraashi - g.oTTivaichi
 
 te. sheeghramuga gorku leeDerchu - chiMta deerchu  
 niratamuga nannu boshhiMchu - n.enaru nuMchu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 061  
 see. vidya nerchiti naMchu - virraveegagaledu  
@@ -2421,8 +2421,8 @@ kaaryavaMtuDa naMchu - gaDapaledu
 
 te. naluguriki m.eppugaanaina - naDuvaledu  
 naLinadaLanetra ❘ ninnu ne - namminaanu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 062  
 see. atilobhulanu bhikshha - maDugabovuTa rota  
@@ -2434,10 +2434,10 @@ guRileni baMdhula - gooDa rota
 aadaayamulu leka - yappudeeyuTa rota  
 jaara chorula gooDi - chanuTa rota  
 
-te. yaadilakshhmeesha ❘ neebaMTa - naitinayya |  
+te. yaadilakshhmeesha ❘ neebaMTa - naitinayya ｜  
 yiMka n.eDabaasi janmaMbu - l.etta rota.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 063  
 see. v.errivaaniki nela - vedaakshharaMbulu?  
@@ -2451,8 +2451,8 @@ d.oMgabaMTuku maMchi - saMga tela?
 
 te. kroorajanulaku neemeeda - gori kela?  
 drohi paapaatmunaku dayaa - duHkha mela?  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 064  
 see. naa taMDri naadaata - naayishhTadaivamaa  
@@ -2466,8 +2466,8 @@ garuNiMchi rakshhiMchu - kamalanaabha ❘
 
 te. daMDid.ora vaMchu neev.eMTa - dagilinaanu  
 neDu pratyakshhamai nannu - nirvahiMpu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 065  
 see. vemaaRu neekathal - vinuchu nuMD.eDivaaDu  
@@ -2481,8 +2481,8 @@ ch.elagi neechulaperu - dalapaboDu
 
 te. ninnu nammina bhaktuMDu - nishchayamuga  
 gori chillara velpula - g.olvaboDu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 066  
 see. ne n.eMta veDina - nee kela dayaraadu?  
@@ -2496,8 +2496,8 @@ baru l.evva raguduru - paMkajaakshha ❘
 
 te. daata daivaMbu talliyu - daMDri veev.e  
 nammiyunnaanu neepaada - naLinamulanu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 067  
 see. vedamul chadiv.eDu - vipravaryuMDaina  
@@ -2511,8 +2511,8 @@ nee maheetalamaMdu - n.evvaDaina
 
 te. ninnu g.oniyaaDuchuMD.enaa - nishchayamuga  
 vaaDu mokshhaadhikaari yee - vasudhalona.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 068  
 see. sakalavidyalu nerchi - sabha jayiMpagavachchu  
@@ -2526,8 +2526,8 @@ meka reetiga naaku - m.esavavachchu
 
 te. taamarasagarbha hara puraM - darulakaina  
 ninnu varNiMpa daramaun.e - neerajaakshha ❘  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 069  
 see. narasiMha ❘ neevaMTi - d.oranu saMpaadiMchi  
@@ -2539,10 +2539,10 @@ gashhTa m.eMtaTi svalpa - kaaryamayya?
 p.eTTajaalaka yela - bhikshham.ettiMch.edu  
 nannu beedanu jesi - naa vademi?  
 
-te. amala ❘ kamalaakshha | ne niTlu - shramapaDaMga  
+te. amala ❘ kamalaakshha ｜ ne niTlu - shramapaDaMga  
 gannulaku baMDuvai neeku - gaanabaDun.e?  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 070  
 see. vanaruhanaabha ❘ nee - vaMka jeriti nenu  
@@ -2556,8 +2556,8 @@ vaarikainanu l.oMgi - vaDakabonu
 
 te. gopagaaDanu neevu naa - guNamu t.elisi  
 yippuDe nannu rakshhiMchi - yeluk.ommu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 071  
 see. prahlaadu DepaaTi - paiDi kaanuka lichch.e?  
@@ -2571,8 +2571,8 @@ draupadi nee k.eMta - dravya michch.e?
 
 te. neeku veeraMda RayinaTlu - nenu gaana?  
 y.eMdu kani nannu rakshhiMpa - viMduvadana ❘  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 072  
 see. vaaMChato balichakra - vartidaggara jeri  
@@ -2586,8 +2586,8 @@ b.okkasaagiti vela - l.ekkag.onaka?
 
 te. bhaktulaku neevu p.eTTuTa - bhaagyamaunu  
 vaari kaashiMchitivi tiMDi - vaaDa vaguchu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 073  
 see. staMbhamaM dudayiMchi - daanaveMdruni druMchi  
@@ -2601,8 +2601,8 @@ bahusaMpadala nichchi - paMpinaavu
 
 te. vaarival.e nannu boshhiMpa - vashamugaad.e?  
 yaMta valapakshha mela shree - kaaMta ❘ neeku?  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 074  
 see. vyaasu De kulamaMdu - vaasigaa janmiMch.e?  
@@ -2616,8 +2616,8 @@ shabari yekulamaMdu - janmam.oMd.e?
 
 te. ne kulaMbuna vee riMda - R.echchinaaru?  
 neekRRipaapaatrulaku jaati - neetu lela?  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 075  
 see. vasudhaasthalaMbuna - varNaheenuDu gaani  
@@ -2631,8 +2631,8 @@ m.odaTi ke m.eRugani - moTu gaani
 
 te. pratidinamu needu bhajanache - baragunaTTi  
 vaani ke vaMka ledayya - vachchu mukti.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 076  
 see. ibhakuMbhamulameedi - k.egir.eDi siMgaMbu  
@@ -2646,8 +2646,8 @@ m.esavune bhamata nu - mm.ettakaaya?
 
 te. nilanu neekeertanalu paaDa - nerchinataDu  
 parulakeertana baaDune - yarasi chooDa?  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 077  
 see. sarvesha ❘ neepaada - sarasijadvayamaMdu  
@@ -2661,8 +2661,8 @@ bhaktimaargaM banu - paalu posi
 
 te. premato nannu boshhiMchi - p.eMchuk.onumu  
 ghanata k.ekkiMchu needaasa - gaNamulona.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 078  
 see. jeemootavarNa ❘ nee - momuto sariraaka  
@@ -2676,8 +2676,8 @@ pushhpabaaNuDu neeku - butru Dayy.e
 
 te. niMdiraadevi ninnu mo - hiMchi viDaka  
 neeku baTTamahishhi yayy.e - nishchayamuga.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 079  
 see. haridaasulanu niMda - laaDakuMDina jaalu  
@@ -2691,8 +2691,8 @@ ganakakaMbapu guLlu - gaTTinaTlu
 
 te. .okari varshaashanamu muMcha - kunna jaalu  
 berukeertiga satramul - p.eTTinaTlu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 080  
 see. ihalokasaukhyamu - lichchagiMch.eda manna  
@@ -2706,8 +2706,8 @@ gaalamRRityuvucheta - golupovu
 
 te. nammaraa dayya ❘ yidi maaya - naaTakaMbu  
 janma mika n.olla na nnelu - jalajanaabha ❘  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 081  
 see. vadanaMbu neenaama - bhajana goruchunuMDu  
@@ -2721,8 +2721,8 @@ naatma needai yuMDu - narasi chooDa
 
 te. svapnamuna naina neveLa - saMtatamunu  
 buddhi nee paadamulayaMdu - booniyuMDu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 082  
 see. padmaakshha ❘ mamatache - baramu naMd.eda maMchu  
@@ -2736,23 +2736,23 @@ muRiki ch.ettalu cherchi - mooTa kaTT.e
 
 te. nee shareeraalu paDipovu - T.eRuga kemu  
 kaamukula maiti mika mimmu - gaanalemu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 083  
-see. garuDavaahana ❘ divya - kaustubhaalaMkaara |  
-ravikoTiteja ❘ saa - raMgavadana |  
-maNigaNaanvita ❘ hema - makuTaabharaNa | chaaru  
-makarakuMDala ❘ lasa - nmaMdahaasa |  
-kaaMchanaaMbara ❘ ratna - kaaMchivibhooshhita |  
-suravaraarchita ❘ chaMdra - sooryanayana |  
-kamalanaabha ❘ mukuMda | - gaMgaadharastuta |  
-raakshhasaaMtaka ❘ naaga - raajashayana |  
+see. garuDavaahana ❘ divya - kaustubhaalaMkaara ｜  
+ravikoTiteja ❘ saa - raMgavadana ｜  
+maNigaNaanvita ❘ hema - makuTaabharaNa ｜ chaaru  
+makarakuMDala ❘ lasa - nmaMdahaasa ｜  
+kaaMchanaaMbara ❘ ratna - kaaMchivibhooshhita ｜  
+suravaraarchita ❘ chaMdra - sooryanayana ｜  
+kamalanaabha ❘ mukuMda ｜ - gaMgaadharastuta ｜  
+raakshhasaaMtaka ❘ naaga - raajashayana ｜  
 
-te. patitapaavana ❘ lakshheesha | - brahmajanaka |  
-bhaktavatsala ❘ sarvesha | - paramapurushha |  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+te. patitapaavana ❘ lakshheesha ｜ - brahmajanaka ｜  
+bhaktavatsala ❘ sarvesha ｜ - paramapurushha ｜  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 084  
 see. palumaaRu dasharoopa - mulu dariMchiti vela?  
@@ -2766,8 +2766,8 @@ gajaturaMgaaMdoLi - kamulu lev.e?
 
 te. vanajalochana ❘ yiTuvaMTi - vaibhavamulu  
 s.ogasugaa neeku doch.eno - suMdaraaMga?  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 085  
 see. tirupati sthalamaMdu - dinnagaa ne nunna  
@@ -2781,8 +2781,8 @@ garivaraduDu p.oTTa - gaDapaleD.o?
 
 te. y.eMdu bovaka nenu nee - maMdiramuna  
 nilichitini neeku naameeda - n.enaru ledu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 086  
 see. taarkshhyavaahana ❘ neevu - daMDidaata vaTaMchu  
@@ -2796,8 +2796,8 @@ vaaMCha deerpumu - neelavarNa ❘ vega
 
 te. neeku naavidya harshhaMbu - gaaka yunna  
 tepatepaku veshhamul - denu summi.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 087  
 see. amareMdravinuta ❘ ne - natiduraatmuDa naMchu  
@@ -2811,23 +2811,23 @@ nityanaivedyamul - nemamuganu
 
 te. naDupuchunu ninnu g.olich.eda - nammi buddhi  
 nee prapaMchaMbu galugu naa - kiMt.e chaalu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 088  
-see. bhuvanesha ❘ goviMda | - ravikoTisaMkaasha |  
-pakshhivaahana ❘ bhakta - paarijaata |  
+see. bhuvanesha ❘ goviMda ｜ - ravikoTisaMkaasha ｜  
+pakshhivaahana ❘ bhakta - paarijaata ｜  
 yaMbhojabhava rudra - jaMbhaarisannuta ❘  
-saamagaanavilola ❘ - saarasaakshha |  
-vanadhigaMbheera ❘ shree - vatsakaustubhavakshha |  
+saamagaanavilola ❘ - saarasaakshha ｜  
+vanadhigaMbheera ❘ shree - vatsakaustubhavakshha ｜  
 shaMkhachakragadaasi - shaargnyahasta ❘  
-deenarakshhaka ❘ vaasu - deva | daityavinaasha |  
-naaradaarchita ❘ divya - naagashayana |  
+deenarakshhaka ❘ vaasu - deva ｜ daityavinaasha ｜  
+naaradaarchita ❘ divya - naagashayana ｜  
 
 te. chaaru navaratnakuMDala - shravaNayugaLa ❘  
-vibudhavaMdita paadabja ❘ - vishvaroopa |  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+vibudhavaMdita paadabja ❘ - vishvaroopa ｜  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 089  
 see. naageMdrashayana ❘ nee - naamamaadhuryaMbu  
@@ -2841,8 +2841,8 @@ dashashataakshhula puraM - daruni k.eRuka
 
 te. veeri k.eRukagu neekathal - viMta l.ella  
 narula k.eRu kanna n.evaraina - navvipor.e?  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 090  
 see. arthu lemaina ni - nnaDugavachch.eda raMchu  
@@ -2855,9 +2855,9 @@ daasulu needvaara - maasiMpakuMTaku
 maMchi yodhula kaava - luMchinaavu  
 
 te. laavu galavaaDa vaiti ve - laagu nenu  
-ninnu jootunu naataMDri ❘ - neerajaakshha |  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+ninnu jootunu naataMDri ❘ - neerajaakshha ｜  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 091  
 see. neekathal ch.evulalo - sokuTa m.odalugaa  
@@ -2866,13 +2866,13 @@ nayamaina nee divya - naamakeertanalona
 magnuDai dehaMbu - maRachuvaaDu  
 phaalaMbuto needu - paadayugmamunaku  
 bremato daMDa ma - rpiMchuvaaDu  
-haa puMDareekaakshha ❘ - haa raama | hari | yaMchu  
+haa puMDareekaakshha ❘ - haa raama ｜ hari ｜ yaMchu  
 veDkato gekalu - veyuvaaDu  
 
 te. chittakamalaMbunanu ninnu - jerchuvaaDu  
 needulokaMbunaM duMDu - neerajaakshha ❘  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 092  
 see. nigamagochara ❘ nenu - neeku m.eppagunaTlu  
@@ -2886,8 +2886,8 @@ bhaargaveedevi nee - bhaarya yayy.e
 
 te. nanni galavaaDa vakhila lo - kaadhipativi ❘  
 neeku s.ommulu p.eTTa ne - n.eMtavaaDa ❘  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 093  
 see. navasarojadaLaakshha ❘ - nannu boshhiMch.eDu  
@@ -2901,8 +2901,8 @@ nirvahiMpumu nannu - nerputoDa
 
 te. baramasaMtoshha maay.e naa - praaNamulaku  
 nee^^RRiNamu deerchuk.ona nera - neerajaakshha ❘  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 094  
 see. phaNulapuTTalameeda - bavvaLiMchinayaTlu  
@@ -2916,23 +2916,23 @@ kammaguDis.e maMdu - gaalchinaTlu
 
 te. svaami nee bhaktavarulu du - rjanulatoDa  
 j.elimi jesinaya Tlaina - jeTu vachchu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 095  
-see. danujasaMhaara ❘ chakra - dhara | neeku daMDaMbu  
+see. danujasaMhaara ❘ chakra - dhara ｜ neeku daMDaMbu  
 liMdiraadhipa ❘ neeku - vaMdanaMbu  
 patitapaavana ❘ neeku - bahunamaskaaramul  
 neerajaatadaLaakshha ❘ - neeku sharaNu  
-vaasavaarchita ❘ megha - varNa | neeku shubhaMbu  
+vaasavaarchita ❘ megha - varNa ｜ neeku shubhaMbu  
 maMdaradhara ❘ neeku - maMgaLaMbu  
-kaMbukaMdhara ❘ shaarjga - kara | neeku bhadraMbu  
+kaMbukaMdhara ❘ shaarjga - kara ｜ neeku bhadraMbu  
 deenarakshhaka ❘ neeku - digvijayamu  
 
 te. sakalavaibhavamulu neeku - saarvabhauma ❘  
 nityakalyaaNamulu nagu - neeku n.epuDu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 096  
 see. matsyaavataara mai - maDugulopala j.ochchi  
@@ -2946,8 +2946,8 @@ manuju laMdaRu needu - mahima d.elisi
 
 te. yuMdu raraviMdanayana ❘ nee - yuniki d.eliyu  
 vaaralaku vega mokshhaMbu - vachchu nanagha ❘  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 097  
 see. koormaavataaramai - kudharaMbukriMdanu  
@@ -2960,9 +2960,9 @@ vaamanaroopamai - vasudhalo balichakra
 varti naRaMpavaa - vaira muDigi?  
 
 te. yiTTi panu l.ella jeyagaa - n.evarikeni  
-tagun.e narasiMha ❘ neekidi - dagunu gaaka |  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+tagun.e narasiMha ❘ neekidi - dagunu gaaka ｜  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 098  
 see. lakshhmeesha ❘ needivya - lakshhaNaguNamula  
@@ -2976,8 +2976,8 @@ neepaadakamalamul - nirata menu
 
 te. nammiyunnaanu neepaada - naLinabhakti  
 vega dayachesi rakshhiMpu - vedavidya ❘  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 099  
 see. amareMdravinuta ❘ ni - nnanusariMchinavaaru  
@@ -2991,8 +2991,8 @@ ch.elagi neepanulanu - jeyuvaaDa
 
 te. nanuchu balumaaRu veD.eda - nabjanaabha ❘  
 naaku bratyakshha magumu nin - namminaanu.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 100  
 see. sheshhappa yanu kavi - ch.eppina padyamul  
@@ -3006,27 +3006,27 @@ duritajaalaMbulu - d.olagipovu
 
 te. niddi puNyaakaraM bani - y.epuDu janulu  
 gashhaTa m.ennaka paThiyiMpa - galugu mukti.  
-bhooshhaNavikaasa ❘ shreedharma - puranivaasa |  
-dushhTasaMhaara ❘ narasiMha - duritadoora |  
+bhooshhaNavikaasa ❘ shreedharma - puranivaasa ｜  
+dushhTasaMhaara ❘ narasiMha - duritadoora ｜  
 
 ## Bengali
 
 নারসিংহ শতকম্  
 
 001  
-সী৤ শ্রীমনোহর ❘ সুরা - র্চিত সিংধুগংভীর |  
-ভক্তবত্সল ❘ কোটি - ভানুতেজ |  
-কংজনেত্র ❘ হিরণ্য - কশ্যপাংতক | শূর |  
-সাধুরক্ষণ ❘ শংখ - চক্রহস্ত |  
-প্রহ্লাদ বরদ ❘ পা - পধ্বংস | সর্বেশ |  
-ক্ষীরসাগরশাযি ❘ - কৃষ্ণবর্ণ |  
-পক্ষিবাহন ❘ নীল - ভ্রমরকুংতলজাল |  
+সী৤ শ্রীমনোহর ❘ সুরা - র্চিত সিংধুগংভীর ｜  
+ভক্তবত্সল ❘ কোটি - ভানুতেজ ｜  
+কংজনেত্র ❘ হিরণ্য - কশ্যপাংতক ｜ শূর ｜  
+সাধুরক্ষণ ❘ শংখ - চক্রহস্ত ｜  
+প্রহ্লাদ বরদ ❘ পা - পধ্বংস ｜ সর্বেশ ｜  
+ক্ষীরসাগরশাযি ❘ - কৃষ্ণবর্ণ ｜  
+পক্ষিবাহন ❘ নীল - ভ্রমরকুংতলজাল ｜  
 পল্লবারুণপাদ - পদ্মযুগল ❘  
 
 তে৤ চারুশ্রীচংদনাগরু - চর্চিতাংগ ❘  
-কুংদকুট্মলদংত ❘ বৈ - কুংঠধাম |  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+কুংদকুট্মলদংত ❘ বৈ - কুংঠধাম ｜  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 002  
 সী৤ পদ্মলোচন ❘ সীস - পদ্যমুল্ নী মীদ  
@@ -3040,8 +3040,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ দপ্পুগলিগিন সদ্ভক্তি - তক্কুবৌন৆  
 চ৆঱কুনকু বংকপোযিন - চ৆ডুন৆ তীপু?  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 003  
 সী৤ নরসিংহ ❘ নী দিব্য - নামমংত্রমুচেত  
@@ -3055,8 +3055,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ ভলির ❘ নে নী মহামংত্র - বলমুচেত  
 দিব্য বৈকুংঠ পদবি সা - ধিংপবচ্চু  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 004  
 সী৤ আদিনারাযণা ❘ - যনুচু নালুকতোড  
@@ -3070,8 +3070,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ পরম সাত্বিকুলৈন নী - ভক্তবরুল  
 দাসুলকু দাসুডনু জুমী - ধাত্রিলোন  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 005  
 সী৤ ঐশ্বর্যমুলকু নি - ন্ননুসরিংপগলেদু  
@@ -3085,8 +3085,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নেনু গোরিন দ৊ক্কটে - নীলবর্ণ  
 চয্যননু মোক্ষমিচ্চিন - জালু নাকু  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 006  
 সী৤ মংদুংডননি নন্নু - নিংদ চেসিননেমি?  
@@ -3100,8 +3100,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ কল্পবৃক্ষংবুবল৆ নীবু - গল্গ নিংক  
 ব্রজল লক্ষ্যংবু নাকেল? - পদ্মনাভ ❘  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 007  
 সী৤ চিত্তশুদ্ধিগ নীকু - সেবজেস৆দগানি  
@@ -3115,8 +3115,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ পারমার্থিকমুনকু নে বাটুপডিতি  
 গীর্তিকি নপেক্ষপডলেদু - কৃষ্ণবর্ণ ❘  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 008  
 সী৤ শ্রবণ রংধ্রমুল নী - সত্কথল্ প৊গডংগ  
@@ -3130,8 +3130,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ বসুধলোন৆ল্ল ব্যর্ধুংডু - বাড৆ যগুনু  
 ম঱িযু জ৆ডুগাক য৆প্পুডু - মমতন৊ংদি৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 009  
 সী৤ গৌতমীস্নানান - গডতে঱ুদ মটন্ন  
@@ -3145,8 +3145,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ কষ্টমুলকোর্ব নাচেত - গাদু নিন্নু  
 স্মরণচেস৆দ না যধা - শক্তি ক৊লদি৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 010  
 সী৤ অর্থিবাংড্রকু নীক - হানি জেযুট কংট৆  
@@ -3160,8 +3160,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ জলজদলনেত্র নী ভক্ত - জনুলতোডি  
 জগডমাড৆ডু পনিকংট৆ - জাবু মেলু  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 011  
 সী৤ গার্দভংবুন কেল - কস্তূরি তিলকংবু?  
@@ -3175,8 +3175,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ দ্রোহচিংতন জেস৆ডি - দুর্জনুলকু  
 মধুরমৈনট্টি নীনাম - মংত্রমেল?  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 012  
 সী৤ পসরংবু বংজৈন - বসুলকাপরি তপ্পু  
@@ -3190,8 +3190,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ ইট্টি তপ্পুল৆঱ুংগক - যিচ্চবচ্চি  
 নটুল ম৆লগুদু রিপ্পু ডী - যবনি জনুলু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 013  
 সী৤ কোতিকি জলতারু - কুল্লাযি যেটিকি?  
@@ -3205,8 +3205,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ মাট নিলুকড কুংকরি - মোটু কেল?  
 চ৆বিটিবানিকি সত্কথ - শ্রবণ মেল?  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 014  
 সী৤ মান্যংবুলীয স - মর্ধুড৊ক্কডু লেডু  
@@ -3220,8 +3220,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ যিট্টি দুষ্টুল কধিকার - মিচ্চিনট্টি  
 প্রভুবু তপ্পু লটংচুনু - বলুকবল৆নু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 015  
 সী৤ তল্লিগর্ভমুনুংডি - ধনমু তে ড৆ব্বডু  
@@ -3235,8 +3235,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ তুদকু দ৊ংগল কিত্তুরো - দ৊রল কবুন৊  
 তেন৆ জুংটীগ লিয্যবা - ত৆রুবরুলকু?  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 016  
 সী৤ লোকমং দ৆বডৈন - লোভিমানবু ডুন্ন  
@@ -3250,8 +3250,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ শ্রীরমানাথ ❘ যিটুবংটি - ক্রূরুনকুনু  
 ভিক্ষুকুল শত্রুবনি - পেরু প৆ট্টবচ্চু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 017  
 সী৤ তনুবুলো ব্রাণমুল্ = তরলিপ৊য্য৆ডিবেল  
@@ -3265,8 +3265,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ কমলনাভ নী মহিমলু - গানলেনি  
 তুচ্ছুলকু মুক্তিদ৊রকুট - দুর্লভংবু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 018  
 সী৤ নীলমেঘশ্যাম ❘ - নীব৆ তংড্রিবি মাকু  
@@ -3280,8 +3280,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ তোযজাতাক্ষ নী পাদ - তুলসিদলমু  
 রোগমুল কৌষধমু ব্রহ্ম - রুদ্রবিনুত৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 019  
 সী৤ ব্রতিকিনন্নাল্লু নী - ভজন তপ্পনু গানি  
@@ -3295,8 +3295,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নাটি কিপ্পুড৆ চেতু নী - নামভজন  
 তলচ৆দনু, জ৆বি নিডবয্য ❘ - ধৈর্যমুগনু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 020  
 সী৤ পাংচভৌতিকমু দু - র্বলমৈন কাযং বি  
@@ -3310,8 +3310,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ মরণমে নিশ্চযমু বুদ্ধি - মংতুডৈন  
 দেহমুন্নংতলো মিম্মু - দ৆লিযবলযু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 021  
 সী৤ তল্লিদংড্রুলু ভার্য - তনযু লাপ্তুলু বাব  
@@ -3325,8 +3325,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ চুট্টমুলমীদি ভ্রমদীসি - চূর জ৆ক্কি  
 সংততমু মিম্মু নম্মুট - সার্থকংবু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 022  
 সী৤ ইভরাজবরদ ❘ নি - ন্ন৆ংত বিল্চিনগানি  
@@ -3340,8 +3340,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ মোক্ষদাযক ❘ যিটুবংটি - মূর্খজনুনি  
 কষ্টপ৆ট্টিন নীকেমি - কডুপুনিংডু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 023  
 সী৤ নীমীদ কীর্তনল্ - নিত্যগানমু জেসি  
@@ -3355,8 +3355,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ সাধুডনু মূর্খমতি মনু - ষ্যাধমুডনু  
 হীনুডনু জুম্মি নীবু - ন ন্নেলুক৊নুমু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 024  
 সী৤ অতিশযংবুগ গল্ল - লাডনের্চিতিগানি  
@@ -3370,8 +3370,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ বংকজাতাক্ষ ❘ নে নতি - পাতকুডনু  
 দপ্পুলন্নিযু ক্ষমিযিংপ - দংড্রি বীব৆ ❘  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 025  
 সী৤ উর্বিলো নাযুষ্য - মুন্ন পর্যংতংবু  
@@ -3385,8 +3385,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ দন্নু বিডিপিংপ বচ্চ৆ডি - ধন্যু ডেডি  
 মুংদু নীদাসুডৈ যুন্ন - মুক্তি গলুগু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 026  
 সী৤ অধিক বিদ্যাবংতু - লপ্রযোজকুলৈরি  
@@ -3400,8 +3400,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ পক্ষিবাহন ❘ মাবংটি - ভিক্ষুকুলকু  
 শক্তিলেদায৆ নিক নীব৆ - চাটু মাকু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 027  
 সী৤ ভুজবলংবুন ব৆দ্দ - পুলুল জংপগবচ্চু  
@@ -3415,8 +3415,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ বুডমিলো দুষ্টুলকু জ্ঞান - বোধ ত৆লিপি  
 সজ্জনুল জেযলে ড৆ংত - চতুরুদৈন৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 028  
 সী৤ অবনিলোগল যাত্র - লন্নি চেযগবচ্চু  
@@ -3430,8 +3430,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ জিত্ত মন্যস্থলংবুন - জেরকুংড  
 নী পদাংভোজমুলযংদু - নিলপরাদু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 029  
 সী৤ কর্ণযুগ্মমুন নী - কথলু সোকিনজালু  
@@ -3445,8 +3445,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ পূনি নিনু গ৊ল্চুটে সর্ব - ভূষণংবু  
 লিতর ভূষণমুল নিচ্চ - গিংপনেল৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 030  
 সী৤ ভুবনরক্ষক ❘ নিন্নু - ব৊গডনেরনি নোরু  
@@ -3460,8 +3460,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ পদ্মলোচন নীমীদ - ভক্তিলেনি  
 মানবুডু র৆ংডুপাদাল - মহিষময্য৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 031  
 সী৤ অতিবিদ্যনের্চুট - অন্নবস্ত্রমুলকে  
@@ -3475,8 +3475,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ যিতর কামংবু গোরক - সততমুগনু  
 ভক্তি নীযংদু নিলুপুট - মুক্তি ক৊঱ক৆  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 032  
 সী৤ ধরণিলো বেযেংড্লু - তনুবু নিল্বগবোদু  
@@ -3490,8 +3490,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ ব৆র্রি কুক্কল ভ্রমলন্নি - বিডিচি নিন্নু  
 ভজন জেস৆ডিবারিকি - বরমসুখমু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 033  
 সী৤ নরসিংহ ❘ নাকু দু - র্ণযমুলে ম৆ংডায৆  
@@ -3505,8 +3505,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ অব্জদলনেত্র ❘ নাতংড্রি - বৈন ফলমু  
 নেরমুলু গাচি রক্ষিংপু - নীব৆ দিক্কু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 034  
 সী৤ ধীরত বরুল নিং - দিংপ নের্চিতি গানি  
@@ -3520,23 +3520,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নবনিলো নেনু জন্মিংচি - নংদু কেমি  
 সার্থকমু গানরাদায৆ - স্বল্পমৈন৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 035  
 সী৤ অংত্যকালমুনংদু - নাযাসমুন নিন্নু  
 দলতুনো তলপনো - তলতু নিপুড৆  
-নরসিংহ ❘ নরসিংহ | - নরসিংহ | লক্ষ্মীশ |  
-দানবাংতক ❘ কোটি - ভানুতেজ |  
-গোবিংদ ❘ গোবিংদ | - গোবিংদ | সর্বেশ |  
-পন্নগাধিপশাযি ❘ - পদ্মনাভ |  
-মধুবৈরি ❘ মধুবৈরি | - মধুবৈরি | লোকেশ |  
-নীলমেঘশরীর ❘ নিগমবিনুত |  
+নরসিংহ ❘ নরসিংহ ｜ - নরসিংহ ｜ লক্ষ্মীশ ｜  
+দানবাংতক ❘ কোটি - ভানুতেজ ｜  
+গোবিংদ ❘ গোবিংদ ｜ - গোবিংদ ｜ সর্বেশ ｜  
+পন্নগাধিপশাযি ❘ - পদ্মনাভ ｜  
+মধুবৈরি ❘ মধুবৈরি ｜ - মধুবৈরি ｜ লোকেশ ｜  
+নীলমেঘশরীর ❘ নিগমবিনুত ｜  
 
 তে৤ ঈ বিধংবুন নীনাম - মিষ্টমুগনু  
 ভজনসেযুচু নুংদু না - ভাবমংদু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 036  
 সী৤ আযুরারোগ্য পু - ত্রার্থ সংপদলন্নি  
@@ -3550,8 +3550,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ অবনিলো মানবুল কন্নি - যাসলিচ্চি  
 ব্যর্থুলনু জেসি ত৆লিপ৆ডি - বাড বীব৆৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 037  
 সী৤ কায ম৆ংত ভযান - গাপাডিননুগানি  
@@ -3565,8 +3565,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ জীবুনি প্রযাণকালংবু - সিদ্ধমৈন  
 নিলুচুনা দেহ মিংদ৊ক্ক - নিমিষমৈন?  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 038  
 সী৤ জংদ৆ মিংপুগ বেসি - সংধ্য বার্চিন নেমি  
@@ -3580,8 +3580,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ ঎ন্নি লৌকিকবেষালু - গট্টুক৊নিন  
 গুরুনি জ৆ংদক সন্মুক্তি - দ৊রকবোদু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 039  
 সী৤ নরসিংহ ❘ নে নিন্নু - নম্মিনংদুকু জাল  
@@ -3595,8 +3595,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ ঎চট নন্নুংচিননুগানি - য৆পুডু নিন্নু  
 ম঱চি পোকুংড নীনাম - স্মরণন৊সগু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 040  
 সী৤ দেহ মুন্নব঱কু - মোহসাগরমংদু  
@@ -3610,8 +3610,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ মত্তুলৈনট্টি দুর্জাতি - মনুজুল৆ল্ল  
 নিন্নু গনলেরু ম৊দটিকে - নীরজাক্ষ৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 041  
 সী৤ ইললোন নে জন্ম - ম৆ত্তিনপ্পটিনুংডি  
@@ -3625,8 +3625,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ সূর্যশশিনেত্র ❘ নীচাটু - জ৊চ্চি নানু  
 কলুষমুলু দ্রুংচি নন্নেলু - কষ্টমনক৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 042  
 সী৤ তাপসার্চিত ❘ নেনু - পাপকর্মুডনংচু  
@@ -3640,8 +3640,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ দংড্রিবৈ নীবু পরপীড - দগুলজেয  
 বাসিগল পেরু কপকীর্তি - বচ্চুনয্য৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 043  
 সী৤ ধরণিলোপল নেনু - তল্লিগর্ভমুনংদু  
@@ -3655,8 +3655,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নলিনদলনেত্র ❘ নিন্নু নে - নম্মিনানু  
 জেরি রক্ষিংপবে নন্নু - শীঘ্রমুগনু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 044  
 সী৤ অডবিপক্ষুল ক৆ব্ব - ডাহার মিচ্চ৆নু  
@@ -3670,8 +3670,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ জীবকোট্লনু বোষিংপ - নীব৆কানি  
 বে঱৆ য৊ক দাত লেডয্য - ব৆দকিচূড৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 045  
 সী৤ দনুজারি ❘ নাবংটি - দাসজালমু নীকু  
@@ -3685,8 +3685,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ ভূজনুললোন নে নপ্র - যোজকুডনু  
 গনুক নী সত্কটাক্ষংবু - গলুগজেযু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 046  
 সী৤ কমললোচন ❘ নন্নু - গন্নতংড্রিবিগান  
@@ -3700,8 +3700,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ ক৊সকু নী শংখ চক্রমুল্ - কুদুবব৆ট্টি  
 গ্রাসমু ন৊সংগি পোষিংচু - কপটমুডিগি৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 047  
 সী৤ কুবলযশ্যাম ❘ নী - ক৊লুবু চেসিন নাকু  
@@ -3715,8 +3715,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নেডু করুণিংপকুংটিবা - নিশ্চযমুগ  
 দ৆গবডিতি চূডু নীতোড - জগডমুনকু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 048  
 সী৤ হরি ❘ নীকু বর্যংক - মৈন শেষুডু চাল  
@@ -3730,8 +3730,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ স্বস্থমুগ নীকু গ্রাসমু - জরুগুচুংডু  
 গাসু নী চেতি দ৊কটৈন - গাদু ব্যযমু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 049  
 সী৤ পুংডরীকাক্ষ ❘ না - র৆ংডু কন্নুল নিংড  
@@ -3745,8 +3745,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নেমিটিকি বিস্তরিংচ৆ নী - কিংত কীর্তি  
 দ্রোহিনৈননু না কীবু - দ৊রকরাদ৆?  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 050  
 সী৤ পচ্চি চর্মপু দিত্তি - পসলেদু দেহংবু  
@@ -3760,8 +3760,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ ব৊ংদিলো নুংডু প্রাণমুল্ - পোযিনংত  
 গাটিকে গানি ক৊঱গাদু - গব্বকৈন৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 051  
 সী৤ পলুরোগমুলকু নী - পাদতীরম৆ কানি  
@@ -3775,8 +3775,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ দ৊রিকিতিবি নাকু দংডি বৈ - দ্যুডবু নীবু  
 বেযিকষ্টালু বচ্চিনন্ - ব৆঱বনয্য৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 052  
 সী৤ কূটিকোসরমু নে - গ৊঱গানি জনুলচে  
@@ -3790,8 +3790,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নিটুল সংসারবারিধি - নীদলেক  
 বেযিবিধমুল নিন্নু নে - বেডুক৊ংটি৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 053  
 সী৤ সাধু সজ্জনুলতো - জগডমাডিন গীডু  
@@ -3805,8 +3805,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ দুষ্টকার্যমু ল৊নরিংচু - দুর্জনুলকু  
 ঘনতরংবৈন নরকংবু - গট্টিমুল্ল৆৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 054  
 সী৤ পরুলদ্রব্যমুমীদ - ভ্রাংতি ন৊ংদিনবাডু  
@@ -3820,8 +3820,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ প্রজল জংতুল হিংসিংচু - পাতকুংডু  
 কালকিংকর গদলচে - গষ্টম৊ংদু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 055  
 সী৤ নরসিংহ ❘ না তংড্রি - নন্নেলু নন্নেলু  
@@ -3835,8 +3835,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ সুরবিনুত ❘ নেনু নীচাটু - জ৊চ্চিনানু  
 না ম৊঱ালিংচি কডতের্চু - নাগশযন ❘  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 056  
 সী৤ নী ভক্তুলনু গনুল্ - নিংড জূচিযু র৆ংডু  
@@ -3850,8 +3850,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ পরমভক্তুংডু ধন্যুংডু - ভানুতেজ ❘  
 বানি গনুগ৊ন্ন বুণ্যংবু - বসুধলোন৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 057  
 সী৤ পক্ষিবাহন ❘ নেনু - ব্রতিকিনন্নিদিনালু  
@@ -3865,8 +3865,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ ক৊সকু নী সন্নিধিকি বিল্চু - ক৊নিযু নীকু  
 সেবকুনি জেসিক৊নবয্য - শেষশযন ❘  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 058  
 সী৤ নিগমাদিশাস্ত্রমুল্ - নের্চিন দ্বিজুডৈন  
@@ -3880,8 +3880,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ গর্বমুন গষ্টপডি নিন্নু - গানকুন্ন  
 মোক্ষসাম্রাজ্য ম৊ংদডু - মোহনাংগ ❘  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 059  
 সী৤ পংজরংবুন গাকি - বট্টি যুংচিন ল৆স্স  
@@ -3895,8 +3895,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ কুজনুলনু দ৆চ্চি নী সেব - ক৊঱কু ব৆ট্ট  
 বাংছতো জেতুরে ভক্ত - বরুলবল৆নু?  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 060  
 সী৤ নীকু দাসুড নংটি - নিন্নু নম্মুকযুংটি  
@@ -3910,8 +3910,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ শীঘ্রমুগ গোর্কু লীডের্চু - চিংত দীর্চু  
 নিরতমুগ নন্নু বোষিংচু - ন৆নরু নুংচু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 061  
 সী৤ বিদ্য নের্চিতি নংচু - বির্রবীগগলেদু  
@@ -3925,8 +3925,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নলুগুরিকি ম৆প্পুগানৈন - নডুবলেদু  
 নলিনদলনেত্র ❘ নিন্নু নে - নম্মিনানু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 062  
 সী৤ অতিলোভুলনু ভিক্ষ - মডুগবোবুট রোত  
@@ -3938,10 +3938,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 আদাযমুলু লেক - যপ্পুদীযুট রোত  
 জার চোরুল গূডি - চনুট রোত  
 
-তে৤ যাদিলক্ষ্মীশ ❘ নীবংট - নৈতিনয্য |  
+তে৤ যাদিলক্ষ্মীশ ❘ নীবংট - নৈতিনয্য ｜  
 যিংক ন৆ডবাসি জন্মংবু - ল৆ত্ত রোত৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 063  
 সী৤ ব৆র্রিবানিকি নেল - বেদাক্ষরংবুলু?  
@@ -3955,8 +3955,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ ক্রূরজনুলকু নীমীদ - গোরি কেল?  
 দ্রোহি পাপাত্মুনকু দযা - দুঃখ মেল?  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 064  
 সী৤ না তংড্রি নাদাত - নাযিষ্টদৈবমা  
@@ -3970,8 +3970,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ দংডিদ৊র বংচু নীব৆ংট - দগিলিনানু  
 নেডু প্রত্যক্ষমৈ নন্নু - নির্বহিংপু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 065  
 সী৤ বেমা঱ু নীকথল্ - বিনুচু নুংড৆ডিবাডু  
@@ -3985,8 +3985,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নিন্নু নম্মিন ভক্তুংডু - নিশ্চযমুগ  
 গোরি চিল্লর বেল্পুল - গ৊ল্ববোডু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 066  
 সী৤ নে ন৆ংত বেডিন - নী কেল দযরাদু?  
@@ -4000,8 +4000,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ দাত দৈবংবু তল্লিযু - দংড্রি বীব৆  
 নম্মিযুন্নানু নীপাদ - নলিনমুলনু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 067  
 সী৤ বেদমুল্ চদিব৆ডু - বিপ্রবর্যুংডৈন  
@@ -4015,8 +4015,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নিন্নু গ৊নিযাডুচুংড৆না - নিশ্চযমুগ  
 বাডু মোক্ষাধিকারি যী - বসুধলোন৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 068  
 সী৤ সকলবিদ্যলু নের্চি - সভ জযিংপগবচ্চু  
@@ -4030,8 +4030,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ তামরসগর্ভ হর পুরং - দরুলকৈন  
 নিন্নু বর্ণিংপ দরমৌন৆ - নীরজাক্ষ ❘  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 069  
 সী৤ নরসিংহ ❘ নীবংটি - দ৊রনু সংপাদিংচি  
@@ -4043,10 +4043,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 প৆ট্টজালক যেল - ভিক্ষম৆ত্তিংচ৆দু  
 নন্নু বীদনু জেসি - না বদেমি?  
 
-তে৤ অমল ❘ কমলাক্ষ | নে নিট্লু - শ্রমপডংগ  
+তে৤ অমল ❘ কমলাক্ষ ｜ নে নিট্লু - শ্রমপডংগ  
 গন্নুলকু বংডুবৈ নীকু - গানবডুন৆?  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 070  
 সী৤ বনরুহনাভ ❘ নী - বংক জেরিতি নেনু  
@@ -4060,8 +4060,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ গোপগাডনু নীবু না - গুণমু ত৆লিসি  
 যিপ্পুডে নন্নু রক্ষিংচি - যেলুক৊ম্মু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 071  
 সী৤ প্রহ্লাদু ডেপাটি - পৈডি কানুক লিচ্চ৆?  
@@ -4075,8 +4075,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নীকু বীরংদ ঱যিনট্লু - নেনু গান?  
 য৆ংদু কনি নন্নু রক্ষিংপ - বিংদুবদন ❘  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 072  
 সী৤ বাংছতো বলিচক্র - বর্তিদগ্গর জেরি  
@@ -4090,8 +4090,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ ভক্তুলকু নীবু প৆ট্টুট - ভাগ্যমৌনু  
 বারি কাশিংচিতিবি তিংডি - বাড বগুচু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 073  
 সী৤ স্তংভমং দুদযিংচি - দানবেংদ্রুনি দ্রুংচি  
@@ -4105,8 +4105,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ বারিবল৆ নন্নু বোষিংপ - বশমুগাদ৆?  
 যংত বলপক্ষ মেল শ্রী - কাংত ❘ নীকু?  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 074  
 সী৤ ব্যাসু ডে কুলমংদু - বাসিগা জন্মিংচ৆?  
@@ -4120,8 +4120,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নে কুলংবুন বী রিংদ - ঱৆চ্চিনারু?  
 নীকৃপাপাত্রুলকু জাতি - নীতু লেল?  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 075  
 সী৤ বসুধাস্থলংবুন - বর্ণহীনুডু গানি  
@@ -4135,8 +4135,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ প্রতিদিনমু নীদু ভজনচে - বরগুনট্টি  
 বানি কে বংক লেদয্য - বচ্চু মুক্তি৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 076  
 সী৤ ইভকুংভমুলমীদি - ক৆গির৆ডি সিংগংবু  
@@ -4150,8 +4150,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নিলনু নীকীর্তনলু পাড - নের্চিনতডু  
 পরুলকীর্তন বাডুনে - যরসি চূড?  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 077  
 সী৤ সর্বেশ ❘ নীপাদ - সরসিজদ্বযমংদু  
@@ -4165,8 +4165,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ প্রেমতো নন্নু বোষিংচি - প৆ংচুক৊নুমু  
 ঘনত ক৆ক্কিংচু নীদাস - গণমুলোন৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 078  
 সী৤ জীমূতবর্ণ ❘ নী - মোমুতো সরিরাক  
@@ -4180,8 +4180,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নিংদিরাদেবি নিন্নু মো - হিংচি বিডক  
 নীকু বট্টমহিষি যয্য৆ - নিশ্চযমুগ৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 079  
 সী৤ হরিদাসুলনু নিংদ - লাডকুংডিন জালু  
@@ -4195,8 +4195,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ ঒করি বর্শাশনমু মুংচ - কুন্ন জালু  
 বেরুকীর্তিগ সত্রমুল্ - প৆ট্টিনট্লু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 080  
 সী৤ ইহলোকসৌখ্যমু - লিচ্চগিংচ৆দ মন্ন  
@@ -4210,8 +4210,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নম্মরা দয্য ❘ যিদি মায - নাটকংবু  
 জন্ম মিক ন৊ল্ল ন ন্নেলু - জলজনাভ ❘  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 081  
 সী৤ বদনংবু নীনাম - ভজন গোরুচুনুংডু  
@@ -4225,8 +4225,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ স্বপ্নমুন নৈন নেবেল - সংততমুনু  
 বুদ্ধি নী পাদমুলযংদু - বূনিযুংডু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 082  
 সী৤ পদ্মাক্ষ ❘ মমতচে - বরমু নংদ৆দ মংচু  
@@ -4240,23 +4240,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নী শরীরালু পডিপোবু - ট৆঱ুগ কেমু  
 কামুকুল মৈতি মিক মিম্মু - গানলেমু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 083  
-সী৤ গরুডবাহন ❘ দিব্য - কৌস্তুভালংকার |  
-রবিকোটিতেজ ❘ সা - রংগবদন |  
-মণিগণান্বিত ❘ হেম - মকুটাভরণ | চারু  
-মকরকুংডল ❘ লস - ন্মংদহাস |  
-কাংচনাংবর ❘ রত্ন - কাংচিবিভূষিত |  
-সুরবরার্চিত ❘ চংদ্র - সূর্যনযন |  
-কমলনাভ ❘ মুকুংদ | - গংগাধরস্তুত |  
-রাক্ষসাংতক ❘ নাগ - রাজশযন |  
+সী৤ গরুডবাহন ❘ দিব্য - কৌস্তুভালংকার ｜  
+রবিকোটিতেজ ❘ সা - রংগবদন ｜  
+মণিগণান্বিত ❘ হেম - মকুটাভরণ ｜ চারু  
+মকরকুংডল ❘ লস - ন্মংদহাস ｜  
+কাংচনাংবর ❘ রত্ন - কাংচিবিভূষিত ｜  
+সুরবরার্চিত ❘ চংদ্র - সূর্যনযন ｜  
+কমলনাভ ❘ মুকুংদ ｜ - গংগাধরস্তুত ｜  
+রাক্ষসাংতক ❘ নাগ - রাজশযন ｜  
 
-তে৤ পতিতপাবন ❘ লক্ষীশ | - ব্রহ্মজনক |  
-ভক্তবত্সল ❘ সর্বেশ | - পরমপুরুষ |  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+তে৤ পতিতপাবন ❘ লক্ষীশ ｜ - ব্রহ্মজনক ｜  
+ভক্তবত্সল ❘ সর্বেশ ｜ - পরমপুরুষ ｜  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 084  
 সী৤ পলুমা঱ু দশরূপ - মুলু দরিংচিতি বেল?  
@@ -4270,8 +4270,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ বনজলোচন ❘ যিটুবংটি - বৈভবমুলু  
 স৊গসুগা নীকু দোচ৆নো - সুংদরাংগ?  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 085  
 সী৤ তিরুপতি স্থলমংদু - দিন্নগা নে নুন্ন  
@@ -4285,8 +4285,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ য৆ংদু বোবক নেনু নী - মংদিরমুন  
 নিলিচিতিনি নীকু নামীদ - ন৆নরু লেদু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 086  
 সী৤ তার্ক্ষ্যবাহন ❘ নীবু - দংডিদাত বটংচু  
@@ -4300,8 +4300,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নীকু নাবিদ্য হর্ষংবু - গাক যুন্ন  
 তেপতেপকু বেষমুল্ - দেনু সুম্মি৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 087  
 সী৤ অমরেংদ্রবিনুত ❘ নে - নতিদুরাত্মুড নংচু  
@@ -4315,23 +4315,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নডুপুচুনু নিন্নু গ৊লিচ৆দ - নম্মি বুদ্ধি  
 নী প্রপংচংবু গলুগু না - কিংত৆ চালু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 088  
-সী৤ ভুবনেশ ❘ গোবিংদ | - রবিকোটিসংকাশ |  
-পক্ষিবাহন ❘ ভক্ত - পারিজাত |  
+সী৤ ভুবনেশ ❘ গোবিংদ ｜ - রবিকোটিসংকাশ ｜  
+পক্ষিবাহন ❘ ভক্ত - পারিজাত ｜  
 যংভোজভব রুদ্র - জংভারিসন্নুত ❘  
-সামগানবিলোল ❘ - সারসাক্ষ |  
-বনধিগংভীর ❘ শ্রী - বত্সকৌস্তুভবক্ষ |  
+সামগানবিলোল ❘ - সারসাক্ষ ｜  
+বনধিগংভীর ❘ শ্রী - বত্সকৌস্তুভবক্ষ ｜  
 শংখচক্রগদাসি - শার্জ্ঞহস্ত ❘  
-দীনরক্ষক ❘ বাসু - দেব | দৈত্যবিনাশ |  
-নারদার্চিত ❘ দিব্য - নাগশযন |  
+দীনরক্ষক ❘ বাসু - দেব ｜ দৈত্যবিনাশ ｜  
+নারদার্চিত ❘ দিব্য - নাগশযন ｜  
 
 তে৤ চারু নবরত্নকুংডল - শ্রবণযুগল ❘  
-বিবুধবংদিত পাদব্জ ❘ - বিশ্বরূপ |  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+বিবুধবংদিত পাদব্জ ❘ - বিশ্বরূপ ｜  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 089  
 সী৤ নাগেংদ্রশযন ❘ নী - নামমাধুর্যংবু  
@@ -4345,8 +4345,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ বীরি ক৆঱ুকগু নীকথল্ - বিংত ল৆ল্ল  
 নরুল ক৆঱ু কন্ন ন৆বরৈন - নব্বিপোর৆?  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 090  
 সী৤ অর্থু লেমৈন নি - ন্নডুগবচ্চ৆দ রংচু  
@@ -4359,9 +4359,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 মংচি যোধুল কাব - লুংচিনাবু  
 
 তে৤ লাবু গলবাড বৈতি বে - লাগু নেনু  
-নিন্নু জূতুনু নাতংড্রি ❘ - নীরজাক্ষ |  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+নিন্নু জূতুনু নাতংড্রি ❘ - নীরজাক্ষ ｜  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 091  
 সী৤ নীকথল্ চ৆বুললো - সোকুট ম৊দলুগা  
@@ -4370,13 +4370,13 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 মগ্নুডৈ দেহংবু - ম঱চুবাডু  
 ফালংবুতো নীদু - পাদযুগ্মমুনকু  
 ব্রেমতো দংড ম - র্পিংচুবাডু  
-হা পুংডরীকাক্ষ ❘ - হা রাম | হরি | যংচু  
+হা পুংডরীকাক্ষ ❘ - হা রাম ｜ হরি ｜ যংচু  
 বেড্কতো গেকলু - বেযুবাডু  
 
 তে৤ চিত্তকমলংবুননু নিন্নু - জের্চুবাডু  
 নীদুলোকংবুনং দুংডু - নীরজাক্ষ ❘  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 092  
 সী৤ নিগমগোচর ❘ নেনু - নীকু ম৆প্পগুনট্লু  
@@ -4390,8 +4390,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নন্নি গলবাড বখিল লো - কাধিপতিবি ❘  
 নীকু স৊ম্মুলু প৆ট্ট নে - ন৆ংতবাড ❘  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 093  
 সী৤ নবসরোজদলাক্ষ ❘ - নন্নু বোষিংচ৆ডু  
@@ -4405,8 +4405,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ বরমসংতোষ মায৆ না - প্রাণমুলকু  
 নী^^ঋণমু দীর্চুক৊ন নের - নীরজাক্ষ ❘  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 094  
 সী৤ ফণুলপুট্টলমীদ - বব্বলিংচিনযট্লু  
@@ -4420,23 +4420,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ স্বামি নী ভক্তবরুলু দু - র্জনুলতোড  
 জ৆লিমি জেসিনয ট্লৈন - জেটু বচ্চু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 095  
-সী৤ দনুজসংহার ❘ চক্র - ধর | নীকু দংডংবু  
+সী৤ দনুজসংহার ❘ চক্র - ধর ｜ নীকু দংডংবু  
 লিংদিরাধিপ ❘ নীকু - বংদনংবু  
 পতিতপাবন ❘ নীকু - বহুনমস্কারমুল্  
 নীরজাতদলাক্ষ ❘ - নীকু শরণু  
-বাসবার্চিত ❘ মেঘ - বর্ণ | নীকু শুভংবু  
+বাসবার্চিত ❘ মেঘ - বর্ণ ｜ নীকু শুভংবু  
 মংদরধর ❘ নীকু - মংগলংবু  
-কংবুকংধর ❘ শার্জ্গ - কর | নীকু ভদ্রংবু  
+কংবুকংধর ❘ শার্জ্গ - কর ｜ নীকু ভদ্রংবু  
 দীনরক্ষক ❘ নীকু - দিগ্বিজযমু  
 
 তে৤ সকলবৈভবমুলু নীকু - সার্বভৌম ❘  
 নিত্যকল্যাণমুলু নগু - নীকু ন৆পুডু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 096  
 সী৤ মত্স্যাবতার মৈ - মডুগুলোপল জ৊চ্চি  
@@ -4450,8 +4450,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ যুংদু ররবিংদনযন ❘ নী - যুনিকি দ৆লিযু  
 বারলকু বেগ মোক্ষংবু - বচ্চু ননঘ ❘  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 097  
 সী৤ কূর্মাবতারমৈ - কুধরংবুক্রিংদনু  
@@ -4464,9 +4464,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 বর্তি ন঱ংপবা - বৈর মুডিগি?  
 
 তে৤ যিট্টি পনু ল৆ল্ল জেযগা - ন৆বরিকেনি  
-তগুন৆ নরসিংহ ❘ নীকিদি - দগুনু গাক |  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+তগুন৆ নরসিংহ ❘ নীকিদি - দগুনু গাক ｜  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 098  
 সী৤ লক্ষ্মীশ ❘ নীদিব্য - লক্ষণগুণমুল  
@@ -4480,8 +4480,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নম্মিযুন্নানু নীপাদ - নলিনভক্তি  
 বেগ দযচেসি রক্ষিংপু - বেদবিদ্য ❘  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 099  
 সী৤ অমরেংদ্রবিনুত ❘ নি - ন্ননুসরিংচিনবারু  
@@ -4495,8 +4495,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ ননুচু বলুমা঱ু বেড৆দ - নব্জনাভ ❘  
 নাকু ব্রত্যক্ষ মগুমু নিন্ - নম্মিনানু৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 100  
 সী৤ শেষপ্প যনু কবি - চ৆প্পিন পদ্যমুল্  
@@ -4510,27 +4510,27 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 তে৤ নিদ্দি পুণ্যাকরং বনি - য৆পুডু জনুলু  
 গষট ম৆ন্নক পঠিযিংপ - গলুগু মুক্তি৤  
-ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস |  
-দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর |  
+ভূষণবিকাস ❘ শ্রীধর্ম - পুরনিবাস ｜  
+দুষ্টসংহার ❘ নরসিংহ - দুরিতদূর ｜  
 
 ## Devanagari
 
 नारसिंह शतकम्  
 
 001  
-सी। श्रीमनोहर ❘ सुरा - र्चित सिन्धुगम्भीर |  
-भक्तवत्सल ❘ कोटि - भानुतेज |  
-कञ्जनेत्र ❘ हिरण्य - कश्यपान्तक | शूर |  
-साधुरक्षण ❘ शङ्ख - चक्रहस्त |  
-प्रह्लाद वरद ❘ पा - पध्वंस | सर्वेश |  
-क्षीरसागरशायि ❘ - कृष्णवर्ण |  
-पक्षिवाहन ❘ नील - भ्रमरकुन्तलजाल |  
+सी। श्रीमनोहर ❘ सुरा - र्चित सिन्धुगम्भीर ｜  
+भक्तवत्सल ❘ कोटि - भानुतेज ｜  
+कञ्जनेत्र ❘ हिरण्य - कश्यपान्तक ｜ शूर ｜  
+साधुरक्षण ❘ शङ्ख - चक्रहस्त ｜  
+प्रह्लाद वरद ❘ पा - पध्वंस ｜ सर्वेश ｜  
+क्षीरसागरशायि ❘ - कृष्णवर्ण ｜  
+पक्षिवाहन ❘ नील - भ्रमरकुन्तलजाल ｜  
 पल्लवारुणपाद - पद्मयुगल ❘  
 
 ते। चारुश्रीचन्दनागरु - चर्चिताङ्ग ❘  
-कुन्दकुट्मलदन्त ❘ वै - कुण्ठधाम |  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+कुन्दकुट्मलदन्त ❘ वै - कुण्ठधाम ｜  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 002  
 सी। पद्मलोचन ❘ सीस - पद्यमुल् नी मीद  
@@ -4544,8 +4544,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। दप्पुगलिगिन सद्भक्ति - तक्कुवौनॆ  
 चॆऱकुनकु वङ्कपोयिन - चॆडुनॆ तीपु?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 003  
 सी। नरसिंह ❘ नी दिव्य - नाममन्त्रमुचेत  
@@ -4559,8 +4559,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। भलिर ❘ ने नी महामन्त्र - बलमुचेत  
 दिव्य वैकुण्ठ पदवि सा - धिम्पवच्चु  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 004  
 सी। आदिनारायणा ❘ - यनुचु नालुकतोड  
@@ -4574,8 +4574,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। परम सात्विकुलैन नी - भक्तवरुल  
 दासुलकु दासुडनु जुमी - धात्रिलोन  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 005  
 सी। ऐश्वर्यमुलकु नि - न्ननुसरिम्पगलेदु  
@@ -4589,8 +4589,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नेनु गोरिन दॊक्कटे - नीलवर्ण  
 चय्यननु मोक्षमिच्चिन - जालु नाकु  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 006  
 सी। मन्दुण्डननि नन्नु - निन्द चेसिननेमि?  
@@ -4604,8 +4604,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। कल्पवृक्षम्बुवलॆ नीवु - गल्ग निङ्क  
 ब्रजल लक्ष्यम्बु नाकेल? - पद्मनाभ ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 007  
 सी। चित्तशुद्धिग नीकु - सेवजेसॆदगानि  
@@ -4619,8 +4619,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। पारमार्थिकमुनकु ने बाटुपडिति  
 गीर्तिकि नपेक्षपडलेदु - कृष्णवर्ण ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 008  
 सी। श्रवण रन्ध्रमुल नी - सत्कथल् पॊगडङ्ग  
@@ -4634,8 +4634,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। वसुधलोनॆल्ल व्यर्धुण्डु - वाडॆ यगुनु  
 मऱियु जॆडुगाक यॆप्पुडु - ममतनॊन्दि।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 009  
 सी। गौतमीस्नानान - गडतेऱुद मटन्न  
@@ -4649,8 +4649,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। कष्टमुलकोर्व नाचेत - गादु निन्नु  
 स्मरणचेसॆद ना यधा - शक्ति कॊलदि।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 010  
 सी। अर्थिवाण्ड्रकु नीक - हानि जेयुट कण्टॆ  
@@ -4664,8 +4664,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। जलजदलनेत्र नी भक्त - जनुलतोडि  
 जगडमाडॆडु पनिकण्टॆ - जावु मेलु  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 011  
 सी। गार्दभम्बुन केल - कस्तूरि तिलकम्बु?  
@@ -4679,8 +4679,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। द्रोहचिन्तन जेसॆडि - दुर्जनुलकु  
 मधुरमैनट्टि नीनाम - मन्त्रमेल?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 012  
 सी। पसरम्बु वञ्जैन - बसुलकापरि तप्पु  
@@ -4694,8 +4694,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। इट्टि तप्पुलॆऱुङ्गक - यिच्चवच्चि  
 नटुल मॆलगुदु रिप्पु डी - यवनि जनुलु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 013  
 सी। कोतिकि जलतारु - कुल्लायि येटिकि?  
@@ -4709,8 +4709,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। माट निलुकड कुङ्करि - मोटु केल?  
 चॆविटिवानिकि सत्कथ - श्रवण मेल?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 014  
 सी। मान्यम्बुलीय स - मर्धुडॊक्कडु लेडु  
@@ -4724,8 +4724,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। यिट्टि दुष्टुल कधिकार - मिच्चिनट्टि  
 प्रभुवु तप्पु लटञ्चुनु - बलुकवलॆनु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 015  
 सी। तल्लिगर्भमुनुण्डि - धनमु ते डॆव्वडु  
@@ -4739,8 +4739,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। तुदकु दॊङ्गल कित्तुरो - दॊरल कवुनॊ  
 तेनॆ जुण्टीग लिय्यवा - तॆरुवरुलकु?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 016  
 सी। लोकमं दॆवडैन - लोभिमानवु डुन्न  
@@ -4754,8 +4754,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। श्रीरमानाथ ❘ यिटुवण्टि - क्रूरुनकुनु  
 भिक्षुकुल शत्रुवनि - पेरु पॆट्टवच्चु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 017  
 सी। तनुवुलो ब्राणमुल् = तरलिपॊय्यॆडिवेल  
@@ -4769,8 +4769,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। कमलनाभ नी महिमलु - गानलेनि  
 तुच्छुलकु मुक्तिदॊरकुट - दुर्लभम्बु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 018  
 सी। नीलमेघश्याम ❘ - नीवॆ तण्ड्रिवि माकु  
@@ -4784,8 +4784,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। तोयजाताक्ष नी पाद - तुलसिदलमु  
 रोगमुल कौषधमु ब्रह्म - रुद्रविनुत।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 019  
 सी। ब्रतिकिनन्नाल्लु नी - भजन तप्पनु गानि  
@@ -4799,8 +4799,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नाटि किप्पुडॆ चेतु नी - नामभजन  
 तलचॆदनु, जॆवि निडवय्य ❘ - धैर्यमुगनु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 020  
 सी। पाञ्चभौतिकमु दु - र्बलमैन कायं बि  
@@ -4814,8 +4814,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। मरणमे निश्चयमु बुद्धि - मन्तुडैन  
 देहमुन्नन्तलो मिम्मु - दॆलियवलयु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 021  
 सी। तल्लिदण्ड्रुलु भार्य - तनयु लाप्तुलु बाव  
@@ -4829,8 +4829,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। चुट्टमुलमीदि भ्रमदीसि - चूर जॆक्कि  
 सन्ततमु मिम्मु नम्मुट - सार्थकम्बु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 022  
 सी। इभराजवरद ❘ नि - न्नॆन्त बिल्चिनगानि  
@@ -4844,8 +4844,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। मोक्षदायक ❘ यिटुवण्टि - मूर्खजनुनि  
 कष्टपॆट्टिन नीकेमि - कडुपुनिण्डु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 023  
 सी। नीमीद कीर्तनल् - नित्यगानमु जेसि  
@@ -4859,8 +4859,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। साधुडनु मूर्खमति मनु - ष्याधमुडनु  
 हीनुडनु जुम्मि नीवु - न न्नेलुकॊनुमु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 024  
 सी। अतिशयम्बुग गल्ल - लाडनेर्चितिगानि  
@@ -4874,8 +4874,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। बङ्कजाताक्ष ❘ ने नति - पातकुडनु  
 दप्पुलन्नियु क्षमियिम्प - दण्ड्रि वीवॆ ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 025  
 सी। उर्विलो नायुष्य - मुन्न पर्यन्तम्बु  
@@ -4889,8 +4889,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। दन्नु विडिपिम्प वच्चॆडि - धन्यु डेडि  
 मुन्दु नीदासुडै युन्न - मुक्ति गलुगु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 026  
 सी। अधिक विद्यावन्तु - लप्रयोजकुलैरि  
@@ -4904,8 +4904,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। पक्षिवाहन ❘ मावण्टि - भिक्षुकुलकु  
 शक्तिलेदायॆ निक नीवॆ - चाटु माकु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 027  
 सी। भुजबलम्बुन बॆद्द - पुलुल जम्पगवच्चु  
@@ -4919,8 +4919,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। बुडमिलो दुष्टुलकु ज्ञान - बोध तॆलिपि  
 सज्जनुल जेयले डॆन्त - चतुरुदैन।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 028  
 सी। अवनिलोगल यात्र - लन्नि चेयगवच्चु  
@@ -4934,8 +4934,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। जित्त मन्यस्थलम्बुन - जेरकुण्ड  
 नी पदाम्भोजमुलयन्दु - निलपरादु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 029  
 सी। कर्णयुग्ममुन नी - कथलु सोकिनजालु  
@@ -4949,8 +4949,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। पूनि निनु गॊल्चुटे सर्व - भूषणम्बु  
 लितर भूषणमुल निच्च - गिम्पनेल।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 030  
 सी। भुवनरक्षक ❘ निन्नु - बॊगडनेरनि नोरु  
@@ -4964,8 +4964,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। पद्मलोचन नीमीद - भक्तिलेनि  
 मानवुडु रॆण्डुपादाल - महिषमय्य।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 031  
 सी। अतिविद्यनेर्चुट - अन्नवस्त्रमुलके  
@@ -4979,8 +4979,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। यितर कामम्बु गोरक - सततमुगनु  
 भक्ति नीयन्दु निलुपुट - मुक्ति कॊऱकॆ  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 032  
 सी। धरणिलो वेयेण्ड्लु - तनुवु निल्वगबोदु  
@@ -4994,8 +4994,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। वॆर्रि कुक्कल भ्रमलन्नि - विडिचि निन्नु  
 भजन जेसॆडिवारिकि - बरमसुखमु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 033  
 सी। नरसिंह ❘ नाकु दु - र्णयमुले मॆण्डायॆ  
@@ -5009,8 +5009,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। अब्जदलनेत्र ❘ नातण्ड्रि - वैन फलमु  
 नेरमुलु गाचि रक्षिम्पु - नीवॆ दिक्कु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 034  
 सी। धीरत बरुल निं - दिम्प नेर्चिति गानि  
@@ -5024,23 +5024,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नवनिलो नेनु जन्मिञ्चि - नन्दु केमि  
 सार्थकमु गानरादायॆ - स्वल्पमैन।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 035  
 सी। अन्त्यकालमुनन्दु - नायासमुन निन्नु  
 दलतुनो तलपनो - तलतु निपुडॆ  
-नरसिंह ❘ नरसिंह | - नरसिंह | लक्ष्मीश |  
-दानवान्तक ❘ कोटि - भानुतेज |  
-गोविन्द ❘ गोविन्द | - गोविन्द | सर्वेश |  
-पन्नगाधिपशायि ❘ - पद्मनाभ |  
-मधुवैरि ❘ मधुवैरि | - मधुवैरि | लोकेश |  
-नीलमेघशरीर ❘ निगमविनुत |  
+नरसिंह ❘ नरसिंह ｜ - नरसिंह ｜ लक्ष्मीश ｜  
+दानवान्तक ❘ कोटि - भानुतेज ｜  
+गोविन्द ❘ गोविन्द ｜ - गोविन्द ｜ सर्वेश ｜  
+पन्नगाधिपशायि ❘ - पद्मनाभ ｜  
+मधुवैरि ❘ मधुवैरि ｜ - मधुवैरि ｜ लोकेश ｜  
+नीलमेघशरीर ❘ निगमविनुत ｜  
 
 ते। ई विधम्बुन नीनाम - मिष्टमुगनु  
 भजनसेयुचु नुन्दु ना - भावमन्दु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 036  
 सी। आयुरारोग्य पु - त्रार्थ सम्पदलन्नि  
@@ -5054,8 +5054,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। अवनिलो मानवुल कन्नि - यासलिच्चि  
 व्यर्थुलनु जेसि तॆलिपॆडि - वाड वीवॆ।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 037  
 सी। काय मॆन्त भयान - गापाडिननुगानि  
@@ -5069,8 +5069,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। जीवुनि प्रयाणकालम्बु - सिद्धमैन  
 निलुचुना देह मिन्दॊक्क - निमिषमैन?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 038  
 सी। जन्दॆ मिम्पुग वेसि - सन्ध्य वार्चिन नेमि  
@@ -5084,8 +5084,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। ऎन्नि लौकिकवेषालु - गट्टुकॊनिन  
 गुरुनि जॆन्दक सन्मुक्ति - दॊरकबोदु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 039  
 सी। नरसिंह ❘ ने निन्नु - नम्मिनन्दुकु जाल  
@@ -5099,8 +5099,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। ऎचट नन्नुञ्चिननुगानि - यॆपुडु निन्नु  
 मऱचि पोकुण्ड नीनाम - स्मरणनॊसगु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 040  
 सी। देह मुन्नवऱकु - मोहसागरमन्दु  
@@ -5114,8 +5114,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। मत्तुलैनट्टि दुर्जाति - मनुजुलॆल्ल  
 निन्नु गनलेरु मॊदटिके - नीरजाक्ष।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 041  
 सी। इललोन ने जन्म - मॆत्तिनप्पटिनुण्डि  
@@ -5129,8 +5129,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। सूर्यशशिनेत्र ❘ नीचाटु - जॊच्चि नानु  
 कलुषमुलु द्रुञ्चि नन्नेलु - कष्टमनक।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 042  
 सी। तापसार्चित ❘ नेनु - पापकर्मुडनञ्चु  
@@ -5144,8 +5144,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। दण्ड्रिवै नीवु परपीड - दगुलजेय  
 वासिगल पेरु कपकीर्ति - वच्चुनय्य।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 043  
 सी। धरणिलोपल नेनु - तल्लिगर्भमुनन्दु  
@@ -5159,8 +5159,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नलिनदलनेत्र ❘ निन्नु ने - नम्मिनानु  
 जेरि रक्षिम्पवे नन्नु - शीघ्रमुगनु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 044  
 सी। अडविपक्षुल कॆव्व - डाहार मिच्चॆनु  
@@ -5174,8 +5174,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। जीवकोट्लनु बोषिम्प - नीवॆकानि  
 वेऱॆ यॊक दात लेडय्य - वॆदकिचूड।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 045  
 सी। दनुजारि ❘ नावण्टि - दासजालमु नीकु  
@@ -5189,8 +5189,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। भूजनुललोन ने नप्र - योजकुडनु  
 गनुक नी सत्कटाक्षम्बु - गलुगजेयु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 046  
 सी। कमललोचन ❘ नन्नु - गन्नतण्ड्रिविगान  
@@ -5204,8 +5204,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। कॊसकु नी शङ्ख चक्रमुल् - कुदुवबॆट्टि  
 ग्रासमु नॊसङ्गि पोषिञ्चु - कपटमुडिगि।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 047  
 सी। कुवलयश्याम ❘ नी - कॊलुवु चेसिन नाकु  
@@ -5219,8 +5219,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नेडु करुणिम्पकुण्टिवा - निश्चयमुग  
 दॆगबडिति चूडु नीतोड - जगडमुनकु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 048  
 सी। हरि ❘ नीकु बर्यङ्क - मैन शेषुडु चाल  
@@ -5234,8 +5234,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। स्वस्थमुग नीकु ग्रासमु - जरुगुचुण्डु  
 गासु नी चेति दॊकटैन - गादु व्ययमु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 049  
 सी। पुण्डरीकाक्ष ❘ ना - रॆण्डु कन्नुल निण्ड  
@@ -5249,8 +5249,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नेमिटिकि विस्तरिञ्चॆ नी - किन्त कीर्ति  
 द्रोहिनैननु ना कीवु - दॊरकरादॆ?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 050  
 सी। पच्चि चर्मपु दित्ति - पसलेदु देहम्बु  
@@ -5264,8 +5264,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। बॊन्दिलो नुण्डु प्राणमुल् - पोयिनन्त  
 गाटिके गानि कॊऱगादु - गव्वकैन।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 051  
 सी। पलुरोगमुलकु नी - पादतीरमॆ कानि  
@@ -5279,8 +5279,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। दॊरिकितिवि नाकु दण्डि वै - द्युडवु नीवु  
 वेयिकष्टालु वच्चिनन् - वॆऱवनय्य।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 052  
 सी। कूटिकोसरमु ने - गॊऱगानि जनुलचे  
@@ -5294,8 +5294,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। निटुल संसारवारिधि - नीदलेक  
 वेयिविधमुल निन्नु ने - वेडुकॊण्टि।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 053  
 सी। साधु सज्जनुलतो - जगडमाडिन गीडु  
@@ -5309,8 +5309,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। दुष्टकार्यमु लॊनरिञ्चु - दुर्जनुलकु  
 घनतरम्बैन नरकम्बु - गट्टिमुल्लॆ।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 054  
 सी। परुलद्रव्यमुमीद - भ्रान्ति नॊन्दिनवाडु  
@@ -5324,8 +5324,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। प्रजल जन्तुल हिंसिञ्चु - पातकुण्डु  
 कालकिङ्कर गदलचे - गष्टमॊन्दु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 055  
 सी। नरसिंह ❘ ना तण्ड्रि - नन्नेलु नन्नेलु  
@@ -5339,8 +5339,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। सुरविनुत ❘ नेनु नीचाटु - जॊच्चिनानु  
 ना मॊऱालिञ्चि कडतेर्चु - नागशयन ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 056  
 सी। नी भक्तुलनु गनुल् - निण्ड जूचियु रॆण्डु  
@@ -5354,8 +5354,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। परमभक्तुण्डु धन्युण्डु - भानुतेज ❘  
 वानि गनुगॊन्न बुण्यम्बु - वसुधलोन।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 057  
 सी। पक्षिवाहन ❘ नेनु - ब्रतिकिनन्निदिनालु  
@@ -5369,8 +5369,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। कॊसकु नी सन्निधिकि बिल्चु - कॊनियु नीकु  
 सेवकुनि जेसिकॊनवय्य - शेषशयन ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 058  
 सी। निगमादिशास्त्रमुल् - नेर्चिन द्विजुडैन  
@@ -5384,8 +5384,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। गर्वमुन गष्टपडि निन्नु - गानकुन्न  
 मोक्षसाम्राज्य मॊन्दडु - मोहनाङ्ग ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 059  
 सी। पञ्जरम्बुन गाकि - बट्टि युञ्चिन लॆस्स  
@@ -5399,8 +5399,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। कुजनुलनु दॆच्चि नी सेव - कॊऱकु बॆट्ट  
 वाञ्छतो जेतुरे भक्त - वरुलवलॆनु?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 060  
 सी। नीकु दासुड नण्टि - निन्नु नम्मुकयुण्टि  
@@ -5414,8 +5414,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। शीघ्रमुग गोर्कु लीडेर्चु - चिन्त दीर्चु  
 निरतमुग नन्नु बोषिञ्चु - नॆनरु नुञ्चु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 061  
 सी। विद्य नेर्चिति नञ्चु - विर्रवीगगलेदु  
@@ -5429,8 +5429,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नलुगुरिकि मॆप्पुगानैन - नडुवलेदु  
 नलिनदलनेत्र ❘ निन्नु ने - नम्मिनानु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 062  
 सी। अतिलोभुलनु भिक्ष - मडुगबोवुट रोत  
@@ -5442,10 +5442,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 आदायमुलु लेक - यप्पुदीयुट रोत  
 जार चोरुल गूडि - चनुट रोत  
 
-ते। यादिलक्ष्मीश ❘ नीबण्ट - नैतिनय्य |  
+ते। यादिलक्ष्मीश ❘ नीबण्ट - नैतिनय्य ｜  
 यिङ्क नॆडबासि जन्मम्बु - लॆत्त रोत।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 063  
 सी। वॆर्रिवानिकि नेल - वेदाक्षरम्बुलु?  
@@ -5459,8 +5459,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। क्रूरजनुलकु नीमीद - गोरि केल?  
 द्रोहि पापात्मुनकु दया - दुःख मेल?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 064  
 सी। ना तण्ड्रि नादात - नायिष्टदैवमा  
@@ -5474,8 +5474,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। दण्डिदॊर वञ्चु नीवॆण्ट - दगिलिनानु  
 नेडु प्रत्यक्षमै नन्नु - निर्वहिम्पु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 065  
 सी। वेमाऱु नीकथल् - विनुचु नुण्डॆडिवाडु  
@@ -5489,8 +5489,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। निन्नु नम्मिन भक्तुण्डु - निश्चयमुग  
 गोरि चिल्लर वेल्पुल - गॊल्वबोडु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 066  
 सी। ने नॆन्त वेडिन - नी केल दयरादु?  
@@ -5504,8 +5504,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। दात दैवम्बु तल्लियु - दण्ड्रि वीवॆ  
 नम्मियुन्नानु नीपाद - नलिनमुलनु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 067  
 सी। वेदमुल् चदिवॆडु - विप्रवर्युण्डैन  
@@ -5519,8 +5519,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। निन्नु गॊनियाडुचुण्डॆना - निश्चयमुग  
 वाडु मोक्षाधिकारि यी - वसुधलोन।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 068  
 सी। सकलविद्यलु नेर्चि - सभ जयिम्पगवच्चु  
@@ -5534,8 +5534,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। तामरसगर्भ हर पुरं - दरुलकैन  
 निन्नु वर्णिम्प दरमौनॆ - नीरजाक्ष ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 069  
 सी। नरसिंह ❘ नीवण्टि - दॊरनु सम्पादिञ्चि  
@@ -5547,10 +5547,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 पॆट्टजालक येल - भिक्षमॆत्तिञ्चॆदु  
 नन्नु बीदनु जेसि - ना वदेमि?  
 
-ते। अमल ❘ कमलाक्ष | ने निट्लु - श्रमपडङ्ग  
+ते। अमल ❘ कमलाक्ष ｜ ने निट्लु - श्रमपडङ्ग  
 गन्नुलकु बण्डुवै नीकु - गानबडुनॆ?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 070  
 सी। वनरुहनाभ ❘ नी - वङ्क जेरिति नेनु  
@@ -5564,8 +5564,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। गोपगाडनु नीवु ना - गुणमु तॆलिसि  
 यिप्पुडे नन्नु रक्षिञ्चि - येलुकॊम्मु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 071  
 सी। प्रह्लादु डेपाटि - पैडि कानुक लिच्चॆ?  
@@ -5579,8 +5579,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नीकु वीरन्द ऱयिनट्लु - नेनु गान?  
 यॆन्दु कनि नन्नु रक्षिम्प - विन्दुवदन ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 072  
 सी। वाञ्छतो बलिचक्र - वर्तिदग्गर जेरि  
@@ -5594,8 +5594,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। भक्तुलकु नीवु पॆट्टुट - भाग्यमौनु  
 वारि काशिञ्चितिवि तिण्डि - वाड वगुचु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 073  
 सी। स्तम्भमं दुदयिञ्चि - दानवेन्द्रुनि द्रुञ्चि  
@@ -5609,8 +5609,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। वारिवलॆ नन्नु बोषिम्प - वशमुगादॆ?  
 यन्त वलपक्ष मेल श्री - कान्त ❘ नीकु?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 074  
 सी। व्यासु डे कुलमन्दु - वासिगा जन्मिञ्चॆ?  
@@ -5624,8 +5624,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। ने कुलम्बुन वी रिन्द - ऱॆच्चिनारु?  
 नीकृपापात्रुलकु जाति - नीतु लेल?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 075  
 सी। वसुधास्थलम्बुन - वर्णहीनुडु गानि  
@@ -5639,8 +5639,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। प्रतिदिनमु नीदु भजनचे - बरगुनट्टि  
 वानि के वङ्क लेदय्य - वच्चु मुक्ति।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 076  
 सी। इभकुम्भमुलमीदि - कॆगिरॆडि सिङ्गम्बु  
@@ -5654,8 +5654,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। निलनु नीकीर्तनलु पाड - नेर्चिनतडु  
 परुलकीर्तन बाडुने - यरसि चूड?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 077  
 सी। सर्वेश ❘ नीपाद - सरसिजद्वयमन्दु  
@@ -5669,8 +5669,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। प्रेमतो नन्नु बोषिञ्चि - पॆञ्चुकॊनुमु  
 घनत कॆक्किञ्चु नीदास - गणमुलोन।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 078  
 सी। जीमूतवर्ण ❘ नी - मोमुतो सरिराक  
@@ -5684,8 +5684,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। निन्दिरादेवि निन्नु मो - हिञ्चि विडक  
 नीकु बट्टमहिषि यय्यॆ - निश्चयमुग।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 079  
 सी। हरिदासुलनु निन्द - लाडकुण्डिन जालु  
@@ -5699,8 +5699,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। ऒकरि वर्शाशनमु मुञ्च - कुन्न जालु  
 बेरुकीर्तिग सत्रमुल् - पॆट्टिनट्लु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 080  
 सी। इहलोकसौख्यमु - लिच्चगिञ्चॆद मन्न  
@@ -5714,8 +5714,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नम्मरा दय्य ❘ यिदि माय - नाटकम्बु  
 जन्म मिक नॊल्ल न न्नेलु - जलजनाभ ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 081  
 सी। वदनम्बु नीनाम - भजन गोरुचुनुण्डु  
@@ -5729,8 +5729,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। स्वप्नमुन नैन नेवेल - सन्ततमुनु  
 बुद्धि नी पादमुलयन्दु - बूनियुण्डु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 082  
 सी। पद्माक्ष ❘ ममतचे - बरमु नन्दॆद मञ्चु  
@@ -5744,23 +5744,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नी शरीरालु पडिपोवु - टॆऱुग केमु  
 कामुकुल मैति मिक मिम्मु - गानलेमु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 083  
-सी। गरुडवाहन ❘ दिव्य - कौस्तुभालङ्कार |  
-रविकोटितेज ❘ सा - रङ्गवदन |  
-मणिगणान्वित ❘ हेम - मकुटाभरण | चारु  
-मकरकुण्डल ❘ लस - न्मन्दहास |  
-काञ्चनाम्बर ❘ रत्न - काञ्चिविभूषित |  
-सुरवरार्चित ❘ चन्द्र - सूर्यनयन |  
-कमलनाभ ❘ मुकुन्द | - गङ्गाधरस्तुत |  
-राक्षसान्तक ❘ नाग - राजशयन |  
+सी। गरुडवाहन ❘ दिव्य - कौस्तुभालङ्कार ｜  
+रविकोटितेज ❘ सा - रङ्गवदन ｜  
+मणिगणान्वित ❘ हेम - मकुटाभरण ｜ चारु  
+मकरकुण्डल ❘ लस - न्मन्दहास ｜  
+काञ्चनाम्बर ❘ रत्न - काञ्चिविभूषित ｜  
+सुरवरार्चित ❘ चन्द्र - सूर्यनयन ｜  
+कमलनाभ ❘ मुकुन्द ｜ - गङ्गाधरस्तुत ｜  
+राक्षसान्तक ❘ नाग - राजशयन ｜  
 
-ते। पतितपावन ❘ लक्षीश | - ब्रह्मजनक |  
-भक्तवत्सल ❘ सर्वेश | - परमपुरुष |  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+ते। पतितपावन ❘ लक्षीश ｜ - ब्रह्मजनक ｜  
+भक्तवत्सल ❘ सर्वेश ｜ - परमपुरुष ｜  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 084  
 सी। पलुमाऱु दशरूप - मुलु दरिञ्चिति वेल?  
@@ -5774,8 +5774,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। वनजलोचन ❘ यिटुवण्टि - वैभवमुलु  
 सॊगसुगा नीकु दोचॆनो - सुन्दराङ्ग?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 085  
 सी। तिरुपति स्थलमन्दु - दिन्नगा ने नुन्न  
@@ -5789,8 +5789,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। यॆन्दु बोवक नेनु नी - मन्दिरमुन  
 निलिचितिनि नीकु नामीद - नॆनरु लेदु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 086  
 सी। तार्क्ष्यवाहन ❘ नीवु - दण्डिदात वटञ्चु  
@@ -5804,8 +5804,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नीकु नाविद्य हर्षम्बु - गाक युन्न  
 तेपतेपकु वेषमुल् - देनु सुम्मि।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 087  
 सी। अमरेन्द्रविनुत ❘ ने - नतिदुरात्मुड नञ्चु  
@@ -5819,23 +5819,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नडुपुचुनु निन्नु गॊलिचॆद - नम्मि बुद्धि  
 नी प्रपञ्चम्बु गलुगु ना - किन्तॆ चालु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 088  
-सी। भुवनेश ❘ गोविन्द | - रविकोटिसङ्काश |  
-पक्षिवाहन ❘ भक्त - पारिजात |  
+सी। भुवनेश ❘ गोविन्द ｜ - रविकोटिसङ्काश ｜  
+पक्षिवाहन ❘ भक्त - पारिजात ｜  
 यम्भोजभव रुद्र - जम्भारिसन्नुत ❘  
-सामगानविलोल ❘ - सारसाक्ष |  
-वनधिगम्भीर ❘ श्री - वत्सकौस्तुभवक्ष |  
+सामगानविलोल ❘ - सारसाक्ष ｜  
+वनधिगम्भीर ❘ श्री - वत्सकौस्तुभवक्ष ｜  
 शङ्खचक्रगदासि - शार्ज्ञहस्त ❘  
-दीनरक्षक ❘ वासु - देव | दैत्यविनाश |  
-नारदार्चित ❘ दिव्य - नागशयन |  
+दीनरक्षक ❘ वासु - देव ｜ दैत्यविनाश ｜  
+नारदार्चित ❘ दिव्य - नागशयन ｜  
 
 ते। चारु नवरत्नकुण्डल - श्रवणयुगल ❘  
-विबुधवन्दित पादब्ज ❘ - विश्वरूप |  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+विबुधवन्दित पादब्ज ❘ - विश्वरूप ｜  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 089  
 सी। नागेन्द्रशयन ❘ नी - नाममाधुर्यम्बु  
@@ -5849,8 +5849,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। वीरि कॆऱुकगु नीकथल् - विन्त लॆल्ल  
 नरुल कॆऱु कन्न नॆवरैन - नव्विपोरॆ?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 090  
 सी। अर्थु लेमैन नि - न्नडुगवच्चॆद रञ्चु  
@@ -5863,9 +5863,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 मञ्चि योधुल काव - लुञ्चिनावु  
 
 ते। लावु गलवाड वैति वे - लागु नेनु  
-निन्नु जूतुनु नातण्ड्रि ❘ - नीरजाक्ष |  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+निन्नु जूतुनु नातण्ड्रि ❘ - नीरजाक्ष ｜  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 091  
 सी। नीकथल् चॆवुललो - सोकुट मॊदलुगा  
@@ -5874,13 +5874,13 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 मग्नुडै देहम्बु - मऱचुवाडु  
 फालम्बुतो नीदु - पादयुग्ममुनकु  
 ब्रेमतो दण्ड म - र्पिञ्चुवाडु  
-हा पुण्डरीकाक्ष ❘ - हा राम | हरि | यञ्चु  
+हा पुण्डरीकाक्ष ❘ - हा राम ｜ हरि ｜ यञ्चु  
 वेड्कतो गेकलु - वेयुवाडु  
 
 ते। चित्तकमलम्बुननु निन्नु - जेर्चुवाडु  
 नीदुलोकम्बुनं दुण्डु - नीरजाक्ष ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 092  
 सी। निगमगोचर ❘ नेनु - नीकु मॆप्पगुनट्लु  
@@ -5894,8 +5894,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नन्नि गलवाड वखिल लो - काधिपतिवि ❘  
 नीकु सॊम्मुलु पॆट्ट ने - नॆन्तवाड ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 093  
 सी। नवसरोजदलाक्ष ❘ - नन्नु बोषिञ्चॆडु  
@@ -5909,8 +5909,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। बरमसन्तोष मायॆ ना - प्राणमुलकु  
 नी^^ऋणमु दीर्चुकॊन नेर - नीरजाक्ष ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 094  
 सी। फणुलपुट्टलमीद - बव्वलिञ्चिनयट्लु  
@@ -5924,23 +5924,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। स्वामि नी भक्तवरुलु दु - र्जनुलतोड  
 जॆलिमि जेसिनय ट्लैन - जेटु वच्चु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 095  
-सी। दनुजसंहार ❘ चक्र - धर | नीकु दण्डम्बु  
+सी। दनुजसंहार ❘ चक्र - धर ｜ नीकु दण्डम्बु  
 लिन्दिराधिप ❘ नीकु - वन्दनम्बु  
 पतितपावन ❘ नीकु - बहुनमस्कारमुल्  
 नीरजातदलाक्ष ❘ - नीकु शरणु  
-वासवार्चित ❘ मेघ - वर्ण | नीकु शुभम्बु  
+वासवार्चित ❘ मेघ - वर्ण ｜ नीकु शुभम्बु  
 मन्दरधर ❘ नीकु - मङ्गलम्बु  
-कम्बुकन्धर ❘ शार्ज्ग - कर | नीकु भद्रम्बु  
+कम्बुकन्धर ❘ शार्ज्ग - कर ｜ नीकु भद्रम्बु  
 दीनरक्षक ❘ नीकु - दिग्विजयमु  
 
 ते। सकलवैभवमुलु नीकु - सार्वभौम ❘  
 नित्यकल्याणमुलु नगु - नीकु नॆपुडु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 096  
 सी। मत्स्यावतार मै - मडुगुलोपल जॊच्चि  
@@ -5954,8 +5954,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। युन्दु ररविन्दनयन ❘ नी - युनिकि दॆलियु  
 वारलकु वेग मोक्षम्बु - वच्चु ननघ ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 097  
 सी। कूर्मावतारमै - कुधरम्बुक्रिन्दनु  
@@ -5968,9 +5968,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 वर्ति नऱम्पवा - वैर मुडिगि?  
 
 ते। यिट्टि पनु लॆल्ल जेयगा - नॆवरिकेनि  
-तगुनॆ नरसिंह ❘ नीकिदि - दगुनु गाक |  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+तगुनॆ नरसिंह ❘ नीकिदि - दगुनु गाक ｜  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 098  
 सी। लक्ष्मीश ❘ नीदिव्य - लक्षणगुणमुल  
@@ -5984,8 +5984,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नम्मियुन्नानु नीपाद - नलिनभक्ति  
 वेग दयचेसि रक्षिम्पु - वेदविद्य ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 099  
 सी। अमरेन्द्रविनुत ❘ नि - न्ननुसरिञ्चिनवारु  
@@ -5999,8 +5999,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। ननुचु बलुमाऱु वेडॆद - नब्जनाभ ❘  
 नाकु ब्रत्यक्ष मगुमु निन् - नम्मिनानु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 100  
 सी। शेषप्प यनु कवि - चॆप्पिन पद्यमुल्  
@@ -6014,27 +6014,27 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। निद्दि पुण्याकरं बनि - यॆपुडु जनुलु  
 गषट मॆन्नक पठियिम्प - गलुगु मुक्ति।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 ## Gujarati
 
 નારસિંહ શતકમ્  
 
 001  
-સી૤ શ્રીમનોહર ❘ સુરા - ર્ચિત સિંધુગંભીર |  
-ભક્તવત્સલ ❘ કોટિ - ભાનુતેજ |  
-કંજનેત્ર ❘ હિરણ્ય - કશ્યપાંતક | શૂર |  
-સાધુરક્ષણ ❘ શંખ - ચક્રહસ્ત |  
-પ્રહ્લાદ વરદ ❘ પા - પધ્વંસ | સર્વેશ |  
-ક્ષીરસાગરશાયિ ❘ - કૃષ્ણવર્ણ |  
-પક્ષિવાહન ❘ નીલ - ભ્રમરકુંતલજાલ |  
+સી૤ શ્રીમનોહર ❘ સુરા - ર્ચિત સિંધુગંભીર ｜  
+ભક્તવત્સલ ❘ કોટિ - ભાનુતેજ ｜  
+કંજનેત્ર ❘ હિરણ્ય - કશ્યપાંતક ｜ શૂર ｜  
+સાધુરક્ષણ ❘ શંખ - ચક્રહસ્ત ｜  
+પ્રહ્લાદ વરદ ❘ પા - પધ્વંસ ｜ સર્વેશ ｜  
+ક્ષીરસાગરશાયિ ❘ - કૃષ્ણવર્ણ ｜  
+પક્ષિવાહન ❘ નીલ - ભ્રમરકુંતલજાલ ｜  
 પલ્લવારુણપાદ - પદ્મયુગળ ❘  
 
 તે૤ ચારુશ્રીચંદનાગરુ - ચર્ચિતાંગ ❘  
-કુંદકુટ્મલદંત ❘ વૈ - કુંઠધામ |  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+કુંદકુટ્મલદંત ❘ વૈ - કુંઠધામ ｜  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 002  
 સી૤ પદ્મલોચન ❘ સીસ - પદ્યમુલ્ ની મીદ  
@@ -6048,8 +6048,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ દપ્પુગલિગિન સદ્ભક્તિ - તક્કુવૌન૆  
 ચ૆઱કુનકુ વંકપોયિન - ચ૆ડુન૆ તીપુ?  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 003  
 સી૤ નરસિંહ ❘ ની દિવ્ય - નામમંત્રમુચેત  
@@ -6063,8 +6063,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ ભળિર ❘ ને ની મહામંત્ર - બલમુચેત  
 દિવ્ય વૈકુંઠ પદવિ સા - ધિંપવચ્ચુ  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 004  
 સી૤ આદિનારાયણા ❘ - યનુચુ નાલુકતોડ  
@@ -6078,8 +6078,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ પરમ સાત્વિકુલૈન ની - ભક્તવરુલ  
 દાસુલકુ દાસુડનુ જુમી - ધાત્રિલોન  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 005  
 સી૤ ઐશ્વર્યમુલકુ નિ - ન્નનુસરિંપગલેદુ  
@@ -6093,8 +6093,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નેનુ ગોરિન દ૊ક્કટે - નીલવર્ણ  
 ચય્યનનુ મોક્ષમિચ્ચિન - જાલુ નાકુ  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 006  
 સી૤ મંદુંડનનિ નન્નુ - નિંદ ચેસિનનેમિ?  
@@ -6108,8 +6108,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ કલ્પવૃક્ષંબુવલ૆ નીવુ - ગલ્ગ નિંક  
 બ્રજલ લક્ષ્યંબુ નાકેલ? - પદ્મનાભ ❘  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 007  
 સી૤ ચિત્તશુદ્ધિગ નીકુ - સેવજેસ૆દગાનિ  
@@ -6123,8 +6123,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ પારમાર્થિકમુનકુ ને બાટુપડિતિ  
 ગીર્તિકિ નપેક્ષપડલેદુ - કૃષ્ણવર્ણ ❘  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 008  
 સી૤ શ્રવણ રંધ્રમુલ ની - સત્કથલ્ પ૊ગડંગ  
@@ -6138,8 +6138,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ વસુધલોન૆લ્લ વ્યર્ધુંડુ - વાડ૆ યગુનુ  
 મ઱િયુ જ૆ડુગાક ય૆પ્પુડુ - મમતન૊ંદિ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 009  
 સી૤ ગૌતમીસ્નાનાન - ગડતે઱ુદ મટન્ન  
@@ -6153,8 +6153,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ કષ્ટમુલકોર્વ નાચેત - ગાદુ નિન્નુ  
 સ્મરણચેસ૆દ ના યધા - શક્તિ ક૊લદિ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 010  
 સી૤ અર્થિવાંડ્રકુ નીક - હાનિ જેયુટ કંટ૆  
@@ -6168,8 +6168,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ જલજદળનેત્ર ની ભક્ત - જનુલતોડિ  
 જગડમાડ૆ડુ પનિકંટ૆ - જાવુ મેલુ  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 011  
 સી૤ ગાર્દભંબુન કેલ - કસ્તૂરિ તિલકંબુ?  
@@ -6183,8 +6183,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ દ્રોહચિંતન જેસ૆ડિ - દુર્જનુલકુ  
 મધુરમૈનટ્ટિ નીનામ - મંત્રમેલ?  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 012  
 સી૤ પસરંબુ વંજૈન - બસુલકાપરિ તપ્પુ  
@@ -6198,8 +6198,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ ઇટ્ટિ તપ્પુલ૆઱ુંગક - યિચ્ચવચ્ચિ  
 નટુલ મ૆લગુદુ રિપ્પુ ડી - યવનિ જનુલુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 013  
 સી૤ કોતિકિ જલતારુ - કુળ્લાયિ યેટિકિ?  
@@ -6213,8 +6213,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ માટ નિલુકડ કુંકરિ - મોટુ કેલ?  
 ચ૆વિટિવાનિકિ સત્કથ - શ્રવણ મેલ?  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 014  
 સી૤ માન્યંબુલીય સ - મર્ધુડ૊ક્કડુ લેડુ  
@@ -6228,8 +6228,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ યિટ્ટિ દુષ્ટુલ કધિકાર - મિચ્ચિનટ્ટિ  
 પ્રભુવુ તપ્પુ લટંચુનુ - બલુકવલ૆નુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 015  
 સી૤ તલ્લિગર્ભમુનુંડિ - ધનમુ તે ડ૆વ્વડુ  
@@ -6243,8 +6243,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ તુદકુ દ૊ંગલ કિત્તુરો - દ૊રલ કવુન૊  
 તેન૆ જુંટીગ લિય્યવા - ત૆રુવરુલકુ?  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 016  
 સી૤ લોકમં દ૆વડૈન - લોભિમાનવુ ડુન્ન  
@@ -6258,8 +6258,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ શ્રીરમાનાથ ❘ યિટુવંટિ - ક્રૂરુનકુનુ  
 ભિક્ષુકુલ શત્રુવનિ - પેરુ પ૆ટ્ટવચ્ચુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 017  
 સી૤ તનુવુલો બ્રાણમુલ્ = તરળિપ૊ય્ય૆ડિવેળ  
@@ -6273,8 +6273,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ કમલનાભ ની મહિમલુ - ગાનલેનિ  
 તુચ્છુલકુ મુક્તિદ૊રકુટ - દુર્લભંબુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 018  
 સી૤ નીલમેઘશ્યામ ❘ - નીવ૆ તંડ્રિવિ માકુ  
@@ -6288,8 +6288,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ તોયજાતાક્ષ ની પાદ - તુલસિદળમુ  
 રોગમુલ કૌષધમુ બ્રહ્મ - રુદ્રવિનુત૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 019  
 સી૤ બ્રતિકિનન્નાળ્લુ ની - ભજન તપ્પનુ ગાનિ  
@@ -6303,8 +6303,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નાટિ કિપ્પુડ૆ ચેતુ ની - નામભજન  
 તલચ૆દનુ, જ૆વિ નિડવય્ય ❘ - ધૈર્યમુગનુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 020  
 સી૤ પાંચભૌતિકમુ દુ - ર્બલમૈન કાયં બિ  
@@ -6318,8 +6318,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ મરણમે નિશ્ચયમુ બુદ્ધિ - મંતુડૈન  
 દેહમુન્નંતલો મિમ્મુ - દ૆લિયવલયુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 021  
 સી૤ તલ્લિદંડ્રુલુ ભાર્ય - તનયુ લાપ્તુલુ બાવ  
@@ -6333,8 +6333,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ ચુટ્ટમુલમીદિ ભ્રમદીસિ - ચૂર જ૆ક્કિ  
 સંતતમુ મિમ્મુ નમ્મુટ - સાર્થકંબુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 022  
 સી૤ ઇભરાજવરદ ❘ નિ - ન્ન૆ંત બિલ્ચિનગાનિ  
@@ -6348,8 +6348,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ મોક્ષદાયક ❘ યિટુવંટિ - મૂર્ખજનુનિ  
 કષ્ટપ૆ટ્ટિન નીકેમિ - કડુપુનિંડુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 023  
 સી૤ નીમીદ કીર્તનલ્ - નિત્યગાનમુ જેસિ  
@@ -6363,8 +6363,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ સાધુડનુ મૂર્ખમતિ મનુ - ષ્યાધમુડનુ  
 હીનુડનુ જુમ્મિ નીવુ - ન ન્નેલુક૊નુમુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 024  
 સી૤ અતિશયંબુગ ગલ્લ - લાડનેર્ચિતિગાનિ  
@@ -6378,8 +6378,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ બંકજાતાક્ષ ❘ ને નતિ - પાતકુડનુ  
 દપ્પુલન્નિયુ ક્ષમિયિંપ - દંડ્રિ વીવ૆ ❘  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 025  
 સી૤ ઉર્વિલો નાયુષ્ય - મુન્ન પર્યંતંબુ  
@@ -6393,8 +6393,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ દન્નુ વિડિપિંપ વચ્ચ૆ડિ - ધન્યુ ડેડિ  
 મુંદુ નીદાસુડૈ યુન્ન - મુક્તિ ગલુગુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 026  
 સી૤ અધિક વિદ્યાવંતુ - લપ્રયોજકુલૈરિ  
@@ -6408,8 +6408,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ પક્ષિવાહન ❘ માવંટિ - ભિક્ષુકુલકુ  
 શક્તિલેદાય૆ નિક નીવ૆ - ચાટુ માકુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 027  
 સી૤ ભુજબલંબુન બ૆દ્દ - પુલુલ જંપગવચ્ચુ  
@@ -6423,8 +6423,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ બુડમિલો દુષ્ટુલકુ જ્ઞાન - બોધ ત૆લિપિ  
 સજ્જનુલ જેયલે ડ૆ંત - ચતુરુદૈન૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 028  
 સી૤ અવનિલોગલ યાત્ર - લન્નિ ચેયગવચ્ચુ  
@@ -6438,8 +6438,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ જિત્ત મન્યસ્થલંબુન - જેરકુંડ  
 ની પદાંભોજમુલયંદુ - નિલપરાદુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 029  
 સી૤ કર્ણયુગ્મમુન ની - કથલુ સોકિનજાલુ  
@@ -6453,8 +6453,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ પૂનિ નિનુ ગ૊લ્ચુટે સર્વ - ભૂષણંબુ  
 લિતર ભૂષણમુલ નિચ્ચ - ગિંપનેલ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 030  
 સી૤ ભુવનરક્ષક ❘ નિન્નુ - બ૊ગડનેરનિ નોરુ  
@@ -6468,8 +6468,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ પદ્મલોચન નીમીદ - ભક્તિલેનિ  
 માનવુડુ ર૆ંડુપાદાલ - મહિષમય્ય૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 031  
 સી૤ અતિવિદ્યનેર્ચુટ - અન્નવસ્ત્રમુલકે  
@@ -6483,8 +6483,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ યિતર કામંબુ ગોરક - સતતમુગનુ  
 ભક્તિ નીયંદુ નિલુપુટ - મુક્તિ ક૊઱ક૆  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 032  
 સી૤ ધરણિલો વેયેંડ્લુ - તનુવુ નિલ્વગબોદુ  
@@ -6498,8 +6498,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ વ૆ર્રિ કુક્કલ ભ્રમલન્નિ - વિડિચિ નિન્નુ  
 ભજન જેસ૆ડિવારિકિ - બરમસુખમુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 033  
 સી૤ નરસિંહ ❘ નાકુ દુ - ર્ણયમુલે મ૆ંડાય૆  
@@ -6513,8 +6513,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ અબ્જદળનેત્ર ❘ નાતંડ્રિ - વૈન ફલમુ  
 નેરમુલુ ગાચિ રક્ષિંપુ - નીવ૆ દિક્કુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 034  
 સી૤ ધીરત બરુલ નિં - દિંપ નેર્ચિતિ ગાનિ  
@@ -6528,23 +6528,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નવનિલો નેનુ જન્મિંચિ - નંદુ કેમિ  
 સાર્થકમુ ગાનરાદાય૆ - સ્વલ્પમૈન૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 035  
 સી૤ અંત્યકાલમુનંદુ - નાયાસમુન નિન્નુ  
 દલતુનો તલપનો - તલતુ નિપુડ૆  
-નરસિંહ ❘ નરસિંહ | - નરસિંહ | લક્ષ્મીશ |  
-દાનવાંતક ❘ કોટિ - ભાનુતેજ |  
-ગોવિંદ ❘ ગોવિંદ | - ગોવિંદ | સર્વેશ |  
-પન્નગાધિપશાયિ ❘ - પદ્મનાભ |  
-મધુવૈરિ ❘ મધુવૈરિ | - મધુવૈરિ | લોકેશ |  
-નીલમેઘશરીર ❘ નિગમવિનુત |  
+નરસિંહ ❘ નરસિંહ ｜ - નરસિંહ ｜ લક્ષ્મીશ ｜  
+દાનવાંતક ❘ કોટિ - ભાનુતેજ ｜  
+ગોવિંદ ❘ ગોવિંદ ｜ - ગોવિંદ ｜ સર્વેશ ｜  
+પન્નગાધિપશાયિ ❘ - પદ્મનાભ ｜  
+મધુવૈરિ ❘ મધુવૈરિ ｜ - મધુવૈરિ ｜ લોકેશ ｜  
+નીલમેઘશરીર ❘ નિગમવિનુત ｜  
 
 તે૤ ઈ વિધંબુન નીનામ - મિષ્ટમુગનુ  
 ભજનસેયુચુ નુંદુ ના - ભાવમંદુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 036  
 સી૤ આયુરારોગ્ય પુ - ત્રાર્થ સંપદલન્નિ  
@@ -6558,8 +6558,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ અવનિલો માનવુલ કન્નિ - યાસલિચ્ચિ  
 વ્યર્થુલનુ જેસિ ત૆લિપ૆ડિ - વાડ વીવ૆૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 037  
 સી૤ કાય મ૆ંત ભયાન - ગાપાડિનનુગાનિ  
@@ -6573,8 +6573,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ જીવુનિ પ્રયાણકાલંબુ - સિદ્ધમૈન  
 નિલુચુના દેહ મિંદ૊ક્ક - નિમિષમૈન?  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 038  
 સી૤ જંદ૆ મિંપુગ વેસિ - સંધ્ય વાર્ચિન નેમિ  
@@ -6588,8 +6588,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ ઎ન્નિ લૌકિકવેષાલુ - ગટ્ટુક૊નિન  
 ગુરુનિ જ૆ંદક સન્મુક્તિ - દ૊રકબોદુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 039  
 સી૤ નરસિંહ ❘ ને નિન્નુ - નમ્મિનંદુકુ જાલ  
@@ -6603,8 +6603,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ ઎ચટ નન્નુંચિનનુગાનિ - ય૆પુડુ નિન્નુ  
 મ઱ચિ પોકુંડ નીનામ - સ્મરણન૊સગુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 040  
 સી૤ દેહ મુન્નવ઱કુ - મોહસાગરમંદુ  
@@ -6618,8 +6618,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ મત્તુલૈનટ્ટિ દુર્જાતિ - મનુજુલ૆લ્લ  
 નિન્નુ ગનલેરુ મ૊દટિકે - નીરજાક્ષ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 041  
 સી૤ ઇલલોન ને જન્મ - મ૆ત્તિનપ્પટિનુંડિ  
@@ -6633,8 +6633,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ સૂર્યશશિનેત્ર ❘ નીચાટુ - જ૊ચ્ચિ નાનુ  
 કલુષમુલુ દ્રુંચિ નન્નેલુ - કષ્ટમનક૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 042  
 સી૤ તાપસાર્ચિત ❘ નેનુ - પાપકર્મુડનંચુ  
@@ -6648,8 +6648,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ દંડ્રિવૈ નીવુ પરપીડ - દગુલજેય  
 વાસિગલ પેરુ કપકીર્તિ - વચ્ચુનય્ય૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 043  
 સી૤ ધરણિલોપલ નેનુ - તલ્લિગર્ભમુનંદુ  
@@ -6663,8 +6663,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નળિનદળનેત્ર ❘ નિન્નુ ને - નમ્મિનાનુ  
 જેરિ રક્ષિંપવે નન્નુ - શીઘ્રમુગનુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 044  
 સી૤ અડવિપક્ષુલ ક૆વ્વ - ડાહાર મિચ્ચ૆નુ  
@@ -6678,8 +6678,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ જીવકોટ્લનુ બોષિંપ - નીવ૆કાનિ  
 વે઱૆ ય૊ક દાત લેડય્ય - વ૆દકિચૂડ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 045  
 સી૤ દનુજારિ ❘ નાવંટિ - દાસજાલમુ નીકુ  
@@ -6693,8 +6693,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ ભૂજનુલલોન ને નપ્ર - યોજકુડનુ  
 ગનુક ની સત્કટાક્ષંબુ - ગલુગજેયુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 046  
 સી૤ કમલલોચન ❘ નન્નુ - ગન્નતંડ્રિવિગાન  
@@ -6708,8 +6708,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ ક૊સકુ ની શંખ ચક્રમુલ્ - કુદુવબ૆ટ્ટિ  
 ગ્રાસમુ ન૊સંગિ પોષિંચુ - કપટમુડિગિ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 047  
 સી૤ કુવલયશ્યામ ❘ ની - ક૊લુવુ ચેસિન નાકુ  
@@ -6723,8 +6723,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નેડુ કરુણિંપકુંટિવા - નિશ્ચયમુગ  
 દ૆ગબડિતિ ચૂડુ નીતોડ - જગડમુનકુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 048  
 સી૤ હરિ ❘ નીકુ બર્યંક - મૈન શેષુડુ ચાલ  
@@ -6738,8 +6738,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ સ્વસ્થમુગ નીકુ ગ્રાસમુ - જરુગુચુંડુ  
 ગાસુ ની ચેતિ દ૊કટૈન - ગાદુ વ્યયમુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 049  
 સી૤ પુંડરીકાક્ષ ❘ ના - ર૆ંડુ કન્નુલ નિંડ  
@@ -6753,8 +6753,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નેમિટિકિ વિસ્તરિંચ૆ ની - કિંત કીર્તિ  
 દ્રોહિનૈનનુ ના કીવુ - દ૊રકરાદ૆?  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 050  
 સી૤ પચ્ચિ ચર્મપુ દિત્તિ - પસલેદુ દેહંબુ  
@@ -6768,8 +6768,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ બ૊ંદિલો નુંડુ પ્રાણમુલ્ - પોયિનંત  
 ગાટિકે ગાનિ ક૊઱ગાદુ - ગવ્વકૈન૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 051  
 સી૤ પલુરોગમુલકુ ની - પાદતીરમ૆ કાનિ  
@@ -6783,8 +6783,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ દ૊રિકિતિવિ નાકુ દંડિ વૈ - દ્યુડવુ નીવુ  
 વેયિકષ્ટાલુ વચ્ચિનન્ - વ૆઱વનય્ય૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 052  
 સી૤ કૂટિકોસરમુ ને - ગ૊઱ગાનિ જનુલચે  
@@ -6798,8 +6798,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નિટુલ સંસારવારિધિ - નીદલેક  
 વેયિવિધમુલ નિન્નુ ને - વેડુક૊ંટિ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 053  
 સી૤ સાધુ સજ્જનુલતો - જગડમાડિન ગીડુ  
@@ -6813,8 +6813,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ દુષ્ટકાર્યમુ લ૊નરિંચુ - દુર્જનુલકુ  
 ઘનતરંબૈન નરકંબુ - ગટ્ટિમુલ્લ૆૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 054  
 સી૤ પરુલદ્રવ્યમુમીદ - ભ્રાંતિ ન૊ંદિનવાડુ  
@@ -6828,8 +6828,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ પ્રજલ જંતુલ હિંસિંચુ - પાતકુંડુ  
 કાલકિંકર ગદલચે - ગષ્ટમ૊ંદુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 055  
 સી૤ નરસિંહ ❘ ના તંડ્રિ - નન્નેલુ નન્નેલુ  
@@ -6843,8 +6843,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ સુરવિનુત ❘ નેનુ નીચાટુ - જ૊ચ્ચિનાનુ  
 ના મ૊઱ાલિંચિ કડતેર્ચુ - નાગશયન ❘  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 056  
 સી૤ ની ભક્તુલનુ ગનુલ્ - નિંડ જૂચિયુ ર૆ંડુ  
@@ -6858,8 +6858,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ પરમભક્તુંડુ ધન્યુંડુ - ભાનુતેજ ❘  
 વાનિ ગનુગ૊ન્ન બુણ્યંબુ - વસુધલોન૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 057  
 સી૤ પક્ષિવાહન ❘ નેનુ - બ્રતિકિનન્નિદિનાલુ  
@@ -6873,8 +6873,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ ક૊સકુ ની સન્નિધિકિ બિલ્ચુ - ક૊નિયુ નીકુ  
 સેવકુનિ જેસિક૊નવય્ય - શેષશયન ❘  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 058  
 સી૤ નિગમાદિશાસ્ત્રમુલ્ - નેર્ચિન દ્વિજુડૈન  
@@ -6888,8 +6888,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ ગર્વમુન ગષ્ટપડિ નિન્નુ - ગાનકુન્ન  
 મોક્ષસામ્રાજ્ય મ૊ંદડુ - મોહનાંગ ❘  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 059  
 સી૤ પંજરંબુન ગાકિ - બટ્ટિ યુંચિન લ૆સ્સ  
@@ -6903,8 +6903,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ કુજનુલનુ દ૆ચ્ચિ ની સેવ - ક૊઱કુ બ૆ટ્ટ  
 વાંછતો જેતુરે ભક્ત - વરુલવલ૆નુ?  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 060  
 સી૤ નીકુ દાસુડ નંટિ - નિન્નુ નમ્મુકયુંટિ  
@@ -6918,8 +6918,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ શીઘ્રમુગ ગોર્કુ લીડેર્ચુ - ચિંત દીર્ચુ  
 નિરતમુગ નન્નુ બોષિંચુ - ન૆નરુ નુંચુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 061  
 સી૤ વિદ્ય નેર્ચિતિ નંચુ - વિર્રવીગગલેદુ  
@@ -6933,8 +6933,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નલુગુરિકિ મ૆પ્પુગાનૈન - નડુવલેદુ  
 નળિનદળનેત્ર ❘ નિન્નુ ને - નમ્મિનાનુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 062  
 સી૤ અતિલોભુલનુ ભિક્ષ - મડુગબોવુટ રોત  
@@ -6946,10 +6946,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 આદાયમુલુ લેક - યપ્પુદીયુટ રોત  
 જાર ચોરુલ ગૂડિ - ચનુટ રોત  
 
-તે૤ યાદિલક્ષ્મીશ ❘ નીબંટ - નૈતિનય્ય |  
+તે૤ યાદિલક્ષ્મીશ ❘ નીબંટ - નૈતિનય્ય ｜  
 યિંક ન૆ડબાસિ જન્મંબુ - લ૆ત્ત રોત૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 063  
 સી૤ વ૆ર્રિવાનિકિ નેલ - વેદાક્ષરંબુલુ?  
@@ -6963,8 +6963,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ ક્રૂરજનુલકુ નીમીદ - ગોરિ કેલ?  
 દ્રોહિ પાપાત્મુનકુ દયા - દુઃખ મેલ?  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 064  
 સી૤ ના તંડ્રિ નાદાત - નાયિષ્ટદૈવમા  
@@ -6978,8 +6978,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ દંડિદ૊ર વંચુ નીવ૆ંટ - દગિલિનાનુ  
 નેડુ પ્રત્યક્ષમૈ નન્નુ - નિર્વહિંપુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 065  
 સી૤ વેમા઱ુ નીકથલ્ - વિનુચુ નુંડ૆ડિવાડુ  
@@ -6993,8 +6993,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નિન્નુ નમ્મિન ભક્તુંડુ - નિશ્ચયમુગ  
 ગોરિ ચિલ્લર વેલ્પુલ - ગ૊લ્વબોડુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 066  
 સી૤ ને ન૆ંત વેડિન - ની કેલ દયરાદુ?  
@@ -7008,8 +7008,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ દાત દૈવંબુ તલ્લિયુ - દંડ્રિ વીવ૆  
 નમ્મિયુન્નાનુ નીપાદ - નળિનમુલનુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 067  
 સી૤ વેદમુલ્ ચદિવ૆ડુ - વિપ્રવર્યુંડૈન  
@@ -7023,8 +7023,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નિન્નુ ગ૊નિયાડુચુંડ૆ના - નિશ્ચયમુગ  
 વાડુ મોક્ષાધિકારિ યી - વસુધલોન૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 068  
 સી૤ સકલવિદ્યલુ નેર્ચિ - સભ જયિંપગવચ્ચુ  
@@ -7038,8 +7038,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ તામરસગર્ભ હર પુરં - દરુલકૈન  
 નિન્નુ વર્ણિંપ દરમૌન૆ - નીરજાક્ષ ❘  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 069  
 સી૤ નરસિંહ ❘ નીવંટિ - દ૊રનુ સંપાદિંચિ  
@@ -7051,10 +7051,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 પ૆ટ્ટજાલક યેલ - ભિક્ષમ૆ત્તિંચ૆દુ  
 નન્નુ બીદનુ જેસિ - ના વદેમિ?  
 
-તે૤ અમલ ❘ કમલાક્ષ | ને નિટ્લુ - શ્રમપડંગ  
+તે૤ અમલ ❘ કમલાક્ષ ｜ ને નિટ્લુ - શ્રમપડંગ  
 ગન્નુલકુ બંડુવૈ નીકુ - ગાનબડુન૆?  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 070  
 સી૤ વનરુહનાભ ❘ ની - વંક જેરિતિ નેનુ  
@@ -7068,8 +7068,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ ગોપગાડનુ નીવુ ના - ગુણમુ ત૆લિસિ  
 યિપ્પુડે નન્નુ રક્ષિંચિ - યેલુક૊મ્મુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 071  
 સી૤ પ્રહ્લાદુ ડેપાટિ - પૈડિ કાનુક લિચ્ચ૆?  
@@ -7083,8 +7083,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નીકુ વીરંદ ઱યિનટ્લુ - નેનુ ગાન?  
 ય૆ંદુ કનિ નન્નુ રક્ષિંપ - વિંદુવદન ❘  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 072  
 સી૤ વાંછતો બલિચક્ર - વર્તિદગ્ગર જેરિ  
@@ -7098,8 +7098,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ ભક્તુલકુ નીવુ પ૆ટ્ટુટ - ભાગ્યમૌનુ  
 વારિ કાશિંચિતિવિ તિંડિ - વાડ વગુચુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 073  
 સી૤ સ્તંભમં દુદયિંચિ - દાનવેંદ્રુનિ દ્રુંચિ  
@@ -7113,8 +7113,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ વારિવલ૆ નન્નુ બોષિંપ - વશમુગાદ૆?  
 યંત વલપક્ષ મેલ શ્રી - કાંત ❘ નીકુ?  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 074  
 સી૤ વ્યાસુ ડે કુલમંદુ - વાસિગા જન્મિંચ૆?  
@@ -7128,8 +7128,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ ને કુલંબુન વી રિંદ - ઱૆ચ્ચિનારુ?  
 નીકૃપાપાત્રુલકુ જાતિ - નીતુ લેલ?  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 075  
 સી૤ વસુધાસ્થલંબુન - વર્ણહીનુડુ ગાનિ  
@@ -7143,8 +7143,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ પ્રતિદિનમુ નીદુ ભજનચે - બરગુનટ્ટિ  
 વાનિ કે વંક લેદય્ય - વચ્ચુ મુક્તિ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 076  
 સી૤ ઇભકુંભમુલમીદિ - ક૆ગિર૆ડિ સિંગંબુ  
@@ -7158,8 +7158,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નિલનુ નીકીર્તનલુ પાડ - નેર્ચિનતડુ  
 પરુલકીર્તન બાડુને - યરસિ ચૂડ?  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 077  
 સી૤ સર્વેશ ❘ નીપાદ - સરસિજદ્વયમંદુ  
@@ -7173,8 +7173,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ પ્રેમતો નન્નુ બોષિંચિ - પ૆ંચુક૊નુમુ  
 ઘનત ક૆ક્કિંચુ નીદાસ - ગણમુલોન૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 078  
 સી૤ જીમૂતવર્ણ ❘ ની - મોમુતો સરિરાક  
@@ -7188,8 +7188,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નિંદિરાદેવિ નિન્નુ મો - હિંચિ વિડક  
 નીકુ બટ્ટમહિષિ યય્ય૆ - નિશ્ચયમુગ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 079  
 સી૤ હરિદાસુલનુ નિંદ - લાડકુંડિન જાલુ  
@@ -7203,8 +7203,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ ઒કરિ વર્શાશનમુ મુંચ - કુન્ન જાલુ  
 બેરુકીર્તિગ સત્રમુલ્ - પ૆ટ્ટિનટ્લુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 080  
 સી૤ ઇહલોકસૌખ્યમુ - લિચ્ચગિંચ૆દ મન્ન  
@@ -7218,8 +7218,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નમ્મરા દય્ય ❘ યિદિ માય - નાટકંબુ  
 જન્મ મિક ન૊લ્લ ન ન્નેલુ - જલજનાભ ❘  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 081  
 સી૤ વદનંબુ નીનામ - ભજન ગોરુચુનુંડુ  
@@ -7233,8 +7233,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ સ્વપ્નમુન નૈન નેવેળ - સંતતમુનુ  
 બુદ્ધિ ની પાદમુલયંદુ - બૂનિયુંડુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 082  
 સી૤ પદ્માક્ષ ❘ મમતચે - બરમુ નંદ૆દ મંચુ  
@@ -7248,23 +7248,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ ની શરીરાલુ પડિપોવુ - ટ૆઱ુગ કેમુ  
 કામુકુલ મૈતિ મિક મિમ્મુ - ગાનલેમુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 083  
-સી૤ ગરુડવાહન ❘ દિવ્ય - કૌસ્તુભાલંકાર |  
-રવિકોટિતેજ ❘ સા - રંગવદન |  
-મણિગણાન્વિત ❘ હેમ - મકુટાભરણ | ચારુ  
-મકરકુંડલ ❘ લસ - ન્મંદહાસ |  
-કાંચનાંબર ❘ રત્ન - કાંચિવિભૂષિત |  
-સુરવરાર્ચિત ❘ ચંદ્ર - સૂર્યનયન |  
-કમલનાભ ❘ મુકુંદ | - ગંગાધરસ્તુત |  
-રાક્ષસાંતક ❘ નાગ - રાજશયન |  
+સી૤ ગરુડવાહન ❘ દિવ્ય - કૌસ્તુભાલંકાર ｜  
+રવિકોટિતેજ ❘ સા - રંગવદન ｜  
+મણિગણાન્વિત ❘ હેમ - મકુટાભરણ ｜ ચારુ  
+મકરકુંડલ ❘ લસ - ન્મંદહાસ ｜  
+કાંચનાંબર ❘ રત્ન - કાંચિવિભૂષિત ｜  
+સુરવરાર્ચિત ❘ ચંદ્ર - સૂર્યનયન ｜  
+કમલનાભ ❘ મુકુંદ ｜ - ગંગાધરસ્તુત ｜  
+રાક્ષસાંતક ❘ નાગ - રાજશયન ｜  
 
-તે૤ પતિતપાવન ❘ લક્ષીશ | - બ્રહ્મજનક |  
-ભક્તવત્સલ ❘ સર્વેશ | - પરમપુરુષ |  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+તે૤ પતિતપાવન ❘ લક્ષીશ ｜ - બ્રહ્મજનક ｜  
+ભક્તવત્સલ ❘ સર્વેશ ｜ - પરમપુરુષ ｜  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 084  
 સી૤ પલુમા઱ુ દશરૂપ - મુલુ દરિંચિતિ વેલ?  
@@ -7278,8 +7278,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ વનજલોચન ❘ યિટુવંટિ - વૈભવમુલુ  
 સ૊ગસુગા નીકુ દોચ૆નો - સુંદરાંગ?  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 085  
 સી૤ તિરુપતિ સ્થલમંદુ - દિન્નગા ને નુન્ન  
@@ -7293,8 +7293,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ ય૆ંદુ બોવક નેનુ ની - મંદિરમુન  
 નિલિચિતિનિ નીકુ નામીદ - ન૆નરુ લેદુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 086  
 સી૤ તાર્ક્ષ્યવાહન ❘ નીવુ - દંડિદાત વટંચુ  
@@ -7308,8 +7308,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નીકુ નાવિદ્ય હર્ષંબુ - ગાક યુન્ન  
 તેપતેપકુ વેષમુલ્ - દેનુ સુમ્મિ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 087  
 સી૤ અમરેંદ્રવિનુત ❘ ને - નતિદુરાત્મુડ નંચુ  
@@ -7323,23 +7323,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નડુપુચુનુ નિન્નુ ગ૊લિચ૆દ - નમ્મિ બુદ્ધિ  
 ની પ્રપંચંબુ ગલુગુ ના - કિંત૆ ચાલુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 088  
-સી૤ ભુવનેશ ❘ ગોવિંદ | - રવિકોટિસંકાશ |  
-પક્ષિવાહન ❘ ભક્ત - પારિજાત |  
+સી૤ ભુવનેશ ❘ ગોવિંદ ｜ - રવિકોટિસંકાશ ｜  
+પક્ષિવાહન ❘ ભક્ત - પારિજાત ｜  
 યંભોજભવ રુદ્ર - જંભારિસન્નુત ❘  
-સામગાનવિલોલ ❘ - સારસાક્ષ |  
-વનધિગંભીર ❘ શ્રી - વત્સકૌસ્તુભવક્ષ |  
+સામગાનવિલોલ ❘ - સારસાક્ષ ｜  
+વનધિગંભીર ❘ શ્રી - વત્સકૌસ્તુભવક્ષ ｜  
 શંખચક્રગદાસિ - શાર્જ્ઞહસ્ત ❘  
-દીનરક્ષક ❘ વાસુ - દેવ | દૈત્યવિનાશ |  
-નારદાર્ચિત ❘ દિવ્ય - નાગશયન |  
+દીનરક્ષક ❘ વાસુ - દેવ ｜ દૈત્યવિનાશ ｜  
+નારદાર્ચિત ❘ દિવ્ય - નાગશયન ｜  
 
 તે૤ ચારુ નવરત્નકુંડલ - શ્રવણયુગળ ❘  
-વિબુધવંદિત પાદબ્જ ❘ - વિશ્વરૂપ |  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+વિબુધવંદિત પાદબ્જ ❘ - વિશ્વરૂપ ｜  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 089  
 સી૤ નાગેંદ્રશયન ❘ ની - નામમાધુર્યંબુ  
@@ -7353,8 +7353,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ વીરિ ક૆઱ુકગુ નીકથલ્ - વિંત લ૆લ્લ  
 નરુલ ક૆઱ુ કન્ન ન૆વરૈન - નવ્વિપોર૆?  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 090  
 સી૤ અર્થુ લેમૈન નિ - ન્નડુગવચ્ચ૆દ રંચુ  
@@ -7367,9 +7367,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 મંચિ યોધુલ કાવ - લુંચિનાવુ  
 
 તે૤ લાવુ ગલવાડ વૈતિ વે - લાગુ નેનુ  
-નિન્નુ જૂતુનુ નાતંડ્રિ ❘ - નીરજાક્ષ |  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+નિન્નુ જૂતુનુ નાતંડ્રિ ❘ - નીરજાક્ષ ｜  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 091  
 સી૤ નીકથલ્ ચ૆વુલલો - સોકુટ મ૊દલુગા  
@@ -7378,13 +7378,13 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 મગ્નુડૈ દેહંબુ - મ઱ચુવાડુ  
 ફાલંબુતો નીદુ - પાદયુગ્મમુનકુ  
 બ્રેમતો દંડ મ - ર્પિંચુવાડુ  
-હા પુંડરીકાક્ષ ❘ - હા રામ | હરિ | યંચુ  
+હા પુંડરીકાક્ષ ❘ - હા રામ ｜ હરિ ｜ યંચુ  
 વેડ્કતો ગેકલુ - વેયુવાડુ  
 
 તે૤ ચિત્તકમલંબુનનુ નિન્નુ - જેર્ચુવાડુ  
 નીદુલોકંબુનં દુંડુ - નીરજાક્ષ ❘  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 092  
 સી૤ નિગમગોચર ❘ નેનુ - નીકુ મ૆પ્પગુનટ્લુ  
@@ -7398,8 +7398,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નન્નિ ગલવાડ વખિલ લો - કાધિપતિવિ ❘  
 નીકુ સ૊મ્મુલુ પ૆ટ્ટ ને - ન૆ંતવાડ ❘  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 093  
 સી૤ નવસરોજદળાક્ષ ❘ - નન્નુ બોષિંચ૆ડુ  
@@ -7413,8 +7413,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ બરમસંતોષ માય૆ ના - પ્રાણમુલકુ  
 ની^^ઋણમુ દીર્ચુક૊ન નેર - નીરજાક્ષ ❘  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 094  
 સી૤ ફણુલપુટ્ટલમીદ - બવ્વળિંચિનયટ્લુ  
@@ -7428,23 +7428,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ સ્વામિ ની ભક્તવરુલુ દુ - ર્જનુલતોડ  
 જ૆લિમિ જેસિનય ટ્લૈન - જેટુ વચ્ચુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 095  
-સી૤ દનુજસંહાર ❘ ચક્ર - ધર | નીકુ દંડંબુ  
+સી૤ દનુજસંહાર ❘ ચક્ર - ધર ｜ નીકુ દંડંબુ  
 લિંદિરાધિપ ❘ નીકુ - વંદનંબુ  
 પતિતપાવન ❘ નીકુ - બહુનમસ્કારમુલ્  
 નીરજાતદળાક્ષ ❘ - નીકુ શરણુ  
-વાસવાર્ચિત ❘ મેઘ - વર્ણ | નીકુ શુભંબુ  
+વાસવાર્ચિત ❘ મેઘ - વર્ણ ｜ નીકુ શુભંબુ  
 મંદરધર ❘ નીકુ - મંગળંબુ  
-કંબુકંધર ❘ શાર્જ્ગ - કર | નીકુ ભદ્રંબુ  
+કંબુકંધર ❘ શાર્જ્ગ - કર ｜ નીકુ ભદ્રંબુ  
 દીનરક્ષક ❘ નીકુ - દિગ્વિજયમુ  
 
 તે૤ સકલવૈભવમુલુ નીકુ - સાર્વભૌમ ❘  
 નિત્યકલ્યાણમુલુ નગુ - નીકુ ન૆પુડુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 096  
 સી૤ મત્સ્યાવતાર મૈ - મડુગુલોપલ જ૊ચ્ચિ  
@@ -7458,8 +7458,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ યુંદુ રરવિંદનયન ❘ ની - યુનિકિ દ૆લિયુ  
 વારલકુ વેગ મોક્ષંબુ - વચ્ચુ નનઘ ❘  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 097  
 સી૤ કૂર્માવતારમૈ - કુધરંબુક્રિંદનુ  
@@ -7472,9 +7472,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 વર્તિ ન઱ંપવા - વૈર મુડિગિ?  
 
 તે૤ યિટ્ટિ પનુ લ૆લ્લ જેયગા - ન૆વરિકેનિ  
-તગુન૆ નરસિંહ ❘ નીકિદિ - દગુનુ ગાક |  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+તગુન૆ નરસિંહ ❘ નીકિદિ - દગુનુ ગાક ｜  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 098  
 સી૤ લક્ષ્મીશ ❘ નીદિવ્ય - લક્ષણગુણમુલ  
@@ -7488,8 +7488,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નમ્મિયુન્નાનુ નીપાદ - નળિનભક્તિ  
 વેગ દયચેસિ રક્ષિંપુ - વેદવિદ્ય ❘  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 099  
 સી૤ અમરેંદ્રવિનુત ❘ નિ - ન્નનુસરિંચિનવારુ  
@@ -7503,8 +7503,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નનુચુ બલુમા઱ુ વેડ૆દ - નબ્જનાભ ❘  
 નાકુ બ્રત્યક્ષ મગુમુ નિન્ - નમ્મિનાનુ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 100  
 સી૤ શેષપ્પ યનુ કવિ - ચ૆પ્પિન પદ્યમુલ્  
@@ -7518,27 +7518,27 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 તે૤ નિદ્દિ પુણ્યાકરં બનિ - ય૆પુડુ જનુલુ  
 ગષટ મ૆ન્નક પઠિયિંપ - ગલુગુ મુક્તિ૤  
-ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ |  
-દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર |  
+ભૂષણવિકાસ ❘ શ્રીધર્મ - પુરનિવાસ ｜  
+દુષ્ટસંહાર ❘ નરસિંહ - દુરિતદૂર ｜  
 
 ## Hindi
 
 नारसिंह शतकम्  
 
 001  
-सी। श्रीमनोहर ❘ सुरा - र्चित सिंधुगंभीर |  
-भक्तवत्सल ❘ कोटि - भानुतेज |  
-कंजनेत्र ❘ हिरण्य - कश्यपांतक | शूर |  
-साधुरक्षण ❘ शंख - चक्रहस्त |  
-प्रह्लाद वरद ❘ पा - पध्वंस | सर्वेश |  
-क्षीरसागरशायि ❘ - कृष्णवर्ण |  
-पक्षिवाहन ❘ नील - भ्रमरकुंतलजाल |  
+सी। श्रीमनोहर ❘ सुरा - र्चित सिंधुगंभीर ｜  
+भक्तवत्सल ❘ कोटि - भानुतेज ｜  
+कंजनेत्र ❘ हिरण्य - कश्यपांतक ｜ शूर ｜  
+साधुरक्षण ❘ शंख - चक्रहस्त ｜  
+प्रह्लाद वरद ❘ पा - पध्वंस ｜ सर्वेश ｜  
+क्षीरसागरशायि ❘ - कृष्णवर्ण ｜  
+पक्षिवाहन ❘ नील - भ्रमरकुंतलजाल ｜  
 पल्लवारुणपाद - पद्मयुगल ❘  
 
 ते। चारुश्रीचंदनागरु - चर्चितांग ❘  
-कुंदकुट्मलदंत ❘ वै - कुंठधाम |  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+कुंदकुट्मलदंत ❘ वै - कुंठधाम ｜  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 002  
 सी। पद्मलोचन ❘ सीस - पद्यमुल् नी मीद  
@@ -7552,8 +7552,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। दप्पुगलिगिन सद्भक्ति - तक्कुवौनॆ  
 चॆऱकुनकु वंकपोयिन - चॆडुनॆ तीपु?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 003  
 सी। नरसिंह ❘ नी दिव्य - नाममंत्रमुचेत  
@@ -7567,8 +7567,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। भलिर ❘ ने नी महामंत्र - बलमुचेत  
 दिव्य वैकुंठ पदवि सा - धिंपवच्चु  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 004  
 सी। आदिनारायणा ❘ - यनुचु नालुकतोड  
@@ -7582,8 +7582,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। परम सात्विकुलैन नी - भक्तवरुल  
 दासुलकु दासुडनु जुमी - धात्रिलोन  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 005  
 सी। ऐश्वर्यमुलकु नि - न्ननुसरिंपगलेदु  
@@ -7597,8 +7597,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नेनु गोरिन दॊक्कटे - नीलवर्ण  
 चय्यननु मोक्षमिच्चिन - जालु नाकु  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 006  
 सी। मंदुंडननि नन्नु - निंद चेसिननेमि?  
@@ -7612,8 +7612,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। कल्पवृक्षंबुवलॆ नीवु - गल्ग निंक  
 ब्रजल लक्ष्यंबु नाकेल? - पद्मनाभ ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 007  
 सी। चित्तशुद्धिग नीकु - सेवजेसॆदगानि  
@@ -7627,8 +7627,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। पारमार्थिकमुनकु ने बाटुपडिति  
 गीर्तिकि नपेक्षपडलेदु - कृष्णवर्ण ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 008  
 सी। श्रवण रंध्रमुल नी - सत्कथल् पॊगडंग  
@@ -7642,8 +7642,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। वसुधलोनॆल्ल व्यर्धुंडु - वाडॆ यगुनु  
 मऱियु जॆडुगाक यॆप्पुडु - ममतनॊंदि।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 009  
 सी। गौतमीस्नानान - गडतेऱुद मटन्न  
@@ -7657,8 +7657,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। कष्टमुलकोर्व नाचेत - गादु निन्नु  
 स्मरणचेसॆद ना यधा - शक्ति कॊलदि।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 010  
 सी। अर्थिवांड्रकु नीक - हानि जेयुट कंटॆ  
@@ -7672,8 +7672,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। जलजदलनेत्र नी भक्त - जनुलतोडि  
 जगडमाडॆडु पनिकंटॆ - जावु मेलु  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 011  
 सी। गार्दभंबुन केल - कस्तूरि तिलकंबु?  
@@ -7687,8 +7687,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। द्रोहचिंतन जेसॆडि - दुर्जनुलकु  
 मधुरमैनट्टि नीनाम - मंत्रमेल?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 012  
 सी। पसरंबु वंजैन - बसुलकापरि तप्पु  
@@ -7702,8 +7702,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। इट्टि तप्पुलॆऱुंगक - यिच्चवच्चि  
 नटुल मॆलगुदु रिप्पु डी - यवनि जनुलु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 013  
 सी। कोतिकि जलतारु - कुल्लायि येटिकि?  
@@ -7717,8 +7717,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। माट निलुकड कुंकरि - मोटु केल?  
 चॆविटिवानिकि सत्कथ - श्रवण मेल?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 014  
 सी। मान्यंबुलीय स - मर्धुडॊक्कडु लेडु  
@@ -7732,8 +7732,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। यिट्टि दुष्टुल कधिकार - मिच्चिनट्टि  
 प्रभुवु तप्पु लटंचुनु - बलुकवलॆनु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 015  
 सी। तल्लिगर्भमुनुंडि - धनमु ते डॆव्वडु  
@@ -7747,8 +7747,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। तुदकु दॊंगल कित्तुरो - दॊरल कवुनॊ  
 तेनॆ जुंटीग लिय्यवा - तॆरुवरुलकु?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 016  
 सी। लोकमं दॆवडैन - लोभिमानवु डुन्न  
@@ -7762,8 +7762,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। श्रीरमानाथ ❘ यिटुवंटि - क्रूरुनकुनु  
 भिक्षुकुल शत्रुवनि - पेरु पॆट्टवच्चु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 017  
 सी। तनुवुलो ब्राणमुल् = तरलिपॊय्यॆडिवेल  
@@ -7777,8 +7777,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। कमलनाभ नी महिमलु - गानलेनि  
 तुच्छुलकु मुक्तिदॊरकुट - दुर्लभंबु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 018  
 सी। नीलमेघश्याम ❘ - नीवॆ तंड्रिवि माकु  
@@ -7792,8 +7792,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। तोयजाताक्ष नी पाद - तुलसिदलमु  
 रोगमुल कौषधमु ब्रह्म - रुद्रविनुत।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 019  
 सी। ब्रतिकिनन्नाल्लु नी - भजन तप्पनु गानि  
@@ -7807,8 +7807,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नाटि किप्पुडॆ चेतु नी - नामभजन  
 तलचॆदनु, जॆवि निडवय्य ❘ - धैर्यमुगनु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 020  
 सी। पांचभौतिकमु दु - र्बलमैन कायं बि  
@@ -7822,8 +7822,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। मरणमे निश्चयमु बुद्धि - मंतुडैन  
 देहमुन्नंतलो मिम्मु - दॆलियवलयु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 021  
 सी। तल्लिदंड्रुलु भार्य - तनयु लाप्तुलु बाव  
@@ -7837,8 +7837,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। चुट्टमुलमीदि भ्रमदीसि - चूर जॆक्कि  
 संततमु मिम्मु नम्मुट - सार्थकंबु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 022  
 सी। इभराजवरद ❘ नि - न्नॆंत बिल्चिनगानि  
@@ -7852,8 +7852,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। मोक्षदायक ❘ यिटुवंटि - मूर्खजनुनि  
 कष्टपॆट्टिन नीकेमि - कडुपुनिंडु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 023  
 सी। नीमीद कीर्तनल् - नित्यगानमु जेसि  
@@ -7867,8 +7867,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। साधुडनु मूर्खमति मनु - ष्याधमुडनु  
 हीनुडनु जुम्मि नीवु - न न्नेलुकॊनुमु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 024  
 सी। अतिशयंबुग गल्ल - लाडनेर्चितिगानि  
@@ -7882,8 +7882,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। बंकजाताक्ष ❘ ने नति - पातकुडनु  
 दप्पुलन्नियु क्षमियिंप - दंड्रि वीवॆ ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 025  
 सी। उर्विलो नायुष्य - मुन्न पर्यंतंबु  
@@ -7897,8 +7897,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। दन्नु विडिपिंप वच्चॆडि - धन्यु डेडि  
 मुंदु नीदासुडै युन्न - मुक्ति गलुगु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 026  
 सी। अधिक विद्यावंतु - लप्रयोजकुलैरि  
@@ -7912,8 +7912,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। पक्षिवाहन ❘ मावंटि - भिक्षुकुलकु  
 शक्तिलेदायॆ निक नीवॆ - चाटु माकु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 027  
 सी। भुजबलंबुन बॆद्द - पुलुल जंपगवच्चु  
@@ -7927,8 +7927,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। बुडमिलो दुष्टुलकु ज्ञान - बोध तॆलिपि  
 सज्जनुल जेयले डॆंत - चतुरुदैन।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 028  
 सी। अवनिलोगल यात्र - लन्नि चेयगवच्चु  
@@ -7942,8 +7942,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। जित्त मन्यस्थलंबुन - जेरकुंड  
 नी पदांभोजमुलयंदु - निलपरादु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 029  
 सी। कर्णयुग्ममुन नी - कथलु सोकिनजालु  
@@ -7957,8 +7957,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। पूनि निनु गॊल्चुटे सर्व - भूषणंबु  
 लितर भूषणमुल निच्च - गिंपनेल।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 030  
 सी। भुवनरक्षक ❘ निन्नु - बॊगडनेरनि नोरु  
@@ -7972,8 +7972,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। पद्मलोचन नीमीद - भक्तिलेनि  
 मानवुडु रॆंडुपादाल - महिषमय्य।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 031  
 सी। अतिविद्यनेर्चुट - अन्नवस्त्रमुलके  
@@ -7987,8 +7987,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। यितर कामंबु गोरक - सततमुगनु  
 भक्ति नीयंदु निलुपुट - मुक्ति कॊऱकॆ  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 032  
 सी। धरणिलो वेयेंड्लु - तनुवु निल्वगबोदु  
@@ -8002,8 +8002,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। वॆर्रि कुक्कल भ्रमलन्नि - विडिचि निन्नु  
 भजन जेसॆडिवारिकि - बरमसुखमु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 033  
 सी। नरसिंह ❘ नाकु दु - र्णयमुले मॆंडायॆ  
@@ -8017,8 +8017,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। अब्जदलनेत्र ❘ नातंड्रि - वैन फलमु  
 नेरमुलु गाचि रक्षिंपु - नीवॆ दिक्कु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 034  
 सी। धीरत बरुल निं - दिंप नेर्चिति गानि  
@@ -8032,23 +8032,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नवनिलो नेनु जन्मिंचि - नंदु केमि  
 सार्थकमु गानरादायॆ - स्वल्पमैन।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 035  
 सी। अंत्यकालमुनंदु - नायासमुन निन्नु  
 दलतुनो तलपनो - तलतु निपुडॆ  
-नरसिंह ❘ नरसिंह | - नरसिंह | लक्ष्मीश |  
-दानवांतक ❘ कोटि - भानुतेज |  
-गोविंद ❘ गोविंद | - गोविंद | सर्वेश |  
-पन्नगाधिपशायि ❘ - पद्मनाभ |  
-मधुवैरि ❘ मधुवैरि | - मधुवैरि | लोकेश |  
-नीलमेघशरीर ❘ निगमविनुत |  
+नरसिंह ❘ नरसिंह ｜ - नरसिंह ｜ लक्ष्मीश ｜  
+दानवांतक ❘ कोटि - भानुतेज ｜  
+गोविंद ❘ गोविंद ｜ - गोविंद ｜ सर्वेश ｜  
+पन्नगाधिपशायि ❘ - पद्मनाभ ｜  
+मधुवैरि ❘ मधुवैरि ｜ - मधुवैरि ｜ लोकेश ｜  
+नीलमेघशरीर ❘ निगमविनुत ｜  
 
 ते। ई विधंबुन नीनाम - मिष्टमुगनु  
 भजनसेयुचु नुंदु ना - भावमंदु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 036  
 सी। आयुरारोग्य पु - त्रार्थ संपदलन्नि  
@@ -8062,8 +8062,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। अवनिलो मानवुल कन्नि - यासलिच्चि  
 व्यर्थुलनु जेसि तॆलिपॆडि - वाड वीवॆ।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 037  
 सी। काय मॆंत भयान - गापाडिननुगानि  
@@ -8077,8 +8077,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। जीवुनि प्रयाणकालंबु - सिद्धमैन  
 निलुचुना देह मिंदॊक्क - निमिषमैन?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 038  
 सी। जंदॆ मिंपुग वेसि - संध्य वार्चिन नेमि  
@@ -8092,8 +8092,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। ऎन्नि लौकिकवेषालु - गट्टुकॊनिन  
 गुरुनि जॆंदक सन्मुक्ति - दॊरकबोदु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 039  
 सी। नरसिंह ❘ ने निन्नु - नम्मिनंदुकु जाल  
@@ -8107,8 +8107,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। ऎचट नन्नुंचिननुगानि - यॆपुडु निन्नु  
 मऱचि पोकुंड नीनाम - स्मरणनॊसगु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 040  
 सी। देह मुन्नवऱकु - मोहसागरमंदु  
@@ -8122,8 +8122,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। मत्तुलैनट्टि दुर्जाति - मनुजुलॆल्ल  
 निन्नु गनलेरु मॊदटिके - नीरजाक्ष।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 041  
 सी। इललोन ने जन्म - मॆत्तिनप्पटिनुंडि  
@@ -8137,8 +8137,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। सूर्यशशिनेत्र ❘ नीचाटु - जॊच्चि नानु  
 कलुषमुलु द्रुंचि नन्नेलु - कष्टमनक।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 042  
 सी। तापसार्चित ❘ नेनु - पापकर्मुडनंचु  
@@ -8152,8 +8152,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। दंड्रिवै नीवु परपीड - दगुलजेय  
 वासिगल पेरु कपकीर्ति - वच्चुनय्य।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 043  
 सी। धरणिलोपल नेनु - तल्लिगर्भमुनंदु  
@@ -8167,8 +8167,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नलिनदलनेत्र ❘ निन्नु ने - नम्मिनानु  
 जेरि रक्षिंपवे नन्नु - शीघ्रमुगनु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 044  
 सी। अडविपक्षुल कॆव्व - डाहार मिच्चॆनु  
@@ -8182,8 +8182,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। जीवकोट्लनु बोषिंप - नीवॆकानि  
 वेऱॆ यॊक दात लेडय्य - वॆदकिचूड।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 045  
 सी। दनुजारि ❘ नावंटि - दासजालमु नीकु  
@@ -8197,8 +8197,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। भूजनुललोन ने नप्र - योजकुडनु  
 गनुक नी सत्कटाक्षंबु - गलुगजेयु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 046  
 सी। कमललोचन ❘ नन्नु - गन्नतंड्रिविगान  
@@ -8212,8 +8212,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। कॊसकु नी शंख चक्रमुल् - कुदुवबॆट्टि  
 ग्रासमु नॊसंगि पोषिंचु - कपटमुडिगि।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 047  
 सी। कुवलयश्याम ❘ नी - कॊलुवु चेसिन नाकु  
@@ -8227,8 +8227,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नेडु करुणिंपकुंटिवा - निश्चयमुग  
 दॆगबडिति चूडु नीतोड - जगडमुनकु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 048  
 सी। हरि ❘ नीकु बर्यंक - मैन शेषुडु चाल  
@@ -8242,8 +8242,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। स्वस्थमुग नीकु ग्रासमु - जरुगुचुंडु  
 गासु नी चेति दॊकटैन - गादु व्ययमु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 049  
 सी। पुंडरीकाक्ष ❘ ना - रॆंडु कन्नुल निंड  
@@ -8257,8 +8257,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नेमिटिकि विस्तरिंचॆ नी - किंत कीर्ति  
 द्रोहिनैननु ना कीवु - दॊरकरादॆ?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 050  
 सी। पच्चि चर्मपु दित्ति - पसलेदु देहंबु  
@@ -8272,8 +8272,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। बॊंदिलो नुंडु प्राणमुल् - पोयिनंत  
 गाटिके गानि कॊऱगादु - गव्वकैन।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 051  
 सी। पलुरोगमुलकु नी - पादतीरमॆ कानि  
@@ -8287,8 +8287,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। दॊरिकितिवि नाकु दंडि वै - द्युडवु नीवु  
 वेयिकष्टालु वच्चिनन् - वॆऱवनय्य।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 052  
 सी। कूटिकोसरमु ने - गॊऱगानि जनुलचे  
@@ -8302,8 +8302,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। निटुल संसारवारिधि - नीदलेक  
 वेयिविधमुल निन्नु ने - वेडुकॊंटि।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 053  
 सी। साधु सज्जनुलतो - जगडमाडिन गीडु  
@@ -8317,8 +8317,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। दुष्टकार्यमु लॊनरिंचु - दुर्जनुलकु  
 घनतरंबैन नरकंबु - गट्टिमुल्लॆ।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 054  
 सी। परुलद्रव्यमुमीद - भ्रांति नॊंदिनवाडु  
@@ -8332,8 +8332,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। प्रजल जंतुल हिंसिंचु - पातकुंडु  
 कालकिंकर गदलचे - गष्टमॊंदु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 055  
 सी। नरसिंह ❘ ना तंड्रि - नन्नेलु नन्नेलु  
@@ -8347,8 +8347,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। सुरविनुत ❘ नेनु नीचाटु - जॊच्चिनानु  
 ना मॊऱालिंचि कडतेर्चु - नागशयन ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 056  
 सी। नी भक्तुलनु गनुल् - निंड जूचियु रॆंडु  
@@ -8362,8 +8362,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। परमभक्तुंडु धन्युंडु - भानुतेज ❘  
 वानि गनुगॊन्न बुण्यंबु - वसुधलोन।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 057  
 सी। पक्षिवाहन ❘ नेनु - ब्रतिकिनन्निदिनालु  
@@ -8377,8 +8377,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। कॊसकु नी सन्निधिकि बिल्चु - कॊनियु नीकु  
 सेवकुनि जेसिकॊनवय्य - शेषशयन ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 058  
 सी। निगमादिशास्त्रमुल् - नेर्चिन द्विजुडैन  
@@ -8392,8 +8392,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। गर्वमुन गष्टपडि निन्नु - गानकुन्न  
 मोक्षसाम्राज्य मॊंदडु - मोहनांग ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 059  
 सी। पंजरंबुन गाकि - बट्टि युंचिन लॆस्स  
@@ -8407,8 +8407,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। कुजनुलनु दॆच्चि नी सेव - कॊऱकु बॆट्ट  
 वांछतो जेतुरे भक्त - वरुलवलॆनु?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 060  
 सी। नीकु दासुड नंटि - निन्नु नम्मुकयुंटि  
@@ -8422,8 +8422,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। शीघ्रमुग गोर्कु लीडेर्चु - चिंत दीर्चु  
 निरतमुग नन्नु बोषिंचु - नॆनरु नुंचु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 061  
 सी। विद्य नेर्चिति नंचु - विर्रवीगगलेदु  
@@ -8437,8 +8437,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नलुगुरिकि मॆप्पुगानैन - नडुवलेदु  
 नलिनदलनेत्र ❘ निन्नु ने - नम्मिनानु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 062  
 सी। अतिलोभुलनु भिक्ष - मडुगबोवुट रोत  
@@ -8450,10 +8450,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 आदायमुलु लेक - यप्पुदीयुट रोत  
 जार चोरुल गूडि - चनुट रोत  
 
-ते। यादिलक्ष्मीश ❘ नीबंट - नैतिनय्य |  
+ते। यादिलक्ष्मीश ❘ नीबंट - नैतिनय्य ｜  
 यिंक नॆडबासि जन्मंबु - लॆत्त रोत।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 063  
 सी। वॆर्रिवानिकि नेल - वेदाक्षरंबुलु?  
@@ -8467,8 +8467,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। क्रूरजनुलकु नीमीद - गोरि केल?  
 द्रोहि पापात्मुनकु दया - दुःख मेल?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 064  
 सी। ना तंड्रि नादात - नायिष्टदैवमा  
@@ -8482,8 +8482,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। दंडिदॊर वंचु नीवॆंट - दगिलिनानु  
 नेडु प्रत्यक्षमै नन्नु - निर्वहिंपु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 065  
 सी। वेमाऱु नीकथल् - विनुचु नुंडॆडिवाडु  
@@ -8497,8 +8497,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। निन्नु नम्मिन भक्तुंडु - निश्चयमुग  
 गोरि चिल्लर वेल्पुल - गॊल्वबोडु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 066  
 सी। ने नॆंत वेडिन - नी केल दयरादु?  
@@ -8512,8 +8512,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। दात दैवंबु तल्लियु - दंड्रि वीवॆ  
 नम्मियुन्नानु नीपाद - नलिनमुलनु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 067  
 सी। वेदमुल् चदिवॆडु - विप्रवर्युंडैन  
@@ -8527,8 +8527,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। निन्नु गॊनियाडुचुंडॆना - निश्चयमुग  
 वाडु मोक्षाधिकारि यी - वसुधलोन।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 068  
 सी। सकलविद्यलु नेर्चि - सभ जयिंपगवच्चु  
@@ -8542,8 +8542,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। तामरसगर्भ हर पुरं - दरुलकैन  
 निन्नु वर्णिंप दरमौनॆ - नीरजाक्ष ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 069  
 सी। नरसिंह ❘ नीवंटि - दॊरनु संपादिंचि  
@@ -8555,10 +8555,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 पॆट्टजालक येल - भिक्षमॆत्तिंचॆदु  
 नन्नु बीदनु जेसि - ना वदेमि?  
 
-ते। अमल ❘ कमलाक्ष | ने निट्लु - श्रमपडंग  
+ते। अमल ❘ कमलाक्ष ｜ ने निट्लु - श्रमपडंग  
 गन्नुलकु बंडुवै नीकु - गानबडुनॆ?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 070  
 सी। वनरुहनाभ ❘ नी - वंक जेरिति नेनु  
@@ -8572,8 +8572,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। गोपगाडनु नीवु ना - गुणमु तॆलिसि  
 यिप्पुडे नन्नु रक्षिंचि - येलुकॊम्मु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 071  
 सी। प्रह्लादु डेपाटि - पैडि कानुक लिच्चॆ?  
@@ -8587,8 +8587,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नीकु वीरंद ऱयिनट्लु - नेनु गान?  
 यॆंदु कनि नन्नु रक्षिंप - विंदुवदन ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 072  
 सी। वांछतो बलिचक्र - वर्तिदग्गर जेरि  
@@ -8602,8 +8602,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। भक्तुलकु नीवु पॆट्टुट - भाग्यमौनु  
 वारि काशिंचितिवि तिंडि - वाड वगुचु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 073  
 सी। स्तंभमं दुदयिंचि - दानवेंद्रुनि द्रुंचि  
@@ -8617,8 +8617,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। वारिवलॆ नन्नु बोषिंप - वशमुगादॆ?  
 यंत वलपक्ष मेल श्री - कांत ❘ नीकु?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 074  
 सी। व्यासु डे कुलमंदु - वासिगा जन्मिंचॆ?  
@@ -8632,8 +8632,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। ने कुलंबुन वी रिंद - ऱॆच्चिनारु?  
 नीकृपापात्रुलकु जाति - नीतु लेल?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 075  
 सी। वसुधास्थलंबुन - वर्णहीनुडु गानि  
@@ -8647,8 +8647,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। प्रतिदिनमु नीदु भजनचे - बरगुनट्टि  
 वानि के वंक लेदय्य - वच्चु मुक्ति।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 076  
 सी। इभकुंभमुलमीदि - कॆगिरॆडि सिंगंबु  
@@ -8662,8 +8662,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। निलनु नीकीर्तनलु पाड - नेर्चिनतडु  
 परुलकीर्तन बाडुने - यरसि चूड?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 077  
 सी। सर्वेश ❘ नीपाद - सरसिजद्वयमंदु  
@@ -8677,8 +8677,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। प्रेमतो नन्नु बोषिंचि - पॆंचुकॊनुमु  
 घनत कॆक्किंचु नीदास - गणमुलोन।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 078  
 सी। जीमूतवर्ण ❘ नी - मोमुतो सरिराक  
@@ -8692,8 +8692,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। निंदिरादेवि निन्नु मो - हिंचि विडक  
 नीकु बट्टमहिषि यय्यॆ - निश्चयमुग।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 079  
 सी। हरिदासुलनु निंद - लाडकुंडिन जालु  
@@ -8707,8 +8707,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। ऒकरि वर्शाशनमु मुंच - कुन्न जालु  
 बेरुकीर्तिग सत्रमुल् - पॆट्टिनट्लु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 080  
 सी। इहलोकसौख्यमु - लिच्चगिंचॆद मन्न  
@@ -8722,8 +8722,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नम्मरा दय्य ❘ यिदि माय - नाटकंबु  
 जन्म मिक नॊल्ल न न्नेलु - जलजनाभ ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 081  
 सी। वदनंबु नीनाम - भजन गोरुचुनुंडु  
@@ -8737,8 +8737,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। स्वप्नमुन नैन नेवेल - संततमुनु  
 बुद्धि नी पादमुलयंदु - बूनियुंडु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 082  
 सी। पद्माक्ष ❘ ममतचे - बरमु नंदॆद मंचु  
@@ -8752,23 +8752,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नी शरीरालु पडिपोवु - टॆऱुग केमु  
 कामुकुल मैति मिक मिम्मु - गानलेमु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 083  
-सी। गरुडवाहन ❘ दिव्य - कौस्तुभालंकार |  
-रविकोटितेज ❘ सा - रंगवदन |  
-मणिगणान्वित ❘ हेम - मकुटाभरण | चारु  
-मकरकुंडल ❘ लस - न्मंदहास |  
-कांचनांबर ❘ रत्न - कांचिविभूषित |  
-सुरवरार्चित ❘ चंद्र - सूर्यनयन |  
-कमलनाभ ❘ मुकुंद | - गंगाधरस्तुत |  
-राक्षसांतक ❘ नाग - राजशयन |  
+सी। गरुडवाहन ❘ दिव्य - कौस्तुभालंकार ｜  
+रविकोटितेज ❘ सा - रंगवदन ｜  
+मणिगणान्वित ❘ हेम - मकुटाभरण ｜ चारु  
+मकरकुंडल ❘ लस - न्मंदहास ｜  
+कांचनांबर ❘ रत्न - कांचिविभूषित ｜  
+सुरवरार्चित ❘ चंद्र - सूर्यनयन ｜  
+कमलनाभ ❘ मुकुंद ｜ - गंगाधरस्तुत ｜  
+राक्षसांतक ❘ नाग - राजशयन ｜  
 
-ते। पतितपावन ❘ लक्षीश | - ब्रह्मजनक |  
-भक्तवत्सल ❘ सर्वेश | - परमपुरुष |  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+ते। पतितपावन ❘ लक्षीश ｜ - ब्रह्मजनक ｜  
+भक्तवत्सल ❘ सर्वेश ｜ - परमपुरुष ｜  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 084  
 सी। पलुमाऱु दशरूप - मुलु दरिंचिति वेल?  
@@ -8782,8 +8782,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। वनजलोचन ❘ यिटुवंटि - वैभवमुलु  
 सॊगसुगा नीकु दोचॆनो - सुंदरांग?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 085  
 सी। तिरुपति स्थलमंदु - दिन्नगा ने नुन्न  
@@ -8797,8 +8797,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। यॆंदु बोवक नेनु नी - मंदिरमुन  
 निलिचितिनि नीकु नामीद - नॆनरु लेदु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 086  
 सी। तार्क्ष्यवाहन ❘ नीवु - दंडिदात वटंचु  
@@ -8812,8 +8812,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नीकु नाविद्य हर्षंबु - गाक युन्न  
 तेपतेपकु वेषमुल् - देनु सुम्मि।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 087  
 सी। अमरेंद्रविनुत ❘ ने - नतिदुरात्मुड नंचु  
@@ -8827,23 +8827,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नडुपुचुनु निन्नु गॊलिचॆद - नम्मि बुद्धि  
 नी प्रपंचंबु गलुगु ना - किंतॆ चालु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 088  
-सी। भुवनेश ❘ गोविंद | - रविकोटिसंकाश |  
-पक्षिवाहन ❘ भक्त - पारिजात |  
+सी। भुवनेश ❘ गोविंद ｜ - रविकोटिसंकाश ｜  
+पक्षिवाहन ❘ भक्त - पारिजात ｜  
 यंभोजभव रुद्र - जंभारिसन्नुत ❘  
-सामगानविलोल ❘ - सारसाक्ष |  
-वनधिगंभीर ❘ श्री - वत्सकौस्तुभवक्ष |  
+सामगानविलोल ❘ - सारसाक्ष ｜  
+वनधिगंभीर ❘ श्री - वत्सकौस्तुभवक्ष ｜  
 शंखचक्रगदासि - शार्ज्ञहस्त ❘  
-दीनरक्षक ❘ वासु - देव | दैत्यविनाश |  
-नारदार्चित ❘ दिव्य - नागशयन |  
+दीनरक्षक ❘ वासु - देव ｜ दैत्यविनाश ｜  
+नारदार्चित ❘ दिव्य - नागशयन ｜  
 
 ते। चारु नवरत्नकुंडल - श्रवणयुगल ❘  
-विबुधवंदित पादब्ज ❘ - विश्वरूप |  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+विबुधवंदित पादब्ज ❘ - विश्वरूप ｜  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 089  
 सी। नागेंद्रशयन ❘ नी - नाममाधुर्यंबु  
@@ -8857,8 +8857,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। वीरि कॆऱुकगु नीकथल् - विंत लॆल्ल  
 नरुल कॆऱु कन्न नॆवरैन - नव्विपोरॆ?  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 090  
 सी। अर्थु लेमैन नि - न्नडुगवच्चॆद रंचु  
@@ -8871,9 +8871,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 मंचि योधुल काव - लुंचिनावु  
 
 ते। लावु गलवाड वैति वे - लागु नेनु  
-निन्नु जूतुनु नातंड्रि ❘ - नीरजाक्ष |  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+निन्नु जूतुनु नातंड्रि ❘ - नीरजाक्ष ｜  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 091  
 सी। नीकथल् चॆवुललो - सोकुट मॊदलुगा  
@@ -8882,13 +8882,13 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 मग्नुडै देहंबु - मऱचुवाडु  
 फालंबुतो नीदु - पादयुग्ममुनकु  
 ब्रेमतो दंड म - र्पिंचुवाडु  
-हा पुंडरीकाक्ष ❘ - हा राम | हरि | यंचु  
+हा पुंडरीकाक्ष ❘ - हा राम ｜ हरि ｜ यंचु  
 वेड्कतो गेकलु - वेयुवाडु  
 
 ते। चित्तकमलंबुननु निन्नु - जेर्चुवाडु  
 नीदुलोकंबुनं दुंडु - नीरजाक्ष ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 092  
 सी। निगमगोचर ❘ नेनु - नीकु मॆप्पगुनट्लु  
@@ -8902,8 +8902,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नन्नि गलवाड वखिल लो - काधिपतिवि ❘  
 नीकु सॊम्मुलु पॆट्ट ने - नॆंतवाड ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 093  
 सी। नवसरोजदलाक्ष ❘ - नन्नु बोषिंचॆडु  
@@ -8917,8 +8917,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। बरमसंतोष मायॆ ना - प्राणमुलकु  
 नी^^ऋणमु दीर्चुकॊन नेर - नीरजाक्ष ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 094  
 सी। फणुलपुट्टलमीद - बव्वलिंचिनयट्लु  
@@ -8932,23 +8932,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। स्वामि नी भक्तवरुलु दु - र्जनुलतोड  
 जॆलिमि जेसिनय ट्लैन - जेटु वच्चु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 095  
-सी। दनुजसंहार ❘ चक्र - धर | नीकु दंडंबु  
+सी। दनुजसंहार ❘ चक्र - धर ｜ नीकु दंडंबु  
 लिंदिराधिप ❘ नीकु - वंदनंबु  
 पतितपावन ❘ नीकु - बहुनमस्कारमुल्  
 नीरजातदलाक्ष ❘ - नीकु शरणु  
-वासवार्चित ❘ मेघ - वर्ण | नीकु शुभंबु  
+वासवार्चित ❘ मेघ - वर्ण ｜ नीकु शुभंबु  
 मंदरधर ❘ नीकु - मंगलंबु  
-कंबुकंधर ❘ शार्ज्ग - कर | नीकु भद्रंबु  
+कंबुकंधर ❘ शार्ज्ग - कर ｜ नीकु भद्रंबु  
 दीनरक्षक ❘ नीकु - दिग्विजयमु  
 
 ते। सकलवैभवमुलु नीकु - सार्वभौम ❘  
 नित्यकल्याणमुलु नगु - नीकु नॆपुडु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 096  
 सी। मत्स्यावतार मै - मडुगुलोपल जॊच्चि  
@@ -8962,8 +8962,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। युंदु ररविंदनयन ❘ नी - युनिकि दॆलियु  
 वारलकु वेग मोक्षंबु - वच्चु ननघ ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 097  
 सी। कूर्मावतारमै - कुधरंबुक्रिंदनु  
@@ -8976,9 +8976,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 वर्ति नऱंपवा - वैर मुडिगि?  
 
 ते। यिट्टि पनु लॆल्ल जेयगा - नॆवरिकेनि  
-तगुनॆ नरसिंह ❘ नीकिदि - दगुनु गाक |  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+तगुनॆ नरसिंह ❘ नीकिदि - दगुनु गाक ｜  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 098  
 सी। लक्ष्मीश ❘ नीदिव्य - लक्षणगुणमुल  
@@ -8992,8 +8992,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। नम्मियुन्नानु नीपाद - नलिनभक्ति  
 वेग दयचेसि रक्षिंपु - वेदविद्य ❘  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 099  
 सी। अमरेंद्रविनुत ❘ नि - न्ननुसरिंचिनवारु  
@@ -9007,8 +9007,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। ननुचु बलुमाऱु वेडॆद - नब्जनाभ ❘  
 नाकु ब्रत्यक्ष मगुमु निन् - नम्मिनानु।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 100  
 सी। शेषप्प यनु कवि - चॆप्पिन पद्यमुल्  
@@ -9022,27 +9022,27 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ते। निद्दि पुण्याकरं बनि - यॆपुडु जनुलु  
 गषट मॆन्नक पठियिंप - गलुगु मुक्ति।  
-भूषणविकास ❘ श्रीधर्म - पुरनिवास |  
-दुष्टसंहार ❘ नरसिंह - दुरितदूर |  
+भूषणविकास ❘ श्रीधर्म - पुरनिवास ｜  
+दुष्टसंहार ❘ नरसिंह - दुरितदूर ｜  
 
 ## Kannada
 
 ನಾರಸಿಂಹ ಶತಕಮ್  
 
 001  
-ಸೀ೤ ಶ್ರೀಮನೋಹರ ❘ ಸುರಾ - ರ್ಚಿತ ಸಿಂಧುಗಂಭೀರ |  
-ಭಕ್ತವತ್ಸಲ ❘ ಕೋಟಿ - ಭಾನುತೇಜ |  
-ಕಂಜನೇತ್ರ ❘ ಹಿರಣ್ಯ - ಕಶ್ಯಪಾಂತಕ | ಶೂರ |  
-ಸಾಧುರಕ್ಷಣ ❘ ಶಂಖ - ಚಕ್ರಹಸ್ತ |  
-ಪ್ರಹ್ಲಾದ ವರದ ❘ ಪಾ - ಪಧ್ವಂಸ | ಸರ್ವೇಶ |  
-ಕ್ಷೀರಸಾಗರಶಾಯಿ ❘ - ಕೃಷ್ಣವರ್ಣ |  
-ಪಕ್ಷಿವಾಹನ ❘ ನೀಲ - ಭ್ರಮರಕುಂತಲಜಾಲ |  
+ಸೀ೤ ಶ್ರೀಮನೋಹರ ❘ ಸುರಾ - ರ್ಚಿತ ಸಿಂಧುಗಂಭೀರ ｜  
+ಭಕ್ತವತ್ಸಲ ❘ ಕೋಟಿ - ಭಾನುತೇಜ ｜  
+ಕಂಜನೇತ್ರ ❘ ಹಿರಣ್ಯ - ಕಶ್ಯಪಾಂತಕ ｜ ಶೂರ ｜  
+ಸಾಧುರಕ್ಷಣ ❘ ಶಂಖ - ಚಕ್ರಹಸ್ತ ｜  
+ಪ್ರಹ್ಲಾದ ವರದ ❘ ಪಾ - ಪಧ್ವಂಸ ｜ ಸರ್ವೇಶ ｜  
+ಕ್ಷೀರಸಾಗರಶಾಯಿ ❘ - ಕೃಷ್ಣವರ್ಣ ｜  
+ಪಕ್ಷಿವಾಹನ ❘ ನೀಲ - ಭ್ರಮರಕುಂತಲಜಾಲ ｜  
 ಪಲ್ಲವಾರುಣಪಾದ - ಪದ್ಮಯುಗಳ ❘  
 
 ತೇ೤ ಚಾರುಶ್ರೀಚಂದನಾಗರು - ಚರ್ಚಿತಾಂಗ ❘  
-ಕುಂದಕುಟ್ಮಲದಂತ ❘ ವೈ - ಕುಂಠಧಾಮ |  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಕುಂದಕುಟ್ಮಲದಂತ ❘ ವೈ - ಕುಂಠಧಾಮ ｜  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 002  
 ಸೀ೤ ಪದ್ಮಲೋಚನ ❘ ಸೀಸ - ಪದ್ಯಮುಲ್ ನೀ ಮೀದ  
@@ -9056,8 +9056,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ದಪ್ಪುಗಲಿಗಿನ ಸದ್ಭಕ್ತಿ - ತಕ್ಕುವೌನೆ  
 ಚೆಱಕುನಕು ವಂಕಪೋಯಿನ - ಚೆಡುನೆ ತೀಪು?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 003  
 ಸೀ೤ ನರಸಿಂಹ ❘ ನೀ ದಿವ್ಯ - ನಾಮಮಂತ್ರಮುಚೇತ  
@@ -9071,8 +9071,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಭಳಿರ ❘ ನೇ ನೀ ಮಹಾಮಂತ್ರ - ಬಲಮುಚೇತ  
 ದಿವ್ಯ ವೈಕುಂಠ ಪದವಿ ಸಾ - ಧಿಂಪವಚ್ಚು  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 004  
 ಸೀ೤ ಆದಿನಾರಾಯಣಾ ❘ - ಯನುಚು ನಾಲುಕತೋಡ  
@@ -9086,8 +9086,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪರಮ ಸಾತ್ವಿಕುಲೈನ ನೀ - ಭಕ್ತವರುಲ  
 ದಾಸುಲಕು ದಾಸುಡನು ಜುಮೀ - ಧಾತ್ರಿಲೋನ  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 005  
 ಸೀ೤ ಐಶ್ವರ್ಯಮುಲಕು ನಿ - ನ್ನನುಸರಿಂಪಗಲೇದು  
@@ -9101,8 +9101,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನೇನು ಗೋರಿನ ದೊಕ್ಕಟೇ - ನೀಲವರ್ಣ  
 ಚಯ್ಯನನು ಮೋಕ್ಷಮಿಚ್ಚಿನ - ಜಾಲು ನಾಕು  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 006  
 ಸೀ೤ ಮಂದುಂಡನನಿ ನನ್ನು - ನಿಂದ ಚೇಸಿನನೇಮಿ?  
@@ -9116,8 +9116,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಕಲ್ಪವೃಕ್ಷಂಬುವಲೆ ನೀವು - ಗಲ್ಗ ನಿಂಕ  
 ಬ್ರಜಲ ಲಕ್ಷ್ಯಂಬು ನಾಕೇಲ? - ಪದ್ಮನಾಭ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 007  
 ಸೀ೤ ಚಿತ್ತಶುದ್ಧಿಗ ನೀಕು - ಸೇವಜೇಸೆದಗಾನಿ  
@@ -9131,8 +9131,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪಾರಮಾರ್ಥಿಕಮುನಕು ನೇ ಬಾಟುಪಡಿತಿ  
 ಗೀರ್ತಿಕಿ ನಪೇಕ್ಷಪಡಲೇದು - ಕೃಷ್ಣವರ್ಣ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 008  
 ಸೀ೤ ಶ್ರವಣ ರಂಧ್ರಮುಲ ನೀ - ಸತ್ಕಥಲ್ ಪೊಗಡಂಗ  
@@ -9146,8 +9146,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ವಸುಧಲೋನೆಲ್ಲ ವ್ಯರ್ಧುಂಡು - ವಾಡೆ ಯಗುನು  
 ಮಱಿಯು ಜೆಡುಗಾಕ ಯೆಪ್ಪುಡು - ಮಮತನೊಂದಿ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 009  
 ಸೀ೤ ಗೌತಮೀಸ್ನಾನಾನ - ಗಡತೇಱುದ ಮಟನ್ನ  
@@ -9161,8 +9161,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಕಷ್ಟಮುಲಕೋರ್ವ ನಾಚೇತ - ಗಾದು ನಿನ್ನು  
 ಸ್ಮರಣಚೇಸೆದ ನಾ ಯಧಾ - ಶಕ್ತಿ ಕೊಲದಿ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 010  
 ಸೀ೤ ಅರ್ಥಿವಾಂಡ್ರಕು ನೀಕ - ಹಾನಿ ಜೇಯುಟ ಕಂಟೆ  
@@ -9176,8 +9176,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಜಲಜದಳನೇತ್ರ ನೀ ಭಕ್ತ - ಜನುಲತೋಡಿ  
 ಜಗಡಮಾಡೆಡು ಪನಿಕಂಟೆ - ಜಾವು ಮೇಲು  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 011  
 ಸೀ೤ ಗಾರ್ದಭಂಬುನ ಕೇಲ - ಕಸ್ತೂರಿ ತಿಲಕಂಬು?  
@@ -9191,8 +9191,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ದ್ರೋಹಚಿಂತನ ಜೇಸೆಡಿ - ದುರ್ಜನುಲಕು  
 ಮಧುರಮೈನಟ್ಟಿ ನೀನಾಮ - ಮಂತ್ರಮೇಲ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 012  
 ಸೀ೤ ಪಸರಂಬು ವಂಜೈನ - ಬಸುಲಕಾಪರಿ ತಪ್ಪು  
@@ -9206,8 +9206,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಇಟ್ಟಿ ತಪ್ಪುಲೆಱುಂಗಕ - ಯಿಚ್ಚವಚ್ಚಿ  
 ನಟುಲ ಮೆಲಗುದು ರಿಪ್ಪು ಡೀ - ಯವನಿ ಜನುಲು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 013  
 ಸೀ೤ ಕೋತಿಕಿ ಜಲತಾರು - ಕುಳ್ಲಾಯಿ ಯೇಟಿಕಿ?  
@@ -9221,8 +9221,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಮಾಟ ನಿಲುಕಡ ಕುಂಕರಿ - ಮೋಟು ಕೇಲ?  
 ಚೆವಿಟಿವಾನಿಕಿ ಸತ್ಕಥ - ಶ್ರವಣ ಮೇಲ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 014  
 ಸೀ೤ ಮಾನ್ಯಂಬುಲೀಯ ಸ - ಮರ್ಧುಡೊಕ್ಕಡು ಲೇಡು  
@@ -9236,8 +9236,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಯಿಟ್ಟಿ ದುಷ್ಟುಲ ಕಧಿಕಾರ - ಮಿಚ್ಚಿನಟ್ಟಿ  
 ಪ್ರಭುವು ತಪ್ಪು ಲಟಂಚುನು - ಬಲುಕವಲೆನು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 015  
 ಸೀ೤ ತಲ್ಲಿಗರ್ಭಮುನುಂಡಿ - ಧನಮು ತೇ ಡೆವ್ವಡು  
@@ -9251,8 +9251,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ತುದಕು ದೊಂಗಲ ಕಿತ್ತುರೋ - ದೊರಲ ಕವುನೊ  
 ತೇನೆ ಜುಂಟೀಗ ಲಿಯ್ಯವಾ - ತೆರುವರುಲಕು?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 016  
 ಸೀ೤ ಲೋಕಮಂ ದೆವಡೈನ - ಲೋಭಿಮಾನವು ಡುನ್ನ  
@@ -9266,8 +9266,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಶ್ರೀರಮಾನಾಥ ❘ ಯಿಟುವಂಟಿ - ಕ್ರೂರುನಕುನು  
 ಭಿಕ್ಷುಕುಲ ಶತ್ರುವನಿ - ಪೇರು ಪೆಟ್ಟವಚ್ಚು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 017  
 ಸೀ೤ ತನುವುಲೋ ಬ್ರಾಣಮುಲ್ = ತರಳಿಪೊಯ್ಯೆಡಿವೇಳ  
@@ -9281,8 +9281,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಕಮಲನಾಭ ನೀ ಮಹಿಮಲು - ಗಾನಲೇನಿ  
 ತುಚ್ಛುಲಕು ಮುಕ್ತಿದೊರಕುಟ - ದುರ್ಲಭಂಬು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 018  
 ಸೀ೤ ನೀಲಮೇಘಶ್ಯಾಮ ❘ - ನೀವೆ ತಂಡ್ರಿವಿ ಮಾಕು  
@@ -9296,8 +9296,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ತೋಯಜಾತಾಕ್ಷ ನೀ ಪಾದ - ತುಲಸಿದಳಮು  
 ರೋಗಮುಲ ಕೌಷಧಮು ಬ್ರಹ್ಮ - ರುದ್ರವಿನುತ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 019  
 ಸೀ೤ ಬ್ರತಿಕಿನನ್ನಾಳ್ಲು ನೀ - ಭಜನ ತಪ್ಪನು ಗಾನಿ  
@@ -9311,8 +9311,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಾಟಿ ಕಿಪ್ಪುಡೆ ಚೇತು ನೀ - ನಾಮಭಜನ  
 ತಲಚೆದನು, ಜೆವಿ ನಿಡವಯ್ಯ ❘ - ಧೈರ್ಯಮುಗನು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 020  
 ಸೀ೤ ಪಾಂಚಭೌತಿಕಮು ದು - ರ್ಬಲಮೈನ ಕಾಯಂ ಬಿ  
@@ -9326,8 +9326,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಮರಣಮೇ ನಿಶ್ಚಯಮು ಬುದ್ಧಿ - ಮಂತುಡೈನ  
 ದೇಹಮುನ್ನಂತಲೋ ಮಿಮ್ಮು - ದೆಲಿಯವಲಯು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 021  
 ಸೀ೤ ತಲ್ಲಿದಂಡ್ರುಲು ಭಾರ್ಯ - ತನಯು ಲಾಪ್ತುಲು ಬಾವ  
@@ -9341,8 +9341,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಚುಟ್ಟಮುಲಮೀದಿ ಭ್ರಮದೀಸಿ - ಚೂರ ಜೆಕ್ಕಿ  
 ಸಂತತಮು ಮಿಮ್ಮು ನಮ್ಮುಟ - ಸಾರ್ಥಕಂಬು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 022  
 ಸೀ೤ ಇಭರಾಜವರದ ❘ ನಿ - ನ್ನೆಂತ ಬಿಲ್ಚಿನಗಾನಿ  
@@ -9356,8 +9356,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಮೋಕ್ಷದಾಯಕ ❘ ಯಿಟುವಂಟಿ - ಮೂರ್ಖಜನುನಿ  
 ಕಷ್ಟಪೆಟ್ಟಿನ ನೀಕೇಮಿ - ಕಡುಪುನಿಂಡು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 023  
 ಸೀ೤ ನೀಮೀದ ಕೀರ್ತನಲ್ - ನಿತ್ಯಗಾನಮು ಜೇಸಿ  
@@ -9371,8 +9371,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಸಾಧುಡನು ಮೂರ್ಖಮತಿ ಮನು - ಷ್ಯಾಧಮುಡನು  
 ಹೀನುಡನು ಜುಮ್ಮಿ ನೀವು - ನ ನ್ನೇಲುಕೊನುಮು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 024  
 ಸೀ೤ ಅತಿಶಯಂಬುಗ ಗಲ್ಲ - ಲಾಡನೇರ್ಚಿತಿಗಾನಿ  
@@ -9386,8 +9386,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಬಂಕಜಾತಾಕ್ಷ ❘ ನೇ ನತಿ - ಪಾತಕುಡನು  
 ದಪ್ಪುಲನ್ನಿಯು ಕ್ಷಮಿಯಿಂಪ - ದಂಡ್ರಿ ವೀವೆ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 025  
 ಸೀ೤ ಉರ್ವಿಲೋ ನಾಯುಷ್ಯ - ಮುನ್ನ ಪರ್ಯಂತಂಬು  
@@ -9401,8 +9401,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ದನ್ನು ವಿಡಿಪಿಂಪ ವಚ್ಚೆಡಿ - ಧನ್ಯು ಡೇಡಿ  
 ಮುಂದು ನೀದಾಸುಡೈ ಯುನ್ನ - ಮುಕ್ತಿ ಗಲುಗು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 026  
 ಸೀ೤ ಅಧಿಕ ವಿದ್ಯಾವಂತು - ಲಪ್ರಯೋಜಕುಲೈರಿ  
@@ -9416,8 +9416,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪಕ್ಷಿವಾಹನ ❘ ಮಾವಂಟಿ - ಭಿಕ್ಷುಕುಲಕು  
 ಶಕ್ತಿಲೇದಾಯೆ ನಿಕ ನೀವೆ - ಚಾಟು ಮಾಕು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 027  
 ಸೀ೤ ಭುಜಬಲಂಬುನ ಬೆದ್ದ - ಪುಲುಲ ಜಂಪಗವಚ್ಚು  
@@ -9431,8 +9431,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಬುಡಮಿಲೋ ದುಷ್ಟುಲಕು ಜ್ಞಾನ - ಬೋಧ ತೆಲಿಪಿ  
 ಸಜ್ಜನುಲ ಜೇಯಲೇ ಡೆಂತ - ಚತುರುದೈನ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 028  
 ಸೀ೤ ಅವನಿಲೋಗಲ ಯಾತ್ರ - ಲನ್ನಿ ಚೇಯಗವಚ್ಚು  
@@ -9446,8 +9446,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಜಿತ್ತ ಮನ್ಯಸ್ಥಲಂಬುನ - ಜೇರಕುಂಡ  
 ನೀ ಪದಾಂಭೋಜಮುಲಯಂದು - ನಿಲಪರಾದು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 029  
 ಸೀ೤ ಕರ್ಣಯುಗ್ಮಮುನ ನೀ - ಕಥಲು ಸೋಕಿನಜಾಲು  
@@ -9461,8 +9461,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪೂನಿ ನಿನು ಗೊಲ್ಚುಟೇ ಸರ್ವ - ಭೂಷಣಂಬು  
 ಲಿತರ ಭೂಷಣಮುಲ ನಿಚ್ಚ - ಗಿಂಪನೇಲ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 030  
 ಸೀ೤ ಭುವನರಕ್ಷಕ ❘ ನಿನ್ನು - ಬೊಗಡನೇರನಿ ನೋರು  
@@ -9476,8 +9476,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪದ್ಮಲೋಚನ ನೀಮೀದ - ಭಕ್ತಿಲೇನಿ  
 ಮಾನವುಡು ರೆಂಡುಪಾದಾಲ - ಮಹಿಷಮಯ್ಯ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 031  
 ಸೀ೤ ಅತಿವಿದ್ಯನೇರ್ಚುಟ - ಅನ್ನವಸ್ತ್ರಮುಲಕೇ  
@@ -9491,8 +9491,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಯಿತರ ಕಾಮಂಬು ಗೋರಕ - ಸತತಮುಗನು  
 ಭಕ್ತಿ ನೀಯಂದು ನಿಲುಪುಟ - ಮುಕ್ತಿ ಕೊಱಕೆ  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 032  
 ಸೀ೤ ಧರಣಿಲೋ ವೇಯೇಂಡ್ಲು - ತನುವು ನಿಲ್ವಗಬೋದು  
@@ -9506,8 +9506,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ವೆರ್ರಿ ಕುಕ್ಕಲ ಭ್ರಮಲನ್ನಿ - ವಿಡಿಚಿ ನಿನ್ನು  
 ಭಜನ ಜೇಸೆಡಿವಾರಿಕಿ - ಬರಮಸುಖಮು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 033  
 ಸೀ೤ ನರಸಿಂಹ ❘ ನಾಕು ದು - ರ್ಣಯಮುಲೇ ಮೆಂಡಾಯೆ  
@@ -9521,8 +9521,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಅಬ್ಜದಳನೇತ್ರ ❘ ನಾತಂಡ್ರಿ - ವೈನ ಫಲಮು  
 ನೇರಮುಲು ಗಾಚಿ ರಕ್ಷಿಂಪು - ನೀವೆ ದಿಕ್ಕು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 034  
 ಸೀ೤ ಧೀರತ ಬರುಲ ನಿಂ - ದಿಂಪ ನೇರ್ಚಿತಿ ಗಾನಿ  
@@ -9536,23 +9536,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನವನಿಲೋ ನೇನು ಜನ್ಮಿಂಚಿ - ನಂದು ಕೇಮಿ  
 ಸಾರ್ಥಕಮು ಗಾನರಾದಾಯೆ - ಸ್ವಲ್ಪಮೈನ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 035  
 ಸೀ೤ ಅಂತ್ಯಕಾಲಮುನಂದು - ನಾಯಾಸಮುನ ನಿನ್ನು  
 ದಲತುನೋ ತಲಪನೋ - ತಲತು ನಿಪುಡೆ  
-ನರಸಿಂಹ ❘ ನರಸಿಂಹ | - ನರಸಿಂಹ | ಲಕ್ಷ್ಮೀಶ |  
-ದಾನವಾಂತಕ ❘ ಕೋಟಿ - ಭಾನುತೇಜ |  
-ಗೋವಿಂದ ❘ ಗೋವಿಂದ | - ಗೋವಿಂದ | ಸರ್ವೇಶ |  
-ಪನ್ನಗಾಧಿಪಶಾಯಿ ❘ - ಪದ್ಮನಾಭ |  
-ಮಧುವೈರಿ ❘ ಮಧುವೈರಿ | - ಮಧುವೈರಿ | ಲೋಕೇಶ |  
-ನೀಲಮೇಘಶರೀರ ❘ ನಿಗಮವಿನುತ |  
+ನರಸಿಂಹ ❘ ನರಸಿಂಹ ｜ - ನರಸಿಂಹ ｜ ಲಕ್ಷ್ಮೀಶ ｜  
+ದಾನವಾಂತಕ ❘ ಕೋಟಿ - ಭಾನುತೇಜ ｜  
+ಗೋವಿಂದ ❘ ಗೋವಿಂದ ｜ - ಗೋವಿಂದ ｜ ಸರ್ವೇಶ ｜  
+ಪನ್ನಗಾಧಿಪಶಾಯಿ ❘ - ಪದ್ಮನಾಭ ｜  
+ಮಧುವೈರಿ ❘ ಮಧುವೈರಿ ｜ - ಮಧುವೈರಿ ｜ ಲೋಕೇಶ ｜  
+ನೀಲಮೇಘಶರೀರ ❘ ನಿಗಮವಿನುತ ｜  
 
 ತೇ೤ ಈ ವಿಧಂಬುನ ನೀನಾಮ - ಮಿಷ್ಟಮುಗನು  
 ಭಜನಸೇಯುಚು ನುಂದು ನಾ - ಭಾವಮಂದು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 036  
 ಸೀ೤ ಆಯುರಾರೋಗ್ಯ ಪು - ತ್ರಾರ್ಥ ಸಂಪದಲನ್ನಿ  
@@ -9566,8 +9566,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಅವನಿಲೋ ಮಾನವುಲ ಕನ್ನಿ - ಯಾಸಲಿಚ್ಚಿ  
 ವ್ಯರ್ಥುಲನು ಜೇಸಿ ತೆಲಿಪೆಡಿ - ವಾಡ ವೀವೆ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 037  
 ಸೀ೤ ಕಾಯ ಮೆಂತ ಭಯಾನ - ಗಾಪಾಡಿನನುಗಾನಿ  
@@ -9581,8 +9581,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಜೀವುನಿ ಪ್ರಯಾಣಕಾಲಂಬು - ಸಿದ್ಧಮೈನ  
 ನಿಲುಚುನಾ ದೇಹ ಮಿಂದೊಕ್ಕ - ನಿಮಿಷಮೈನ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 038  
 ಸೀ೤ ಜಂದೆ ಮಿಂಪುಗ ವೇಸಿ - ಸಂಧ್ಯ ವಾರ್ಚಿನ ನೇಮಿ  
@@ -9596,8 +9596,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಎನ್ನಿ ಲೌಕಿಕವೇಷಾಲು - ಗಟ್ಟುಕೊನಿನ  
 ಗುರುನಿ ಜೆಂದಕ ಸನ್ಮುಕ್ತಿ - ದೊರಕಬೋದು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 039  
 ಸೀ೤ ನರಸಿಂಹ ❘ ನೇ ನಿನ್ನು - ನಮ್ಮಿನಂದುಕು ಜಾಲ  
@@ -9611,8 +9611,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಎಚಟ ನನ್ನುಂಚಿನನುಗಾನಿ - ಯೆಪುಡು ನಿನ್ನು  
 ಮಱಚಿ ಪೋಕುಂಡ ನೀನಾಮ - ಸ್ಮರಣನೊಸಗು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 040  
 ಸೀ೤ ದೇಹ ಮುನ್ನವಱಕು - ಮೋಹಸಾಗರಮಂದು  
@@ -9626,8 +9626,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಮತ್ತುಲೈನಟ್ಟಿ ದುರ್ಜಾತಿ - ಮನುಜುಲೆಲ್ಲ  
 ನಿನ್ನು ಗನಲೇರು ಮೊದಟಿಕೇ - ನೀರಜಾಕ್ಷ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 041  
 ಸೀ೤ ಇಲಲೋನ ನೇ ಜನ್ಮ - ಮೆತ್ತಿನಪ್ಪಟಿನುಂಡಿ  
@@ -9641,8 +9641,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಸೂರ್ಯಶಶಿನೇತ್ರ ❘ ನೀಚಾಟು - ಜೊಚ್ಚಿ ನಾನು  
 ಕಲುಷಮುಲು ದ್ರುಂಚಿ ನನ್ನೇಲು - ಕಷ್ಟಮನಕ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 042  
 ಸೀ೤ ತಾಪಸಾರ್ಚಿತ ❘ ನೇನು - ಪಾಪಕರ್ಮುಡನಂಚು  
@@ -9656,8 +9656,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ದಂಡ್ರಿವೈ ನೀವು ಪರಪೀಡ - ದಗುಲಜೇಯ  
 ವಾಸಿಗಲ ಪೇರು ಕಪಕೀರ್ತಿ - ವಚ್ಚುನಯ್ಯ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 043  
 ಸೀ೤ ಧರಣಿಲೋಪಲ ನೇನು - ತಲ್ಲಿಗರ್ಭಮುನಂದು  
@@ -9671,8 +9671,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಳಿನದಳನೇತ್ರ ❘ ನಿನ್ನು ನೇ - ನಮ್ಮಿನಾನು  
 ಜೇರಿ ರಕ್ಷಿಂಪವೇ ನನ್ನು - ಶೀಘ್ರಮುಗನು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 044  
 ಸೀ೤ ಅಡವಿಪಕ್ಷುಲ ಕೆವ್ವ - ಡಾಹಾರ ಮಿಚ್ಚೆನು  
@@ -9686,8 +9686,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಜೀವಕೋಟ್ಲನು ಬೋಷಿಂಪ - ನೀವೆಕಾನಿ  
 ವೇಱೆ ಯೊಕ ದಾತ ಲೇಡಯ್ಯ - ವೆದಕಿಚೂಡ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 045  
 ಸೀ೤ ದನುಜಾರಿ ❘ ನಾವಂಟಿ - ದಾಸಜಾಲಮು ನೀಕು  
@@ -9701,8 +9701,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಭೂಜನುಲಲೋನ ನೇ ನಪ್ರ - ಯೋಜಕುಡನು  
 ಗನುಕ ನೀ ಸತ್ಕಟಾಕ್ಷಂಬು - ಗಲುಗಜೇಯು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 046  
 ಸೀ೤ ಕಮಲಲೋಚನ ❘ ನನ್ನು - ಗನ್ನತಂಡ್ರಿವಿಗಾನ  
@@ -9716,8 +9716,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಕೊಸಕು ನೀ ಶಂಖ ಚಕ್ರಮುಲ್ - ಕುದುವಬೆಟ್ಟಿ  
 ಗ್ರಾಸಮು ನೊಸಂಗಿ ಪೋಷಿಂಚು - ಕಪಟಮುಡಿಗಿ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 047  
 ಸೀ೤ ಕುವಲಯಶ್ಯಾಮ ❘ ನೀ - ಕೊಲುವು ಚೇಸಿನ ನಾಕು  
@@ -9731,8 +9731,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನೇಡು ಕರುಣಿಂಪಕುಂಟಿವಾ - ನಿಶ್ಚಯಮುಗ  
 ದೆಗಬಡಿತಿ ಚೂಡು ನೀತೋಡ - ಜಗಡಮುನಕು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 048  
 ಸೀ೤ ಹರಿ ❘ ನೀಕು ಬರ್ಯಂಕ - ಮೈನ ಶೇಷುಡು ಚಾಲ  
@@ -9746,8 +9746,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಸ್ವಸ್ಥಮುಗ ನೀಕು ಗ್ರಾಸಮು - ಜರುಗುಚುಂಡು  
 ಗಾಸು ನೀ ಚೇತಿ ದೊಕಟೈನ - ಗಾದು ವ್ಯಯಮು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 049  
 ಸೀ೤ ಪುಂಡರೀಕಾಕ್ಷ ❘ ನಾ - ರೆಂಡು ಕನ್ನುಲ ನಿಂಡ  
@@ -9761,8 +9761,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನೇಮಿಟಿಕಿ ವಿಸ್ತರಿಂಚೆ ನೀ - ಕಿಂತ ಕೀರ್ತಿ  
 ದ್ರೋಹಿನೈನನು ನಾ ಕೀವು - ದೊರಕರಾದೆ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 050  
 ಸೀ೤ ಪಚ್ಚಿ ಚರ್ಮಪು ದಿತ್ತಿ - ಪಸಲೇದು ದೇಹಂಬು  
@@ -9776,8 +9776,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಬೊಂದಿಲೋ ನುಂಡು ಪ್ರಾಣಮುಲ್ - ಪೋಯಿನಂತ  
 ಗಾಟಿಕೇ ಗಾನಿ ಕೊಱಗಾದು - ಗವ್ವಕೈನ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 051  
 ಸೀ೤ ಪಲುರೋಗಮುಲಕು ನೀ - ಪಾದತೀರಮೆ ಕಾನಿ  
@@ -9791,8 +9791,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ದೊರಿಕಿತಿವಿ ನಾಕು ದಂಡಿ ವೈ - ದ್ಯುಡವು ನೀವು  
 ವೇಯಿಕಷ್ಟಾಲು ವಚ್ಚಿನನ್ - ವೆಱವನಯ್ಯ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 052  
 ಸೀ೤ ಕೂಟಿಕೋಸರಮು ನೇ - ಗೊಱಗಾನಿ ಜನುಲಚೇ  
@@ -9806,8 +9806,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಿಟುಲ ಸಂಸಾರವಾರಿಧಿ - ನೀದಲೇಕ  
 ವೇಯಿವಿಧಮುಲ ನಿನ್ನು ನೇ - ವೇಡುಕೊಂಟಿ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 053  
 ಸೀ೤ ಸಾಧು ಸಜ್ಜನುಲತೋ - ಜಗಡಮಾಡಿನ ಗೀಡು  
@@ -9821,8 +9821,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ದುಷ್ಟಕಾರ್ಯಮು ಲೊನರಿಂಚು - ದುರ್ಜನುಲಕು  
 ಘನತರಂಬೈನ ನರಕಂಬು - ಗಟ್ಟಿಮುಲ್ಲೆ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 054  
 ಸೀ೤ ಪರುಲದ್ರವ್ಯಮುಮೀದ - ಭ್ರಾಂತಿ ನೊಂದಿನವಾಡು  
@@ -9836,8 +9836,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪ್ರಜಲ ಜಂತುಲ ಹಿಂಸಿಂಚು - ಪಾತಕುಂಡು  
 ಕಾಲಕಿಂಕರ ಗದಲಚೇ - ಗಷ್ಟಮೊಂದು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 055  
 ಸೀ೤ ನರಸಿಂಹ ❘ ನಾ ತಂಡ್ರಿ - ನನ್ನೇಲು ನನ್ನೇಲು  
@@ -9851,8 +9851,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಸುರವಿನುತ ❘ ನೇನು ನೀಚಾಟು - ಜೊಚ್ಚಿನಾನು  
 ನಾ ಮೊಱಾಲಿಂಚಿ ಕಡತೇರ್ಚು - ನಾಗಶಯನ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 056  
 ಸೀ೤ ನೀ ಭಕ್ತುಲನು ಗನುಲ್ - ನಿಂಡ ಜೂಚಿಯು ರೆಂಡು  
@@ -9866,8 +9866,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪರಮಭಕ್ತುಂಡು ಧನ್ಯುಂಡು - ಭಾನುತೇಜ ❘  
 ವಾನಿ ಗನುಗೊನ್ನ ಬುಣ್ಯಂಬು - ವಸುಧಲೋನ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 057  
 ಸೀ೤ ಪಕ್ಷಿವಾಹನ ❘ ನೇನು - ಬ್ರತಿಕಿನನ್ನಿದಿನಾಲು  
@@ -9881,8 +9881,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಕೊಸಕು ನೀ ಸನ್ನಿಧಿಕಿ ಬಿಲ್ಚು - ಕೊನಿಯು ನೀಕು  
 ಸೇವಕುನಿ ಜೇಸಿಕೊನವಯ್ಯ - ಶೇಷಶಯನ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 058  
 ಸೀ೤ ನಿಗಮಾದಿಶಾಸ್ತ್ರಮುಲ್ - ನೇರ್ಚಿನ ದ್ವಿಜುಡೈನ  
@@ -9896,8 +9896,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಗರ್ವಮುನ ಗಷ್ಟಪಡಿ ನಿನ್ನು - ಗಾನಕುನ್ನ  
 ಮೋಕ್ಷಸಾಮ್ರಾಜ್ಯ ಮೊಂದಡು - ಮೋಹನಾಂಗ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 059  
 ಸೀ೤ ಪಂಜರಂಬುನ ಗಾಕಿ - ಬಟ್ಟಿ ಯುಂಚಿನ ಲೆಸ್ಸ  
@@ -9911,8 +9911,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಕುಜನುಲನು ದೆಚ್ಚಿ ನೀ ಸೇವ - ಕೊಱಕು ಬೆಟ್ಟ  
 ವಾಂಛತೋ ಜೇತುರೇ ಭಕ್ತ - ವರುಲವಲೆನು?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 060  
 ಸೀ೤ ನೀಕು ದಾಸುಡ ನಂಟಿ - ನಿನ್ನು ನಮ್ಮುಕಯುಂಟಿ  
@@ -9926,8 +9926,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಶೀಘ್ರಮುಗ ಗೋರ್ಕು ಲೀಡೇರ್ಚು - ಚಿಂತ ದೀರ್ಚು  
 ನಿರತಮುಗ ನನ್ನು ಬೋಷಿಂಚು - ನೆನರು ನುಂಚು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 061  
 ಸೀ೤ ವಿದ್ಯ ನೇರ್ಚಿತಿ ನಂಚು - ವಿರ್ರವೀಗಗಲೇದು  
@@ -9941,8 +9941,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಲುಗುರಿಕಿ ಮೆಪ್ಪುಗಾನೈನ - ನಡುವಲೇದು  
 ನಳಿನದಳನೇತ್ರ ❘ ನಿನ್ನು ನೇ - ನಮ್ಮಿನಾನು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 062  
 ಸೀ೤ ಅತಿಲೋಭುಲನು ಭಿಕ್ಷ - ಮಡುಗಬೋವುಟ ರೋತ  
@@ -9954,10 +9954,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ಆದಾಯಮುಲು ಲೇಕ - ಯಪ್ಪುದೀಯುಟ ರೋತ  
 ಜಾರ ಚೋರುಲ ಗೂಡಿ - ಚನುಟ ರೋತ  
 
-ತೇ೤ ಯಾದಿಲಕ್ಷ್ಮೀಶ ❘ ನೀಬಂಟ - ನೈತಿನಯ್ಯ |  
+ತೇ೤ ಯಾದಿಲಕ್ಷ್ಮೀಶ ❘ ನೀಬಂಟ - ನೈತಿನಯ್ಯ ｜  
 ಯಿಂಕ ನೆಡಬಾಸಿ ಜನ್ಮಂಬು - ಲೆತ್ತ ರೋತ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 063  
 ಸೀ೤ ವೆರ್ರಿವಾನಿಕಿ ನೇಲ - ವೇದಾಕ್ಷರಂಬುಲು?  
@@ -9971,8 +9971,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಕ್ರೂರಜನುಲಕು ನೀಮೀದ - ಗೋರಿ ಕೇಲ?  
 ದ್ರೋಹಿ ಪಾಪಾತ್ಮುನಕು ದಯಾ - ದುಃಖ ಮೇಲ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 064  
 ಸೀ೤ ನಾ ತಂಡ್ರಿ ನಾದಾತ - ನಾಯಿಷ್ಟದೈವಮಾ  
@@ -9986,8 +9986,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ದಂಡಿದೊರ ವಂಚು ನೀವೆಂಟ - ದಗಿಲಿನಾನು  
 ನೇಡು ಪ್ರತ್ಯಕ್ಷಮೈ ನನ್ನು - ನಿರ್ವಹಿಂಪು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 065  
 ಸೀ೤ ವೇಮಾಱು ನೀಕಥಲ್ - ವಿನುಚು ನುಂಡೆಡಿವಾಡು  
@@ -10001,8 +10001,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಿನ್ನು ನಮ್ಮಿನ ಭಕ್ತುಂಡು - ನಿಶ್ಚಯಮುಗ  
 ಗೋರಿ ಚಿಲ್ಲರ ವೇಲ್ಪುಲ - ಗೊಲ್ವಬೋಡು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 066  
 ಸೀ೤ ನೇ ನೆಂತ ವೇಡಿನ - ನೀ ಕೇಲ ದಯರಾದು?  
@@ -10016,8 +10016,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ದಾತ ದೈವಂಬು ತಲ್ಲಿಯು - ದಂಡ್ರಿ ವೀವೆ  
 ನಮ್ಮಿಯುನ್ನಾನು ನೀಪಾದ - ನಳಿನಮುಲನು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 067  
 ಸೀ೤ ವೇದಮುಲ್ ಚದಿವೆಡು - ವಿಪ್ರವರ್ಯುಂಡೈನ  
@@ -10031,8 +10031,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಿನ್ನು ಗೊನಿಯಾಡುಚುಂಡೆನಾ - ನಿಶ್ಚಯಮುಗ  
 ವಾಡು ಮೋಕ್ಷಾಧಿಕಾರಿ ಯೀ - ವಸುಧಲೋನ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 068  
 ಸೀ೤ ಸಕಲವಿದ್ಯಲು ನೇರ್ಚಿ - ಸಭ ಜಯಿಂಪಗವಚ್ಚು  
@@ -10046,8 +10046,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ತಾಮರಸಗರ್ಭ ಹರ ಪುರಂ - ದರುಲಕೈನ  
 ನಿನ್ನು ವರ್ಣಿಂಪ ದರಮೌನೆ - ನೀರಜಾಕ್ಷ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 069  
 ಸೀ೤ ನರಸಿಂಹ ❘ ನೀವಂಟಿ - ದೊರನು ಸಂಪಾದಿಂಚಿ  
@@ -10059,10 +10059,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ಪೆಟ್ಟಜಾಲಕ ಯೇಲ - ಭಿಕ್ಷಮೆತ್ತಿಂಚೆದು  
 ನನ್ನು ಬೀದನು ಜೇಸಿ - ನಾ ವದೇಮಿ?  
 
-ತೇ೤ ಅಮಲ ❘ ಕಮಲಾಕ್ಷ | ನೇ ನಿಟ್ಲು - ಶ್ರಮಪಡಂಗ  
+ತೇ೤ ಅಮಲ ❘ ಕಮಲಾಕ್ಷ ｜ ನೇ ನಿಟ್ಲು - ಶ್ರಮಪಡಂಗ  
 ಗನ್ನುಲಕು ಬಂಡುವೈ ನೀಕು - ಗಾನಬಡುನೆ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 070  
 ಸೀ೤ ವನರುಹನಾಭ ❘ ನೀ - ವಂಕ ಜೇರಿತಿ ನೇನು  
@@ -10076,8 +10076,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಗೋಪಗಾಡನು ನೀವು ನಾ - ಗುಣಮು ತೆಲಿಸಿ  
 ಯಿಪ್ಪುಡೇ ನನ್ನು ರಕ್ಷಿಂಚಿ - ಯೇಲುಕೊಮ್ಮು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 071  
 ಸೀ೤ ಪ್ರಹ್ಲಾದು ಡೇಪಾಟಿ - ಪೈಡಿ ಕಾನುಕ ಲಿಚ್ಚೆ?  
@@ -10091,8 +10091,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನೀಕು ವೀರಂದ ಱಯಿನಟ್ಲು - ನೇನು ಗಾನ?  
 ಯೆಂದು ಕನಿ ನನ್ನು ರಕ್ಷಿಂಪ - ವಿಂದುವದನ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 072  
 ಸೀ೤ ವಾಂಛತೋ ಬಲಿಚಕ್ರ - ವರ್ತಿದಗ್ಗರ ಜೇರಿ  
@@ -10106,8 +10106,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಭಕ್ತುಲಕು ನೀವು ಪೆಟ್ಟುಟ - ಭಾಗ್ಯಮೌನು  
 ವಾರಿ ಕಾಶಿಂಚಿತಿವಿ ತಿಂಡಿ - ವಾಡ ವಗುಚು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 073  
 ಸೀ೤ ಸ್ತಂಭಮಂ ದುದಯಿಂಚಿ - ದಾನವೇಂದ್ರುನಿ ದ್ರುಂಚಿ  
@@ -10121,8 +10121,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ವಾರಿವಲೆ ನನ್ನು ಬೋಷಿಂಪ - ವಶಮುಗಾದೆ?  
 ಯಂತ ವಲಪಕ್ಷ ಮೇಲ ಶ್ರೀ - ಕಾಂತ ❘ ನೀಕು?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 074  
 ಸೀ೤ ವ್ಯಾಸು ಡೇ ಕುಲಮಂದು - ವಾಸಿಗಾ ಜನ್ಮಿಂಚೆ?  
@@ -10136,8 +10136,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನೇ ಕುಲಂಬುನ ವೀ ರಿಂದ - ಱೆಚ್ಚಿನಾರು?  
 ನೀಕೃಪಾಪಾತ್ರುಲಕು ಜಾತಿ - ನೀತು ಲೇಲ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 075  
 ಸೀ೤ ವಸುಧಾಸ್ಥಲಂಬುನ - ವರ್ಣಹೀನುಡು ಗಾನಿ  
@@ -10151,8 +10151,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪ್ರತಿದಿನಮು ನೀದು ಭಜನಚೇ - ಬರಗುನಟ್ಟಿ  
 ವಾನಿ ಕೇ ವಂಕ ಲೇದಯ್ಯ - ವಚ್ಚು ಮುಕ್ತಿ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 076  
 ಸೀ೤ ಇಭಕುಂಭಮುಲಮೀದಿ - ಕೆಗಿರೆಡಿ ಸಿಂಗಂಬು  
@@ -10166,8 +10166,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಿಲನು ನೀಕೀರ್ತನಲು ಪಾಡ - ನೇರ್ಚಿನತಡು  
 ಪರುಲಕೀರ್ತನ ಬಾಡುನೇ - ಯರಸಿ ಚೂಡ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 077  
 ಸೀ೤ ಸರ್ವೇಶ ❘ ನೀಪಾದ - ಸರಸಿಜದ್ವಯಮಂದು  
@@ -10181,8 +10181,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪ್ರೇಮತೋ ನನ್ನು ಬೋಷಿಂಚಿ - ಪೆಂಚುಕೊನುಮು  
 ಘನತ ಕೆಕ್ಕಿಂಚು ನೀದಾಸ - ಗಣಮುಲೋನ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 078  
 ಸೀ೤ ಜೀಮೂತವರ್ಣ ❘ ನೀ - ಮೋಮುತೋ ಸರಿರಾಕ  
@@ -10196,8 +10196,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಿಂದಿರಾದೇವಿ ನಿನ್ನು ಮೋ - ಹಿಂಚಿ ವಿಡಕ  
 ನೀಕು ಬಟ್ಟಮಹಿಷಿ ಯಯ್ಯೆ - ನಿಶ್ಚಯಮುಗ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 079  
 ಸೀ೤ ಹರಿದಾಸುಲನು ನಿಂದ - ಲಾಡಕುಂಡಿನ ಜಾಲು  
@@ -10211,8 +10211,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಒಕರಿ ವರ್ಶಾಶನಮು ಮುಂಚ - ಕುನ್ನ ಜಾಲು  
 ಬೇರುಕೀರ್ತಿಗ ಸತ್ರಮುಲ್ - ಪೆಟ್ಟಿನಟ್ಲು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 080  
 ಸೀ೤ ಇಹಲೋಕಸೌಖ್ಯಮು - ಲಿಚ್ಚಗಿಂಚೆದ ಮನ್ನ  
@@ -10226,8 +10226,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಮ್ಮರಾ ದಯ್ಯ ❘ ಯಿದಿ ಮಾಯ - ನಾಟಕಂಬು  
 ಜನ್ಮ ಮಿಕ ನೊಲ್ಲ ನ ನ್ನೇಲು - ಜಲಜನಾಭ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 081  
 ಸೀ೤ ವದನಂಬು ನೀನಾಮ - ಭಜನ ಗೋರುಚುನುಂಡು  
@@ -10241,8 +10241,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಸ್ವಪ್ನಮುನ ನೈನ ನೇವೇಳ - ಸಂತತಮುನು  
 ಬುದ್ಧಿ ನೀ ಪಾದಮುಲಯಂದು - ಬೂನಿಯುಂಡು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 082  
 ಸೀ೤ ಪದ್ಮಾಕ್ಷ ❘ ಮಮತಚೇ - ಬರಮು ನಂದೆದ ಮಂಚು  
@@ -10256,23 +10256,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನೀ ಶರೀರಾಲು ಪಡಿಪೋವು - ಟೆಱುಗ ಕೇಮು  
 ಕಾಮುಕುಲ ಮೈತಿ ಮಿಕ ಮಿಮ್ಮು - ಗಾನಲೇಮು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 083  
-ಸೀ೤ ಗರುಡವಾಹನ ❘ ದಿವ್ಯ - ಕೌಸ್ತುಭಾಲಂಕಾರ |  
-ರವಿಕೋಟಿತೇಜ ❘ ಸಾ - ರಂಗವದನ |  
-ಮಣಿಗಣಾನ್ವಿತ ❘ ಹೇಮ - ಮಕುಟಾಭರಣ | ಚಾರು  
-ಮಕರಕುಂಡಲ ❘ ಲಸ - ನ್ಮಂದಹಾಸ |  
-ಕಾಂಚನಾಂಬರ ❘ ರತ್ನ - ಕಾಂಚಿವಿಭೂಷಿತ |  
-ಸುರವರಾರ್ಚಿತ ❘ ಚಂದ್ರ - ಸೂರ್ಯನಯನ |  
-ಕಮಲನಾಭ ❘ ಮುಕುಂದ | - ಗಂಗಾಧರಸ್ತುತ |  
-ರಾಕ್ಷಸಾಂತಕ ❘ ನಾಗ - ರಾಜಶಯನ |  
+ಸೀ೤ ಗರುಡವಾಹನ ❘ ದಿವ್ಯ - ಕೌಸ್ತುಭಾಲಂಕಾರ ｜  
+ರವಿಕೋಟಿತೇಜ ❘ ಸಾ - ರಂಗವದನ ｜  
+ಮಣಿಗಣಾನ್ವಿತ ❘ ಹೇಮ - ಮಕುಟಾಭರಣ ｜ ಚಾರು  
+ಮಕರಕುಂಡಲ ❘ ಲಸ - ನ್ಮಂದಹಾಸ ｜  
+ಕಾಂಚನಾಂಬರ ❘ ರತ್ನ - ಕಾಂಚಿವಿಭೂಷಿತ ｜  
+ಸುರವರಾರ್ಚಿತ ❘ ಚಂದ್ರ - ಸೂರ್ಯನಯನ ｜  
+ಕಮಲನಾಭ ❘ ಮುಕುಂದ ｜ - ಗಂಗಾಧರಸ್ತುತ ｜  
+ರಾಕ್ಷಸಾಂತಕ ❘ ನಾಗ - ರಾಜಶಯನ ｜  
 
-ತೇ೤ ಪತಿತಪಾವನ ❘ ಲಕ್ಷೀಶ | - ಬ್ರಹ್ಮಜನಕ |  
-ಭಕ್ತವತ್ಸಲ ❘ ಸರ್ವೇಶ | - ಪರಮಪುರುಷ |  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ತೇ೤ ಪತಿತಪಾವನ ❘ ಲಕ್ಷೀಶ ｜ - ಬ್ರಹ್ಮಜನಕ ｜  
+ಭಕ್ತವತ್ಸಲ ❘ ಸರ್ವೇಶ ｜ - ಪರಮಪುರುಷ ｜  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 084  
 ಸೀ೤ ಪಲುಮಾಱು ದಶರೂಪ - ಮುಲು ದರಿಂಚಿತಿ ವೇಲ?  
@@ -10286,8 +10286,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ವನಜಲೋಚನ ❘ ಯಿಟುವಂಟಿ - ವೈಭವಮುಲು  
 ಸೊಗಸುಗಾ ನೀಕು ದೋಚೆನೋ - ಸುಂದರಾಂಗ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 085  
 ಸೀ೤ ತಿರುಪತಿ ಸ್ಥಲಮಂದು - ದಿನ್ನಗಾ ನೇ ನುನ್ನ  
@@ -10301,8 +10301,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಯೆಂದು ಬೋವಕ ನೇನು ನೀ - ಮಂದಿರಮುನ  
 ನಿಲಿಚಿತಿನಿ ನೀಕು ನಾಮೀದ - ನೆನರು ಲೇದು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 086  
 ಸೀ೤ ತಾರ್ಕ್ಷ್ಯವಾಹನ ❘ ನೀವು - ದಂಡಿದಾತ ವಟಂಚು  
@@ -10316,8 +10316,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನೀಕು ನಾವಿದ್ಯ ಹರ್ಷಂಬು - ಗಾಕ ಯುನ್ನ  
 ತೇಪತೇಪಕು ವೇಷಮುಲ್ - ದೇನು ಸುಮ್ಮಿ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 087  
 ಸೀ೤ ಅಮರೇಂದ್ರವಿನುತ ❘ ನೇ - ನತಿದುರಾತ್ಮುಡ ನಂಚು  
@@ -10331,23 +10331,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಡುಪುಚುನು ನಿನ್ನು ಗೊಲಿಚೆದ - ನಮ್ಮಿ ಬುದ್ಧಿ  
 ನೀ ಪ್ರಪಂಚಂಬು ಗಲುಗು ನಾ - ಕಿಂತೆ ಚಾಲು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 088  
-ಸೀ೤ ಭುವನೇಶ ❘ ಗೋವಿಂದ | - ರವಿಕೋಟಿಸಂಕಾಶ |  
-ಪಕ್ಷಿವಾಹನ ❘ ಭಕ್ತ - ಪಾರಿಜಾತ |  
+ಸೀ೤ ಭುವನೇಶ ❘ ಗೋವಿಂದ ｜ - ರವಿಕೋಟಿಸಂಕಾಶ ｜  
+ಪಕ್ಷಿವಾಹನ ❘ ಭಕ್ತ - ಪಾರಿಜಾತ ｜  
 ಯಂಭೋಜಭವ ರುದ್ರ - ಜಂಭಾರಿಸನ್ನುತ ❘  
-ಸಾಮಗಾನವಿಲೋಲ ❘ - ಸಾರಸಾಕ್ಷ |  
-ವನಧಿಗಂಭೀರ ❘ ಶ್ರೀ - ವತ್ಸಕೌಸ್ತುಭವಕ್ಷ |  
+ಸಾಮಗಾನವಿಲೋಲ ❘ - ಸಾರಸಾಕ್ಷ ｜  
+ವನಧಿಗಂಭೀರ ❘ ಶ್ರೀ - ವತ್ಸಕೌಸ್ತುಭವಕ್ಷ ｜  
 ಶಂಖಚಕ್ರಗದಾಸಿ - ಶಾರ್ಜ್ಞಹಸ್ತ ❘  
-ದೀನರಕ್ಷಕ ❘ ವಾಸು - ದೇವ | ದೈತ್ಯವಿನಾಶ |  
-ನಾರದಾರ್ಚಿತ ❘ ದಿವ್ಯ - ನಾಗಶಯನ |  
+ದೀನರಕ್ಷಕ ❘ ವಾಸು - ದೇವ ｜ ದೈತ್ಯವಿನಾಶ ｜  
+ನಾರದಾರ್ಚಿತ ❘ ದಿವ್ಯ - ನಾಗಶಯನ ｜  
 
 ತೇ೤ ಚಾರು ನವರತ್ನಕುಂಡಲ - ಶ್ರವಣಯುಗಳ ❘  
-ವಿಬುಧವಂದಿತ ಪಾದಬ್ಜ ❘ - ವಿಶ್ವರೂಪ |  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ವಿಬುಧವಂದಿತ ಪಾದಬ್ಜ ❘ - ವಿಶ್ವರೂಪ ｜  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 089  
 ಸೀ೤ ನಾಗೇಂದ್ರಶಯನ ❘ ನೀ - ನಾಮಮಾಧುರ್ಯಂಬು  
@@ -10361,8 +10361,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ವೀರಿ ಕೆಱುಕಗು ನೀಕಥಲ್ - ವಿಂತ ಲೆಲ್ಲ  
 ನರುಲ ಕೆಱು ಕನ್ನ ನೆವರೈನ - ನವ್ವಿಪೋರೆ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 090  
 ಸೀ೤ ಅರ್ಥು ಲೇಮೈನ ನಿ - ನ್ನಡುಗವಚ್ಚೆದ ರಂಚು  
@@ -10375,9 +10375,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ಮಂಚಿ ಯೋಧುಲ ಕಾವ - ಲುಂಚಿನಾವು  
 
 ತೇ೤ ಲಾವು ಗಲವಾಡ ವೈತಿ ವೇ - ಲಾಗು ನೇನು  
-ನಿನ್ನು ಜೂತುನು ನಾತಂಡ್ರಿ ❘ - ನೀರಜಾಕ್ಷ |  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ನಿನ್ನು ಜೂತುನು ನಾತಂಡ್ರಿ ❘ - ನೀರಜಾಕ್ಷ ｜  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 091  
 ಸೀ೤ ನೀಕಥಲ್ ಚೆವುಲಲೋ - ಸೋಕುಟ ಮೊದಲುಗಾ  
@@ -10386,13 +10386,13 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ಮಗ್ನುಡೈ ದೇಹಂಬು - ಮಱಚುವಾಡು  
 ಫಾಲಂಬುತೋ ನೀದು - ಪಾದಯುಗ್ಮಮುನಕು  
 ಬ್ರೇಮತೋ ದಂಡ ಮ - ರ್ಪಿಂಚುವಾಡು  
-ಹಾ ಪುಂಡರೀಕಾಕ್ಷ ❘ - ಹಾ ರಾಮ | ಹರಿ | ಯಂಚು  
+ಹಾ ಪುಂಡರೀಕಾಕ್ಷ ❘ - ಹಾ ರಾಮ ｜ ಹರಿ ｜ ಯಂಚು  
 ವೇಡ್ಕತೋ ಗೇಕಲು - ವೇಯುವಾಡು  
 
 ತೇ೤ ಚಿತ್ತಕಮಲಂಬುನನು ನಿನ್ನು - ಜೇರ್ಚುವಾಡು  
 ನೀದುಲೋಕಂಬುನಂ ದುಂಡು - ನೀರಜಾಕ್ಷ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 092  
 ಸೀ೤ ನಿಗಮಗೋಚರ ❘ ನೇನು - ನೀಕು ಮೆಪ್ಪಗುನಟ್ಲು  
@@ -10406,8 +10406,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನನ್ನಿ ಗಲವಾಡ ವಖಿಲ ಲೋ - ಕಾಧಿಪತಿವಿ ❘  
 ನೀಕು ಸೊಮ್ಮುಲು ಪೆಟ್ಟ ನೇ - ನೆಂತವಾಡ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 093  
 ಸೀ೤ ನವಸರೋಜದಳಾಕ್ಷ ❘ - ನನ್ನು ಬೋಷಿಂಚೆಡು  
@@ -10421,8 +10421,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಬರಮಸಂತೋಷ ಮಾಯೆ ನಾ - ಪ್ರಾಣಮುಲಕು  
 ನೀ^^ಋಣಮು ದೀರ್ಚುಕೊನ ನೇರ - ನೀರಜಾಕ್ಷ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 094  
 ಸೀ೤ ಫಣುಲಪುಟ್ಟಲಮೀದ - ಬವ್ವಳಿಂಚಿನಯಟ್ಲು  
@@ -10436,23 +10436,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಸ್ವಾಮಿ ನೀ ಭಕ್ತವರುಲು ದು - ರ್ಜನುಲತೋಡ  
 ಜೆಲಿಮಿ ಜೇಸಿನಯ ಟ್ಲೈನ - ಜೇಟು ವಚ್ಚು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 095  
-ಸೀ೤ ದನುಜಸಂಹಾರ ❘ ಚಕ್ರ - ಧರ | ನೀಕು ದಂಡಂಬು  
+ಸೀ೤ ದನುಜಸಂಹಾರ ❘ ಚಕ್ರ - ಧರ ｜ ನೀಕು ದಂಡಂಬು  
 ಲಿಂದಿರಾಧಿಪ ❘ ನೀಕು - ವಂದನಂಬು  
 ಪತಿತಪಾವನ ❘ ನೀಕು - ಬಹುನಮಸ್ಕಾರಮುಲ್  
 ನೀರಜಾತದಳಾಕ್ಷ ❘ - ನೀಕು ಶರಣು  
-ವಾಸವಾರ್ಚಿತ ❘ ಮೇಘ - ವರ್ಣ | ನೀಕು ಶುಭಂಬು  
+ವಾಸವಾರ್ಚಿತ ❘ ಮೇಘ - ವರ್ಣ ｜ ನೀಕು ಶುಭಂಬು  
 ಮಂದರಧರ ❘ ನೀಕು - ಮಂಗಳಂಬು  
-ಕಂಬುಕಂಧರ ❘ ಶಾರ್ಜ್ಗ - ಕರ | ನೀಕು ಭದ್ರಂಬು  
+ಕಂಬುಕಂಧರ ❘ ಶಾರ್ಜ್ಗ - ಕರ ｜ ನೀಕು ಭದ್ರಂಬು  
 ದೀನರಕ್ಷಕ ❘ ನೀಕು - ದಿಗ್ವಿಜಯಮು  
 
 ತೇ೤ ಸಕಲವೈಭವಮುಲು ನೀಕು - ಸಾರ್ವಭೌಮ ❘  
 ನಿತ್ಯಕಲ್ಯಾಣಮುಲು ನಗು - ನೀಕು ನೆಪುಡು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 096  
 ಸೀ೤ ಮತ್ಸ್ಯಾವತಾರ ಮೈ - ಮಡುಗುಲೋಪಲ ಜೊಚ್ಚಿ  
@@ -10466,8 +10466,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಯುಂದು ರರವಿಂದನಯನ ❘ ನೀ - ಯುನಿಕಿ ದೆಲಿಯು  
 ವಾರಲಕು ವೇಗ ಮೋಕ್ಷಂಬು - ವಚ್ಚು ನನಘ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 097  
 ಸೀ೤ ಕೂರ್ಮಾವತಾರಮೈ - ಕುಧರಂಬುಕ್ರಿಂದನು  
@@ -10480,9 +10480,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ವರ್ತಿ ನಱಂಪವಾ - ವೈರ ಮುಡಿಗಿ?  
 
 ತೇ೤ ಯಿಟ್ಟಿ ಪನು ಲೆಲ್ಲ ಜೇಯಗಾ - ನೆವರಿಕೇನಿ  
-ತಗುನೆ ನರಸಿಂಹ ❘ ನೀಕಿದಿ - ದಗುನು ಗಾಕ |  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ತಗುನೆ ನರಸಿಂಹ ❘ ನೀಕಿದಿ - ದಗುನು ಗಾಕ ｜  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 098  
 ಸೀ೤ ಲಕ್ಷ್ಮೀಶ ❘ ನೀದಿವ್ಯ - ಲಕ್ಷಣಗುಣಮುಲ  
@@ -10496,8 +10496,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಮ್ಮಿಯುನ್ನಾನು ನೀಪಾದ - ನಳಿನಭಕ್ತಿ  
 ವೇಗ ದಯಚೇಸಿ ರಕ್ಷಿಂಪು - ವೇದವಿದ್ಯ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 099  
 ಸೀ೤ ಅಮರೇಂದ್ರವಿನುತ ❘ ನಿ - ನ್ನನುಸರಿಂಚಿನವಾರು  
@@ -10511,8 +10511,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನನುಚು ಬಲುಮಾಱು ವೇಡೆದ - ನಬ್ಜನಾಭ ❘  
 ನಾಕು ಬ್ರತ್ಯಕ್ಷ ಮಗುಮು ನಿನ್ - ನಮ್ಮಿನಾನು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 100  
 ಸೀ೤ ಶೇಷಪ್ಪ ಯನು ಕವಿ - ಚೆಪ್ಪಿನ ಪದ್ಯಮುಲ್  
@@ -10526,27 +10526,27 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಿದ್ದಿ ಪುಣ್ಯಾಕರಂ ಬನಿ - ಯೆಪುಡು ಜನುಲು  
 ಗಷಟ ಮೆನ್ನಕ ಪಠಿಯಿಂಪ - ಗಲುಗು ಮುಕ್ತಿ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 ## Malayalam
 
 നാരസിംഹ ശതകമ്  
 
 001  
-സീ൤ ശ്രീമനോഹര ❘ സുരാ - ര്ചിത സിംധുഗംഭീര |  
-ഭക്തവത്സല ❘ കോടി - ഭാനുതേജ |  
-കംജനേത്ര ❘ ഹിരണ്യ - കശ്യപാംതക | ശൂര |  
-സാധുരക്ഷണ ❘ ശംഖ - ചക്രഹസ്ത |  
-പ്രഹ്ലാദ വരദ ❘ പാ - പധ്വംസ | സര്വേശ |  
-ക്ഷീരസാഗരശായി ❘ - കൃഷ്ണവര്ണ |  
-പക്ഷിവാഹന ❘ നീല - ഭ്രമരകുംതലജാല |  
+സീ൤ ശ്രീമനോഹര ❘ സുരാ - ര്ചിത സിംധുഗംഭീര ｜  
+ഭക്തവത്സല ❘ കോടി - ഭാനുതേജ ｜  
+കംജനേത്ര ❘ ഹിരണ്യ - കശ്യപാംതക ｜ ശൂര ｜  
+സാധുരക്ഷണ ❘ ശംഖ - ചക്രഹസ്ത ｜  
+പ്രഹ്ലാദ വരദ ❘ പാ - പധ്വംസ ｜ സര്വേശ ｜  
+ക്ഷീരസാഗരശായി ❘ - കൃഷ്ണവര്ണ ｜  
+പക്ഷിവാഹന ❘ നീല - ഭ്രമരകുംതലജാല ｜  
 പല്ലവാരുണപാദ - പദ്മയുഗള ❘  
 
 തേ൤ ചാരുശ്രീചംദനാഗരു - ചര്ചിതാംഗ ❘  
-കുംദകുട്മലദംത ❘ വൈ - കുംഠധാമ |  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+കുംദകുട്മലദംത ❘ വൈ - കുംഠധാമ ｜  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 002  
 സീ൤ പദ്മലോചന ❘ സീസ - പദ്യമുല് നീ മീദ  
@@ -10560,8 +10560,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ദപ്പുഗലിഗിന സദ്ഭക്തി - തക്കുവൌനെ  
 ചെറകുനകു വംകപോയിന - ചെഡുനെ തീപു?  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 003  
 സീ൤ നരസിംഹ ❘ നീ ദിവ്യ - നാമമംത്രമുചേത  
@@ -10575,8 +10575,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ഭളിര ❘ നേ നീ മഹാമംത്ര - ബലമുചേത  
 ദിവ്യ വൈകുംഠ പദവി സാ - ധിംപവച്ചു  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 004  
 സീ൤ ആദിനാരായണാ ❘ - യനുചു നാലുകതോഡ  
@@ -10590,8 +10590,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ പരമ സാത്വികുലൈന നീ - ഭക്തവരുല  
 ദാസുലകു ദാസുഡനു ജുമീ - ധാത്രിലോന  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 005  
 സീ൤ ഐശ്വര്യമുലകു നി - ന്നനുസരിംപഗലേദു  
@@ -10605,8 +10605,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നേനു ഗോരിന ദൊക്കടേ - നീലവര്ണ  
 ചയ്യനനു മോക്ഷമിച്ചിന - ജാലു നാകു  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 006  
 സീ൤ മംദുംഡനനി നന്നു - നിംദ ചേസിനനേമി?  
@@ -10620,8 +10620,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ കല്പവൃക്ഷംബുവലെ നീവു - ഗല്ഗ നിംക  
 ബ്രജല ലക്ഷ്യംബു നാകേല? - പദ്മനാഭ ❘  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 007  
 സീ൤ ചിത്തശുദ്ധിഗ നീകു - സേവജേസെദഗാനി  
@@ -10635,8 +10635,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ പാരമാര്ഥികമുനകു നേ ബാടുപഡിതി  
 ഗീര്തികി നപേക്ഷപഡലേദു - കൃഷ്ണവര്ണ ❘  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 008  
 സീ൤ ശ്രവണ രംധ്രമുല നീ - സത്കഥല് പൊഗഡംഗ  
@@ -10650,8 +10650,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ വസുധലോനെല്ല വ്യര്ധുംഡു - വാഡെ യഗുനു  
 മറിയു ജെഡുഗാക യെപ്പുഡു - മമതനൊംദി൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 009  
 സീ൤ ഗൌതമീസ്നാനാന - ഗഡതേറുദ മടന്ന  
@@ -10665,8 +10665,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ കഷ്ടമുലകോര്വ നാചേത - ഗാദു നിന്നു  
 സ്മരണചേസെദ നാ യധാ - ശക്തി കൊലദി൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 010  
 സീ൤ അര്ഥിവാംഡ്രകു നീക - ഹാനി ജേയുട കംടെ  
@@ -10680,8 +10680,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ജലജദളനേത്ര നീ ഭക്ത - ജനുലതോഡി  
 ജഗഡമാഡെഡു പനികംടെ - ജാവു മേലു  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 011  
 സീ൤ ഗാര്ദഭംബുന കേല - കസ്തൂരി തിലകംബു?  
@@ -10695,8 +10695,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ദ്രോഹചിംതന ജേസെഡി - ദുര്ജനുലകു  
 മധുരമൈനട്ടി നീനാമ - മംത്രമേല?  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 012  
 സീ൤ പസരംബു വംജൈന - ബസുലകാപരി തപ്പു  
@@ -10710,8 +10710,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ഇട്ടി തപ്പുലെറുംഗക - യിച്ചവച്ചി  
 നടുല മെലഗുദു രിപ്പു ഡീ - യവനി ജനുലു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 013  
 സീ൤ കോതികി ജലതാരു - കുള്ലായി യേടികി?  
@@ -10725,8 +10725,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ മാട നിലുകഡ കുംകരി - മോടു കേല?  
 ചെവിടിവാനികി സത്കഥ - ശ്രവണ മേല?  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 014  
 സീ൤ മാന്യംബുലീയ സ - മര്ധുഡൊക്കഡു ലേഡു  
@@ -10740,8 +10740,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ യിട്ടി ദുഷ്ടുല കധികാര - മിച്ചിനട്ടി  
 പ്രഭുവു തപ്പു ലടംചുനു - ബലുകവലെനു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 015  
 സീ൤ തല്ലിഗര്ഭമുനുംഡി - ധനമു തേ ഡെവ്വഡു  
@@ -10755,8 +10755,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ തുദകു ദൊംഗല കിത്തുരോ - ദൊരല കവുനൊ  
 തേനെ ജുംടീഗ ലിയ്യവാ - തെരുവരുലകു?  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 016  
 സീ൤ ലോകമം ദെവഡൈന - ലോഭിമാനവു ഡുന്ന  
@@ -10770,8 +10770,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ശ്രീരമാനാഥ ❘ യിടുവംടി - ക്രൂരുനകുനു  
 ഭിക്ഷുകുല ശത്രുവനി - പേരു പെട്ടവച്ചു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 017  
 സീ൤ തനുവുലോ ബ്രാണമുല് = തരളിപൊയ്യെഡിവേള  
@@ -10785,8 +10785,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ കമലനാഭ നീ മഹിമലു - ഗാനലേനി  
 തുച്ഛുലകു മുക്തിദൊരകുട - ദുര്ലഭംബു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 018  
 സീ൤ നീലമേഘശ്യാമ ❘ - നീവെ തംഡ്രിവി മാകു  
@@ -10800,8 +10800,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ തോയജാതാക്ഷ നീ പാദ - തുലസിദളമു  
 രോഗമുല കൌഷധമു ബ്രഹ്മ - രുദ്രവിനുത൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 019  
 സീ൤ ബ്രതികിനന്നാള്ലു നീ - ഭജന തപ്പനു ഗാനി  
@@ -10815,8 +10815,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നാടി കിപ്പുഡെ ചേതു നീ - നാമഭജന  
 തലചെദനു, ജെവി നിഡവയ്യ ❘ - ധൈര്യമുഗനു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 020  
 സീ൤ പാംചഭൌതികമു ദു - ര്ബലമൈന കായം ബി  
@@ -10830,8 +10830,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ മരണമേ നിശ്ചയമു ബുദ്ധി - മംതുഡൈന  
 ദേഹമുന്നംതലോ മിമ്മു - ദെലിയവലയു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 021  
 സീ൤ തല്ലിദംഡ്രുലു ഭാര്യ - തനയു ലാപ്തുലു ബാവ  
@@ -10845,8 +10845,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ചുട്ടമുലമീദി ഭ്രമദീസി - ചൂര ജെക്കി  
 സംതതമു മിമ്മു നമ്മുട - സാര്ഥകംബു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 022  
 സീ൤ ഇഭരാജവരദ ❘ നി - ന്നെംത ബില്ചിനഗാനി  
@@ -10860,8 +10860,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ മോക്ഷദായക ❘ യിടുവംടി - മൂര്ഖജനുനി  
 കഷ്ടപെട്ടിന നീകേമി - കഡുപുനിംഡു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 023  
 സീ൤ നീമീദ കീര്തനല് - നിത്യഗാനമു ജേസി  
@@ -10875,8 +10875,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ സാധുഡനു മൂര്ഖമതി മനു - ഷ്യാധമുഡനു  
 ഹീനുഡനു ജുമ്മി നീവു - ന ന്നേലുകൊനുമു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 024  
 സീ൤ അതിശയംബുഗ ഗല്ല - ലാഡനേര്ചിതിഗാനി  
@@ -10890,8 +10890,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ബംകജാതാക്ഷ ❘ നേ നതി - പാതകുഡനു  
 ദപ്പുലന്നിയു ക്ഷമിയിംപ - ദംഡ്രി വീവെ ❘  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 025  
 സീ൤ ഉര്വിലോ നായുഷ്യ - മുന്ന പര്യംതംബു  
@@ -10905,8 +10905,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ദന്നു വിഡിപിംപ വച്ചെഡി - ധന്യു ഡേഡി  
 മുംദു നീദാസുഡൈ യുന്ന - മുക്തി ഗലുഗു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 026  
 സീ൤ അധിക വിദ്യാവംതു - ലപ്രയോജകുലൈരി  
@@ -10920,8 +10920,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ പക്ഷിവാഹന ❘ മാവംടി - ഭിക്ഷുകുലകു  
 ശക്തിലേദായെ നിക നീവെ - ചാടു മാകു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 027  
 സീ൤ ഭുജബലംബുന ബെദ്ദ - പുലുല ജംപഗവച്ചു  
@@ -10935,8 +10935,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ബുഡമിലോ ദുഷ്ടുലകു ജ്ഞാന - ബോധ തെലിപി  
 സജ്ജനുല ജേയലേ ഡെംത - ചതുരുദൈന൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 028  
 സീ൤ അവനിലോഗല യാത്ര - ലന്നി ചേയഗവച്ചു  
@@ -10950,8 +10950,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ജിത്ത മന്യസ്ഥലംബുന - ജേരകുംഡ  
 നീ പദാംഭോജമുലയംദു - നിലപരാദു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 029  
 സീ൤ കര്ണയുഗ്മമുന നീ - കഥലു സോകിനജാലു  
@@ -10965,8 +10965,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ പൂനി നിനു ഗൊല്ചുടേ സര്വ - ഭൂഷണംബു  
 ലിതര ഭൂഷണമുല നിച്ച - ഗിംപനേല൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 030  
 സീ൤ ഭുവനരക്ഷക ❘ നിന്നു - ബൊഗഡനേരനി നോരു  
@@ -10980,8 +10980,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ പദ്മലോചന നീമീദ - ഭക്തിലേനി  
 മാനവുഡു രെംഡുപാദാല - മഹിഷമയ്യ൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 031  
 സീ൤ അതിവിദ്യനേര്ചുട - അന്നവസ്ത്രമുലകേ  
@@ -10995,8 +10995,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ യിതര കാമംബു ഗോരക - സതതമുഗനു  
 ഭക്തി നീയംദു നിലുപുട - മുക്തി കൊറകെ  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 032  
 സീ൤ ധരണിലോ വേയേംഡ്ലു - തനുവു നില്വഗബോദു  
@@ -11010,8 +11010,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ വെര്രി കുക്കല ഭ്രമലന്നി - വിഡിചി നിന്നു  
 ഭജന ജേസെഡിവാരികി - ബരമസുഖമു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 033  
 സീ൤ നരസിംഹ ❘ നാകു ദു - ര്ണയമുലേ മെംഡായെ  
@@ -11025,8 +11025,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ അബ്ജദളനേത്ര ❘ നാതംഡ്രി - വൈന ഫലമു  
 നേരമുലു ഗാചി രക്ഷിംപു - നീവെ ദിക്കു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 034  
 സീ൤ ധീരത ബരുല നിം - ദിംപ നേര്ചിതി ഗാനി  
@@ -11040,23 +11040,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നവനിലോ നേനു ജന്മിംചി - നംദു കേമി  
 സാര്ഥകമു ഗാനരാദായെ - സ്വല്പമൈന൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 035  
 സീ൤ അംത്യകാലമുനംദു - നായാസമുന നിന്നു  
 ദലതുനോ തലപനോ - തലതു നിപുഡെ  
-നരസിംഹ ❘ നരസിംഹ | - നരസിംഹ | ലക്ഷ്മീശ |  
-ദാനവാംതക ❘ കോടി - ഭാനുതേജ |  
-ഗോവിംദ ❘ ഗോവിംദ | - ഗോവിംദ | സര്വേശ |  
-പന്നഗാധിപശായി ❘ - പദ്മനാഭ |  
-മധുവൈരി ❘ മധുവൈരി | - മധുവൈരി | ലോകേശ |  
-നീലമേഘശരീര ❘ നിഗമവിനുത |  
+നരസിംഹ ❘ നരസിംഹ ｜ - നരസിംഹ ｜ ലക്ഷ്മീശ ｜  
+ദാനവാംതക ❘ കോടി - ഭാനുതേജ ｜  
+ഗോവിംദ ❘ ഗോവിംദ ｜ - ഗോവിംദ ｜ സര്വേശ ｜  
+പന്നഗാധിപശായി ❘ - പദ്മനാഭ ｜  
+മധുവൈരി ❘ മധുവൈരി ｜ - മധുവൈരി ｜ ലോകേശ ｜  
+നീലമേഘശരീര ❘ നിഗമവിനുത ｜  
 
 തേ൤ ഈ വിധംബുന നീനാമ - മിഷ്ടമുഗനു  
 ഭജനസേയുചു നുംദു നാ - ഭാവമംദു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 036  
 സീ൤ ആയുരാരോഗ്യ പു - ത്രാര്ഥ സംപദലന്നി  
@@ -11070,8 +11070,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ അവനിലോ മാനവുല കന്നി - യാസലിച്ചി  
 വ്യര്ഥുലനു ജേസി തെലിപെഡി - വാഡ വീവെ൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 037  
 സീ൤ കായ മെംത ഭയാന - ഗാപാഡിനനുഗാനി  
@@ -11085,8 +11085,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ജീവുനി പ്രയാണകാലംബു - സിദ്ധമൈന  
 നിലുചുനാ ദേഹ മിംദൊക്ക - നിമിഷമൈന?  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 038  
 സീ൤ ജംദെ മിംപുഗ വേസി - സംധ്യ വാര്ചിന നേമി  
@@ -11100,8 +11100,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ എന്നി ലൌകികവേഷാലു - ഗട്ടുകൊനിന  
 ഗുരുനി ജെംദക സന്മുക്തി - ദൊരകബോദു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 039  
 സീ൤ നരസിംഹ ❘ നേ നിന്നു - നമ്മിനംദുകു ജാല  
@@ -11115,8 +11115,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ എചട നന്നുംചിനനുഗാനി - യെപുഡു നിന്നു  
 മറചി പോകുംഡ നീനാമ - സ്മരണനൊസഗു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 040  
 സീ൤ ദേഹ മുന്നവറകു - മോഹസാഗരമംദു  
@@ -11130,8 +11130,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ മത്തുലൈനട്ടി ദുര്ജാതി - മനുജുലെല്ല  
 നിന്നു ഗനലേരു മൊദടികേ - നീരജാക്ഷ൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 041  
 സീ൤ ഇലലോന നേ ജന്മ - മെത്തിനപ്പടിനുംഡി  
@@ -11145,8 +11145,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ സൂര്യശശിനേത്ര ❘ നീചാടു - ജൊച്ചി നാനു  
 കലുഷമുലു ദ്രുംചി നന്നേലു - കഷ്ടമനക൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 042  
 സീ൤ താപസാര്ചിത ❘ നേനു - പാപകര്മുഡനംചു  
@@ -11160,8 +11160,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ദംഡ്രിവൈ നീവു പരപീഡ - ദഗുലജേയ  
 വാസിഗല പേരു കപകീര്തി - വച്ചുനയ്യ൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 043  
 സീ൤ ധരണിലോപല നേനു - തല്ലിഗര്ഭമുനംദു  
@@ -11175,8 +11175,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നളിനദളനേത്ര ❘ നിന്നു നേ - നമ്മിനാനു  
 ജേരി രക്ഷിംപവേ നന്നു - ശീഘ്രമുഗനു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 044  
 സീ൤ അഡവിപക്ഷുല കെവ്വ - ഡാഹാര മിച്ചെനു  
@@ -11190,8 +11190,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ജീവകോട്ലനു ബോഷിംപ - നീവെകാനി  
 വേറെ യൊക ദാത ലേഡയ്യ - വെദകിചൂഡ൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 045  
 സീ൤ ദനുജാരി ❘ നാവംടി - ദാസജാലമു നീകു  
@@ -11205,8 +11205,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ഭൂജനുലലോന നേ നപ്ര - യോജകുഡനു  
 ഗനുക നീ സത്കടാക്ഷംബു - ഗലുഗജേയു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 046  
 സീ൤ കമലലോചന ❘ നന്നു - ഗന്നതംഡ്രിവിഗാന  
@@ -11220,8 +11220,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ കൊസകു നീ ശംഖ ചക്രമുല് - കുദുവബെട്ടി  
 ഗ്രാസമു നൊസംഗി പോഷിംചു - കപടമുഡിഗി൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 047  
 സീ൤ കുവലയശ്യാമ ❘ നീ - കൊലുവു ചേസിന നാകു  
@@ -11235,8 +11235,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നേഡു കരുണിംപകുംടിവാ - നിശ്ചയമുഗ  
 ദെഗബഡിതി ചൂഡു നീതോഡ - ജഗഡമുനകു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 048  
 സീ൤ ഹരി ❘ നീകു ബര്യംക - മൈന ശേഷുഡു ചാല  
@@ -11250,8 +11250,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ സ്വസ്ഥമുഗ നീകു ഗ്രാസമു - ജരുഗുചുംഡു  
 ഗാസു നീ ചേതി ദൊകടൈന - ഗാദു വ്യയമു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 049  
 സീ൤ പുംഡരീകാക്ഷ ❘ നാ - രെംഡു കന്നുല നിംഡ  
@@ -11265,8 +11265,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നേമിടികി വിസ്തരിംചെ നീ - കിംത കീര്തി  
 ദ്രോഹിനൈനനു നാ കീവു - ദൊരകരാദെ?  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 050  
 സീ൤ പച്ചി ചര്മപു ദിത്തി - പസലേദു ദേഹംബു  
@@ -11280,8 +11280,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ബൊംദിലോ നുംഡു പ്രാണമുല് - പോയിനംത  
 ഗാടികേ ഗാനി കൊറഗാദു - ഗവ്വകൈന൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 051  
 സീ൤ പലുരോഗമുലകു നീ - പാദതീരമെ കാനി  
@@ -11295,8 +11295,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ദൊരികിതിവി നാകു ദംഡി വൈ - ദ്യുഡവു നീവു  
 വേയികഷ്ടാലു വച്ചിനന് - വെറവനയ്യ൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 052  
 സീ൤ കൂടികോസരമു നേ - ഗൊറഗാനി ജനുലചേ  
@@ -11310,8 +11310,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നിടുല സംസാരവാരിധി - നീദലേക  
 വേയിവിധമുല നിന്നു നേ - വേഡുകൊംടി൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 053  
 സീ൤ സാധു സജ്ജനുലതോ - ജഗഡമാഡിന ഗീഡു  
@@ -11325,8 +11325,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ദുഷ്ടകാര്യമു ലൊനരിംചു - ദുര്ജനുലകു  
 ഘനതരംബൈന നരകംബു - ഗട്ടിമുല്ലെ൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 054  
 സീ൤ പരുലദ്രവ്യമുമീദ - ഭ്രാംതി നൊംദിനവാഡു  
@@ -11340,8 +11340,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ പ്രജല ജംതുല ഹിംസിംചു - പാതകുംഡു  
 കാലകിംകര ഗദലചേ - ഗഷ്ടമൊംദു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 055  
 സീ൤ നരസിംഹ ❘ നാ തംഡ്രി - നന്നേലു നന്നേലു  
@@ -11355,8 +11355,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ സുരവിനുത ❘ നേനു നീചാടു - ജൊച്ചിനാനു  
 നാ മൊറാലിംചി കഡതേര്ചു - നാഗശയന ❘  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 056  
 സീ൤ നീ ഭക്തുലനു ഗനുല് - നിംഡ ജൂചിയു രെംഡു  
@@ -11370,8 +11370,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ പരമഭക്തുംഡു ധന്യുംഡു - ഭാനുതേജ ❘  
 വാനി ഗനുഗൊന്ന ബുണ്യംബു - വസുധലോന൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 057  
 സീ൤ പക്ഷിവാഹന ❘ നേനു - ബ്രതികിനന്നിദിനാലു  
@@ -11385,8 +11385,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ കൊസകു നീ സന്നിധികി ബില്ചു - കൊനിയു നീകു  
 സേവകുനി ജേസികൊനവയ്യ - ശേഷശയന ❘  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 058  
 സീ൤ നിഗമാദിശാസ്ത്രമുല് - നേര്ചിന ദ്വിജുഡൈന  
@@ -11400,8 +11400,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ഗര്വമുന ഗഷ്ടപഡി നിന്നു - ഗാനകുന്ന  
 മോക്ഷസാമ്രാജ്യ മൊംദഡു - മോഹനാംഗ ❘  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 059  
 സീ൤ പംജരംബുന ഗാകി - ബട്ടി യുംചിന ലെസ്സ  
@@ -11415,8 +11415,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ കുജനുലനു ദെച്ചി നീ സേവ - കൊറകു ബെട്ട  
 വാംഛതോ ജേതുരേ ഭക്ത - വരുലവലെനു?  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 060  
 സീ൤ നീകു ദാസുഡ നംടി - നിന്നു നമ്മുകയുംടി  
@@ -11430,8 +11430,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ശീഘ്രമുഗ ഗോര്കു ലീഡേര്ചു - ചിംത ദീര്ചു  
 നിരതമുഗ നന്നു ബോഷിംചു - നെനരു നുംചു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 061  
 സീ൤ വിദ്യ നേര്ചിതി നംചു - വിര്രവീഗഗലേദു  
@@ -11445,8 +11445,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നലുഗുരികി മെപ്പുഗാനൈന - നഡുവലേദു  
 നളിനദളനേത്ര ❘ നിന്നു നേ - നമ്മിനാനു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 062  
 സീ൤ അതിലോഭുലനു ഭിക്ഷ - മഡുഗബോവുട രോത  
@@ -11458,10 +11458,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ആദായമുലു ലേക - യപ്പുദീയുട രോത  
 ജാര ചോരുല ഗൂഡി - ചനുട രോത  
 
-തേ൤ യാദിലക്ഷ്മീശ ❘ നീബംട - നൈതിനയ്യ |  
+തേ൤ യാദിലക്ഷ്മീശ ❘ നീബംട - നൈതിനയ്യ ｜  
 യിംക നെഡബാസി ജന്മംബു - ലെത്ത രോത൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 063  
 സീ൤ വെര്രിവാനികി നേല - വേദാക്ഷരംബുലു?  
@@ -11475,8 +11475,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ക്രൂരജനുലകു നീമീദ - ഗോരി കേല?  
 ദ്രോഹി പാപാത്മുനകു ദയാ - ദുഃഖ മേല?  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 064  
 സീ൤ നാ തംഡ്രി നാദാത - നായിഷ്ടദൈവമാ  
@@ -11490,8 +11490,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ദംഡിദൊര വംചു നീവെംട - ദഗിലിനാനു  
 നേഡു പ്രത്യക്ഷമൈ നന്നു - നിര്വഹിംപു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 065  
 സീ൤ വേമാറു നീകഥല് - വിനുചു നുംഡെഡിവാഡു  
@@ -11505,8 +11505,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നിന്നു നമ്മിന ഭക്തുംഡു - നിശ്ചയമുഗ  
 ഗോരി ചില്ലര വേല്പുല - ഗൊല്വബോഡു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 066  
 സീ൤ നേ നെംത വേഡിന - നീ കേല ദയരാദു?  
@@ -11520,8 +11520,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ദാത ദൈവംബു തല്ലിയു - ദംഡ്രി വീവെ  
 നമ്മിയുന്നാനു നീപാദ - നളിനമുലനു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 067  
 സീ൤ വേദമുല് ചദിവെഡു - വിപ്രവര്യുംഡൈന  
@@ -11535,8 +11535,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നിന്നു ഗൊനിയാഡുചുംഡെനാ - നിശ്ചയമുഗ  
 വാഡു മോക്ഷാധികാരി യീ - വസുധലോന൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 068  
 സീ൤ സകലവിദ്യലു നേര്ചി - സഭ ജയിംപഗവച്ചു  
@@ -11550,8 +11550,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ താമരസഗര്ഭ ഹര പുരം - ദരുലകൈന  
 നിന്നു വര്ണിംപ ദരമൌനെ - നീരജാക്ഷ ❘  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 069  
 സീ൤ നരസിംഹ ❘ നീവംടി - ദൊരനു സംപാദിംചി  
@@ -11563,10 +11563,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 പെട്ടജാലക യേല - ഭിക്ഷമെത്തിംചെദു  
 നന്നു ബീദനു ജേസി - നാ വദേമി?  
 
-തേ൤ അമല ❘ കമലാക്ഷ | നേ നിട്ലു - ശ്രമപഡംഗ  
+തേ൤ അമല ❘ കമലാക്ഷ ｜ നേ നിട്ലു - ശ്രമപഡംഗ  
 ഗന്നുലകു ബംഡുവൈ നീകു - ഗാനബഡുനെ?  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 070  
 സീ൤ വനരുഹനാഭ ❘ നീ - വംക ജേരിതി നേനു  
@@ -11580,8 +11580,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ഗോപഗാഡനു നീവു നാ - ഗുണമു തെലിസി  
 യിപ്പുഡേ നന്നു രക്ഷിംചി - യേലുകൊമ്മു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 071  
 സീ൤ പ്രഹ്ലാദു ഡേപാടി - പൈഡി കാനുക ലിച്ചെ?  
@@ -11595,8 +11595,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നീകു വീരംദ റയിനട്ലു - നേനു ഗാന?  
 യെംദു കനി നന്നു രക്ഷിംപ - വിംദുവദന ❘  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 072  
 സീ൤ വാംഛതോ ബലിചക്ര - വര്തിദഗ്ഗര ജേരി  
@@ -11610,8 +11610,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ഭക്തുലകു നീവു പെട്ടുട - ഭാഗ്യമൌനു  
 വാരി കാശിംചിതിവി തിംഡി - വാഡ വഗുചു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 073  
 സീ൤ സ്തംഭമം ദുദയിംചി - ദാനവേംദ്രുനി ദ്രുംചി  
@@ -11625,8 +11625,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ വാരിവലെ നന്നു ബോഷിംപ - വശമുഗാദെ?  
 യംത വലപക്ഷ മേല ശ്രീ - കാംത ❘ നീകു?  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 074  
 സീ൤ വ്യാസു ഡേ കുലമംദു - വാസിഗാ ജന്മിംചെ?  
@@ -11640,8 +11640,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നേ കുലംബുന വീ രിംദ - റെച്ചിനാരു?  
 നീകൃപാപാത്രുലകു ജാതി - നീതു ലേല?  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 075  
 സീ൤ വസുധാസ്ഥലംബുന - വര്ണഹീനുഡു ഗാനി  
@@ -11655,8 +11655,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ പ്രതിദിനമു നീദു ഭജനചേ - ബരഗുനട്ടി  
 വാനി കേ വംക ലേദയ്യ - വച്ചു മുക്തി൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 076  
 സീ൤ ഇഭകുംഭമുലമീദി - കെഗിരെഡി സിംഗംബു  
@@ -11670,8 +11670,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നിലനു നീകീര്തനലു പാഡ - നേര്ചിനതഡു  
 പരുലകീര്തന ബാഡുനേ - യരസി ചൂഡ?  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 077  
 സീ൤ സര്വേശ ❘ നീപാദ - സരസിജദ്വയമംദു  
@@ -11685,8 +11685,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ പ്രേമതോ നന്നു ബോഷിംചി - പെംചുകൊനുമു  
 ഘനത കെക്കിംചു നീദാസ - ഗണമുലോന൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 078  
 സീ൤ ജീമൂതവര്ണ ❘ നീ - മോമുതോ സരിരാക  
@@ -11700,8 +11700,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നിംദിരാദേവി നിന്നു മോ - ഹിംചി വിഡക  
 നീകു ബട്ടമഹിഷി യയ്യെ - നിശ്ചയമുഗ൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 079  
 സീ൤ ഹരിദാസുലനു നിംദ - ലാഡകുംഡിന ജാലു  
@@ -11715,8 +11715,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ഒകരി വര്ശാശനമു മുംച - കുന്ന ജാലു  
 ബേരുകീര്തിഗ സത്രമുല് - പെട്ടിനട്ലു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 080  
 സീ൤ ഇഹലോകസൌഖ്യമു - ലിച്ചഗിംചെദ മന്ന  
@@ -11730,8 +11730,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നമ്മരാ ദയ്യ ❘ യിദി മായ - നാടകംബു  
 ജന്മ മിക നൊല്ല ന ന്നേലു - ജലജനാഭ ❘  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 081  
 സീ൤ വദനംബു നീനാമ - ഭജന ഗോരുചുനുംഡു  
@@ -11745,8 +11745,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ സ്വപ്നമുന നൈന നേവേള - സംതതമുനു  
 ബുദ്ധി നീ പാദമുലയംദു - ബൂനിയുംഡു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 082  
 സീ൤ പദ്മാക്ഷ ❘ മമതചേ - ബരമു നംദെദ മംചു  
@@ -11760,23 +11760,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നീ ശരീരാലു പഡിപോവു - ടെറുഗ കേമു  
 കാമുകുല മൈതി മിക മിമ്മു - ഗാനലേമു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 083  
-സീ൤ ഗരുഡവാഹന ❘ ദിവ്യ - കൌസ്തുഭാലംകാര |  
-രവികോടിതേജ ❘ സാ - രംഗവദന |  
-മണിഗണാന്വിത ❘ ഹേമ - മകുടാഭരണ | ചാരു  
-മകരകുംഡല ❘ ലസ - ന്മംദഹാസ |  
-കാംചനാംബര ❘ രത്ന - കാംചിവിഭൂഷിത |  
-സുരവരാര്ചിത ❘ ചംദ്ര - സൂര്യനയന |  
-കമലനാഭ ❘ മുകുംദ | - ഗംഗാധരസ്തുത |  
-രാക്ഷസാംതക ❘ നാഗ - രാജശയന |  
+സീ൤ ഗരുഡവാഹന ❘ ദിവ്യ - കൌസ്തുഭാലംകാര ｜  
+രവികോടിതേജ ❘ സാ - രംഗവദന ｜  
+മണിഗണാന്വിത ❘ ഹേമ - മകുടാഭരണ ｜ ചാരു  
+മകരകുംഡല ❘ ലസ - ന്മംദഹാസ ｜  
+കാംചനാംബര ❘ രത്ന - കാംചിവിഭൂഷിത ｜  
+സുരവരാര്ചിത ❘ ചംദ്ര - സൂര്യനയന ｜  
+കമലനാഭ ❘ മുകുംദ ｜ - ഗംഗാധരസ്തുത ｜  
+രാക്ഷസാംതക ❘ നാഗ - രാജശയന ｜  
 
-തേ൤ പതിതപാവന ❘ ലക്ഷീശ | - ബ്രഹ്മജനക |  
-ഭക്തവത്സല ❘ സര്വേശ | - പരമപുരുഷ |  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+തേ൤ പതിതപാവന ❘ ലക്ഷീശ ｜ - ബ്രഹ്മജനക ｜  
+ഭക്തവത്സല ❘ സര്വേശ ｜ - പരമപുരുഷ ｜  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 084  
 സീ൤ പലുമാറു ദശരൂപ - മുലു ദരിംചിതി വേല?  
@@ -11790,8 +11790,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ വനജലോചന ❘ യിടുവംടി - വൈഭവമുലു  
 സൊഗസുഗാ നീകു ദോചെനോ - സുംദരാംഗ?  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 085  
 സീ൤ തിരുപതി സ്ഥലമംദു - ദിന്നഗാ നേ നുന്ന  
@@ -11805,8 +11805,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ യെംദു ബോവക നേനു നീ - മംദിരമുന  
 നിലിചിതിനി നീകു നാമീദ - നെനരു ലേദു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 086  
 സീ൤ താര്ക്ഷ്യവാഹന ❘ നീവു - ദംഡിദാത വടംചു  
@@ -11820,8 +11820,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നീകു നാവിദ്യ ഹര്ഷംബു - ഗാക യുന്ന  
 തേപതേപകു വേഷമുല് - ദേനു സുമ്മി൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 087  
 സീ൤ അമരേംദ്രവിനുത ❘ നേ - നതിദുരാത്മുഡ നംചു  
@@ -11835,23 +11835,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നഡുപുചുനു നിന്നു ഗൊലിചെദ - നമ്മി ബുദ്ധി  
 നീ പ്രപംചംബു ഗലുഗു നാ - കിംതെ ചാലു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 088  
-സീ൤ ഭുവനേശ ❘ ഗോവിംദ | - രവികോടിസംകാശ |  
-പക്ഷിവാഹന ❘ ഭക്ത - പാരിജാത |  
+സീ൤ ഭുവനേശ ❘ ഗോവിംദ ｜ - രവികോടിസംകാശ ｜  
+പക്ഷിവാഹന ❘ ഭക്ത - പാരിജാത ｜  
 യംഭോജഭവ രുദ്ര - ജംഭാരിസന്നുത ❘  
-സാമഗാനവിലോല ❘ - സാരസാക്ഷ |  
-വനധിഗംഭീര ❘ ശ്രീ - വത്സകൌസ്തുഭവക്ഷ |  
+സാമഗാനവിലോല ❘ - സാരസാക്ഷ ｜  
+വനധിഗംഭീര ❘ ശ്രീ - വത്സകൌസ്തുഭവക്ഷ ｜  
 ശംഖചക്രഗദാസി - ശാര്ജ്ഞഹസ്ത ❘  
-ദീനരക്ഷക ❘ വാസു - ദേവ | ദൈത്യവിനാശ |  
-നാരദാര്ചിത ❘ ദിവ്യ - നാഗശയന |  
+ദീനരക്ഷക ❘ വാസു - ദേവ ｜ ദൈത്യവിനാശ ｜  
+നാരദാര്ചിത ❘ ദിവ്യ - നാഗശയന ｜  
 
 തേ൤ ചാരു നവരത്നകുംഡല - ശ്രവണയുഗള ❘  
-വിബുധവംദിത പാദബ്ജ ❘ - വിശ്വരൂപ |  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+വിബുധവംദിത പാദബ്ജ ❘ - വിശ്വരൂപ ｜  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 089  
 സീ൤ നാഗേംദ്രശയന ❘ നീ - നാമമാധുര്യംബു  
@@ -11865,8 +11865,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ വീരി കെറുകഗു നീകഥല് - വിംത ലെല്ല  
 നരുല കെറു കന്ന നെവരൈന - നവ്വിപോരെ?  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 090  
 സീ൤ അര്ഥു ലേമൈന നി - ന്നഡുഗവച്ചെദ രംചു  
@@ -11879,9 +11879,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 മംചി യോധുല കാവ - ലുംചിനാവു  
 
 തേ൤ ലാവു ഗലവാഡ വൈതി വേ - ലാഗു നേനു  
-നിന്നു ജൂതുനു നാതംഡ്രി ❘ - നീരജാക്ഷ |  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+നിന്നു ജൂതുനു നാതംഡ്രി ❘ - നീരജാക്ഷ ｜  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 091  
 സീ൤ നീകഥല് ചെവുലലോ - സോകുട മൊദലുഗാ  
@@ -11890,13 +11890,13 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 മഗ്നുഡൈ ദേഹംബു - മറചുവാഡു  
 ഫാലംബുതോ നീദു - പാദയുഗ്മമുനകു  
 ബ്രേമതോ ദംഡ മ - ര്പിംചുവാഡു  
-ഹാ പുംഡരീകാക്ഷ ❘ - ഹാ രാമ | ഹരി | യംചു  
+ഹാ പുംഡരീകാക്ഷ ❘ - ഹാ രാമ ｜ ഹരി ｜ യംചു  
 വേഡ്കതോ ഗേകലു - വേയുവാഡു  
 
 തേ൤ ചിത്തകമലംബുനനു നിന്നു - ജേര്ചുവാഡു  
 നീദുലോകംബുനം ദുംഡു - നീരജാക്ഷ ❘  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 092  
 സീ൤ നിഗമഗോചര ❘ നേനു - നീകു മെപ്പഗുനട്ലു  
@@ -11910,8 +11910,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നന്നി ഗലവാഡ വഖില ലോ - കാധിപതിവി ❘  
 നീകു സൊമ്മുലു പെട്ട നേ - നെംതവാഡ ❘  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 093  
 സീ൤ നവസരോജദളാക്ഷ ❘ - നന്നു ബോഷിംചെഡു  
@@ -11925,8 +11925,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ ബരമസംതോഷ മായെ നാ - പ്രാണമുലകു  
 നീ^^ഋണമു ദീര്ചുകൊന നേര - നീരജാക്ഷ ❘  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 094  
 സീ൤ ഫണുലപുട്ടലമീദ - ബവ്വളിംചിനയട്ലു  
@@ -11940,23 +11940,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ സ്വാമി നീ ഭക്തവരുലു ദു - ര്ജനുലതോഡ  
 ജെലിമി ജേസിനയ ട്ലൈന - ജേടു വച്ചു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 095  
-സീ൤ ദനുജസംഹാര ❘ ചക്ര - ധര | നീകു ദംഡംബു  
+സീ൤ ദനുജസംഹാര ❘ ചക്ര - ധര ｜ നീകു ദംഡംബു  
 ലിംദിരാധിപ ❘ നീകു - വംദനംബു  
 പതിതപാവന ❘ നീകു - ബഹുനമസ്കാരമുല്  
 നീരജാതദളാക്ഷ ❘ - നീകു ശരണു  
-വാസവാര്ചിത ❘ മേഘ - വര്ണ | നീകു ശുഭംബു  
+വാസവാര്ചിത ❘ മേഘ - വര്ണ ｜ നീകു ശുഭംബു  
 മംദരധര ❘ നീകു - മംഗളംബു  
-കംബുകംധര ❘ ശാര്ജ്ഗ - കര | നീകു ഭദ്രംബു  
+കംബുകംധര ❘ ശാര്ജ്ഗ - കര ｜ നീകു ഭദ്രംബു  
 ദീനരക്ഷക ❘ നീകു - ദിഗ്വിജയമു  
 
 തേ൤ സകലവൈഭവമുലു നീകു - സാര്വഭൌമ ❘  
 നിത്യകല്യാണമുലു നഗു - നീകു നെപുഡു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 096  
 സീ൤ മത്സ്യാവതാര മൈ - മഡുഗുലോപല ജൊച്ചി  
@@ -11970,8 +11970,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ യുംദു രരവിംദനയന ❘ നീ - യുനികി ദെലിയു  
 വാരലകു വേഗ മോക്ഷംബു - വച്ചു നനഘ ❘  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 097  
 സീ൤ കൂര്മാവതാരമൈ - കുധരംബുക്രിംദനു  
@@ -11984,9 +11984,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 വര്തി നറംപവാ - വൈര മുഡിഗി?  
 
 തേ൤ യിട്ടി പനു ലെല്ല ജേയഗാ - നെവരികേനി  
-തഗുനെ നരസിംഹ ❘ നീകിദി - ദഗുനു ഗാക |  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+തഗുനെ നരസിംഹ ❘ നീകിദി - ദഗുനു ഗാക ｜  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 098  
 സീ൤ ലക്ഷ്മീശ ❘ നീദിവ്യ - ലക്ഷണഗുണമുല  
@@ -12000,8 +12000,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നമ്മിയുന്നാനു നീപാദ - നളിനഭക്തി  
 വേഗ ദയചേസി രക്ഷിംപു - വേദവിദ്യ ❘  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 099  
 സീ൤ അമരേംദ്രവിനുത ❘ നി - ന്നനുസരിംചിനവാരു  
@@ -12015,8 +12015,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നനുചു ബലുമാറു വേഡെദ - നബ്ജനാഭ ❘  
 നാകു ബ്രത്യക്ഷ മഗുമു നിന് - നമ്മിനാനു൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 100  
 സീ൤ ശേഷപ്പ യനു കവി - ചെപ്പിന പദ്യമുല്  
@@ -12030,8 +12030,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 തേ൤ നിദ്ദി പുണ്യാകരം ബനി - യെപുഡു ജനുലു  
 ഗഷട മെന്നക പഠിയിംപ - ഗലുഗു മുക്തി൤  
-ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ |  
-ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര |  
+ഭൂഷണവികാസ ❘ ശ്രീധര്മ - പുരനിവാസ ｜  
+ദുഷ്ടസംഹാര ❘ നരസിംഹ - ദുരിതദൂര ｜  
 
 ## Meaning
 
@@ -12040,19 +12040,19 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ନାରସିଂହ ଶତକମ୍  
 
 001  
-ସୀ୤ ଶ୍ରୀମନୋହର ❘ ସୁରା - ର୍ଚିତ ସିଂଧୁଗଂଭୀର |  
-ଭକ୍ତଵତ୍ସଲ ❘ କୋଟି - ଭାନୁତେଜ |  
-କଂଜନେତ୍ର ❘ ହିରଣ୍ଯ - କଶ୍ଯପାଂତକ | ଶୂର |  
-ସାଧୁରକ୍ଷଣ ❘ ଶଂଖ - ଚକ୍ରହସ୍ତ |  
-ପ୍ରହ୍ଲାଦ ଵରଦ ❘ ପା - ପଧ୍ଵଂସ | ସର୍ଵେଶ |  
-କ୍ଷୀରସାଗରଶାଯି ❘ - କୃଷ୍ଣଵର୍ଣ |  
-ପକ୍ଷିଵାହନ ❘ ନୀଲ - ଭ୍ରମରକୁଂତଲଜାଲ |  
+ସୀ୤ ଶ୍ରୀମନୋହର ❘ ସୁରା - ର୍ଚିତ ସିଂଧୁଗଂଭୀର ｜  
+ଭକ୍ତଵତ୍ସଲ ❘ କୋଟି - ଭାନୁତେଜ ｜  
+କଂଜନେତ୍ର ❘ ହିରଣ୍ଯ - କଶ୍ଯପାଂତକ ｜ ଶୂର ｜  
+ସାଧୁରକ୍ଷଣ ❘ ଶଂଖ - ଚକ୍ରହସ୍ତ ｜  
+ପ୍ରହ୍ଲାଦ ଵରଦ ❘ ପା - ପଧ୍ଵଂସ ｜ ସର୍ଵେଶ ｜  
+କ୍ଷୀରସାଗରଶାଯି ❘ - କୃଷ୍ଣଵର୍ଣ ｜  
+ପକ୍ଷିଵାହନ ❘ ନୀଲ - ଭ୍ରମରକୁଂତଲଜାଲ ｜  
 ପଲ୍ଲଵାରୁଣପାଦ - ପଦ୍ମଯୁଗଳ ❘  
 
 ତେ୤ ଚାରୁଶ୍ରୀଚଂଦନାଗରୁ - ଚର୍ଚିତାଂଗ ❘  
-କୁଂଦକୁଟ୍ମଲଦଂତ ❘ ଵୈ - କୁଂଠଧାମ |  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+କୁଂଦକୁଟ୍ମଲଦଂତ ❘ ଵୈ - କୁଂଠଧାମ ｜  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 002  
 ସୀ୤ ପଦ୍ମଲୋଚନ ❘ ସୀସ - ପଦ୍ଯମୁଲ୍ ନୀ ମୀଦ  
@@ -12066,8 +12066,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଦପ୍ପୁଗଲିଗିନ ସଦ୍ଭକ୍ତି - ତକ୍କୁଵୌନ୆  
 ଚ୆଱କୁନକୁ ଵଂକପୋଯିନ - ଚ୆ଡୁନ୆ ତୀପୁ?  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 003  
 ସୀ୤ ନରସିଂହ ❘ ନୀ ଦିଵ୍ଯ - ନାମମଂତ୍ରମୁଚେତ  
@@ -12081,8 +12081,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଭଳିର ❘ ନେ ନୀ ମହାମଂତ୍ର - ବଲମୁଚେତ  
 ଦିଵ୍ଯ ଵୈକୁଂଠ ପଦଵି ସା - ଧିଂପଵଚ୍ଚୁ  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 004  
 ସୀ୤ ଆଦିନାରାଯଣା ❘ - ଯନୁଚୁ ନାଲୁକତୋଡ  
@@ -12096,8 +12096,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ପରମ ସାତ୍ଵିକୁଲୈନ ନୀ - ଭକ୍ତଵରୁଲ  
 ଦାସୁଲକୁ ଦାସୁଡନୁ ଜୁମୀ - ଧାତ୍ରିଲୋନ  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 005  
 ସୀ୤ ଐଶ୍ଵର୍ଯମୁଲକୁ ନି - ନ୍ନନୁସରିଂପଗଲେଦୁ  
@@ -12111,8 +12111,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନେନୁ ଗୋରିନ ଦ୊କ୍କଟେ - ନୀଲଵର୍ଣ  
 ଚଯ୍ଯନନୁ ମୋକ୍ଷମିଚ୍ଚିନ - ଜାଲୁ ନାକୁ  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 006  
 ସୀ୤ ମଂଦୁଂଡନନି ନନ୍ନୁ - ନିଂଦ ଚେସିନନେମି?  
@@ -12126,8 +12126,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ କଲ୍ପଵୃକ୍ଷଂବୁଵଲ୆ ନୀଵୁ - ଗଲ୍ଗ ନିଂକ  
 ବ୍ରଜଲ ଲକ୍ଷ୍ଯଂବୁ ନାକେଲ? - ପଦ୍ମନାଭ ❘  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 007  
 ସୀ୤ ଚିତ୍ତଶୁଦ୍ଧିଗ ନୀକୁ - ସେଵଜେସ୆ଦଗାନି  
@@ -12141,8 +12141,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ପାରମାର୍ଥିକମୁନକୁ ନେ ବାଟୁପଡିତି  
 ଗୀର୍ତିକି ନପେକ୍ଷପଡଲେଦୁ - କୃଷ୍ଣଵର୍ଣ ❘  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 008  
 ସୀ୤ ଶ୍ରଵଣ ରଂଧ୍ରମୁଲ ନୀ - ସତ୍କଥଲ୍ ପ୊ଗଡଂଗ  
@@ -12156,8 +12156,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଵସୁଧଲୋନ୆ଲ୍ଲ ଵ୍ଯର୍ଧୁଂଡୁ - ଵାଡ୆ ଯଗୁନୁ  
 ମ଱ିଯୁ ଜ୆ଡୁଗାକ ଯ୆ପ୍ପୁଡୁ - ମମତନ୊ଂଦି୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 009  
 ସୀ୤ ଗୌତମୀସ୍ନାନାନ - ଗଡତେ଱ୁଦ ମଟନ୍ନ  
@@ -12171,8 +12171,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ କଷ୍ଟମୁଲକୋର୍ଵ ନାଚେତ - ଗାଦୁ ନିନ୍ନୁ  
 ସ୍ମରଣଚେସ୆ଦ ନା ଯଧା - ଶକ୍ତି କ୊ଲଦି୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 010  
 ସୀ୤ ଅର୍ଥିଵାଂଡ୍ରକୁ ନୀକ - ହାନି ଜେଯୁଟ କଂଟ୆  
@@ -12186,8 +12186,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଜଲଜଦଳନେତ୍ର ନୀ ଭକ୍ତ - ଜନୁଲତୋଡି  
 ଜଗଡମାଡ୆ଡୁ ପନିକଂଟ୆ - ଜାଵୁ ମେଲୁ  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 011  
 ସୀ୤ ଗାର୍ଦଭଂବୁନ କେଲ - କସ୍ତୂରି ତିଲକଂବୁ?  
@@ -12201,8 +12201,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଦ୍ରୋହଚିଂତନ ଜେସ୆ଡି - ଦୁର୍ଜନୁଲକୁ  
 ମଧୁରମୈନଟ୍ଟି ନୀନାମ - ମଂତ୍ରମେଲ?  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 012  
 ସୀ୤ ପସରଂବୁ ଵଂଜୈନ - ବସୁଲକାପରି ତପ୍ପୁ  
@@ -12216,8 +12216,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଇଟ୍ଟି ତପ୍ପୁଲ୆଱ୁଂଗକ - ଯିଚ୍ଚଵଚ୍ଚି  
 ନଟୁଲ ମ୆ଲଗୁଦୁ ରିପ୍ପୁ ଡୀ - ଯଵନି ଜନୁଲୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 013  
 ସୀ୤ କୋତିକି ଜଲତାରୁ - କୁଳ୍ଲାଯି ଯେଟିକି?  
@@ -12231,8 +12231,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ମାଟ ନିଲୁକଡ କୁଂକରି - ମୋଟୁ କେଲ?  
 ଚ୆ଵିଟିଵାନିକି ସତ୍କଥ - ଶ୍ରଵଣ ମେଲ?  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 014  
 ସୀ୤ ମାନ୍ଯଂବୁଲୀଯ ସ - ମର୍ଧୁଡ୊କ୍କଡୁ ଲେଡୁ  
@@ -12246,8 +12246,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଯିଟ୍ଟି ଦୁଷ୍ଟୁଲ କଧିକାର - ମିଚ୍ଚିନଟ୍ଟି  
 ପ୍ରଭୁଵୁ ତପ୍ପୁ ଲଟଂଚୁନୁ - ବଲୁକଵଲ୆ନୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 015  
 ସୀ୤ ତଲ୍ଲିଗର୍ଭମୁନୁଂଡି - ଧନମୁ ତେ ଡ୆ଵ୍ଵଡୁ  
@@ -12261,8 +12261,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ତୁଦକୁ ଦ୊ଂଗଲ କିତ୍ତୁରୋ - ଦ୊ରଲ କଵୁନ୊  
 ତେନ୆ ଜୁଂଟୀଗ ଲିଯ୍ଯଵା - ତ୆ରୁଵରୁଲକୁ?  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 016  
 ସୀ୤ ଲୋକମଂ ଦ୆ଵଡୈନ - ଲୋଭିମାନଵୁ ଡୁନ୍ନ  
@@ -12276,8 +12276,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଶ୍ରୀରମାନାଥ ❘ ଯିଟୁଵଂଟି - କ୍ରୂରୁନକୁନୁ  
 ଭିକ୍ଷୁକୁଲ ଶତ୍ରୁଵନି - ପେରୁ ପ୆ଟ୍ଟଵଚ୍ଚୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 017  
 ସୀ୤ ତନୁଵୁଲୋ ବ୍ରାଣମୁଲ୍ = ତରଳିପ୊ଯ୍ଯ୆ଡିଵେଳ  
@@ -12291,8 +12291,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ କମଲନାଭ ନୀ ମହିମଲୁ - ଗାନଲେନି  
 ତୁଚ୍ଛୁଲକୁ ମୁକ୍ତିଦ୊ରକୁଟ - ଦୁର୍ଲଭଂବୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 018  
 ସୀ୤ ନୀଲମେଘଶ୍ଯାମ ❘ - ନୀଵ୆ ତଂଡ୍ରିଵି ମାକୁ  
@@ -12306,8 +12306,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ତୋଯଜାତାକ୍ଷ ନୀ ପାଦ - ତୁଲସିଦଳମୁ  
 ରୋଗମୁଲ କୌଷଧମୁ ବ୍ରହ୍ମ - ରୁଦ୍ରଵିନୁତ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 019  
 ସୀ୤ ବ୍ରତିକିନନ୍ନାଳ୍ଲୁ ନୀ - ଭଜନ ତପ୍ପନୁ ଗାନି  
@@ -12321,8 +12321,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନାଟି କିପ୍ପୁଡ୆ ଚେତୁ ନୀ - ନାମଭଜନ  
 ତଲଚ୆ଦନୁ, ଜ୆ଵି ନିଡଵଯ୍ଯ ❘ - ଧୈର୍ଯମୁଗନୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 020  
 ସୀ୤ ପାଂଚଭୌତିକମୁ ଦୁ - ର୍ବଲମୈନ କାଯଂ ବି  
@@ -12336,8 +12336,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ମରଣମେ ନିଶ୍ଚଯମୁ ବୁଦ୍ଧି - ମଂତୁଡୈନ  
 ଦେହମୁନ୍ନଂତଲୋ ମିମ୍ମୁ - ଦ୆ଲିଯଵଲଯୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 021  
 ସୀ୤ ତଲ୍ଲିଦଂଡ୍ରୁଲୁ ଭାର୍ଯ - ତନଯୁ ଲାପ୍ତୁଲୁ ବାଵ  
@@ -12351,8 +12351,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଚୁଟ୍ଟମୁଲମୀଦି ଭ୍ରମଦୀସି - ଚୂର ଜ୆କ୍କି  
 ସଂତତମୁ ମିମ୍ମୁ ନମ୍ମୁଟ - ସାର୍ଥକଂବୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 022  
 ସୀ୤ ଇଭରାଜଵରଦ ❘ ନି - ନ୍ନ୆ଂତ ବିଲ୍ଚିନଗାନି  
@@ -12366,8 +12366,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ମୋକ୍ଷଦାଯକ ❘ ଯିଟୁଵଂଟି - ମୂର୍ଖଜନୁନି  
 କଷ୍ଟପ୆ଟ୍ଟିନ ନୀକେମି - କଡୁପୁନିଂଡୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 023  
 ସୀ୤ ନୀମୀଦ କୀର୍ତନଲ୍ - ନିତ୍ଯଗାନମୁ ଜେସି  
@@ -12381,8 +12381,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ସାଧୁଡନୁ ମୂର୍ଖମତି ମନୁ - ଷ୍ଯାଧମୁଡନୁ  
 ହୀନୁଡନୁ ଜୁମ୍ମି ନୀଵୁ - ନ ନ୍ନେଲୁକ୊ନୁମୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 024  
 ସୀ୤ ଅତିଶଯଂବୁଗ ଗଲ୍ଲ - ଲାଡନେର୍ଚିତିଗାନି  
@@ -12396,8 +12396,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ବଂକଜାତାକ୍ଷ ❘ ନେ ନତି - ପାତକୁଡନୁ  
 ଦପ୍ପୁଲନ୍ନିଯୁ କ୍ଷମିଯିଂପ - ଦଂଡ୍ରି ଵୀଵ୆ ❘  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 025  
 ସୀ୤ ଉର୍ଵିଲୋ ନାଯୁଷ୍ଯ - ମୁନ୍ନ ପର୍ଯଂତଂବୁ  
@@ -12411,8 +12411,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଦନ୍ନୁ ଵିଡିପିଂପ ଵଚ୍ଚ୆ଡି - ଧନ୍ଯୁ ଡେଡି  
 ମୁଂଦୁ ନୀଦାସୁଡୈ ଯୁନ୍ନ - ମୁକ୍ତି ଗଲୁଗୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 026  
 ସୀ୤ ଅଧିକ ଵିଦ୍ଯାଵଂତୁ - ଲପ୍ରଯୋଜକୁଲୈରି  
@@ -12426,8 +12426,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ପକ୍ଷିଵାହନ ❘ ମାଵଂଟି - ଭିକ୍ଷୁକୁଲକୁ  
 ଶକ୍ତିଲେଦାଯ୆ ନିକ ନୀଵ୆ - ଚାଟୁ ମାକୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 027  
 ସୀ୤ ଭୁଜବଲଂବୁନ ବ୆ଦ୍ଦ - ପୁଲୁଲ ଜଂପଗଵଚ୍ଚୁ  
@@ -12441,8 +12441,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ବୁଡମିଲୋ ଦୁଷ୍ଟୁଲକୁ ଜ୍ଞାନ - ବୋଧ ତ୆ଲିପି  
 ସଜ୍ଜନୁଲ ଜେଯଲେ ଡ୆ଂତ - ଚତୁରୁଦୈନ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 028  
 ସୀ୤ ଅଵନିଲୋଗଲ ଯାତ୍ର - ଲନ୍ନି ଚେଯଗଵଚ୍ଚୁ  
@@ -12456,8 +12456,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଜିତ୍ତ ମନ୍ଯସ୍ଥଲଂବୁନ - ଜେରକୁଂଡ  
 ନୀ ପଦାଂଭୋଜମୁଲଯଂଦୁ - ନିଲପରାଦୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 029  
 ସୀ୤ କର୍ଣଯୁଗ୍ମମୁନ ନୀ - କଥଲୁ ସୋକିନଜାଲୁ  
@@ -12471,8 +12471,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ପୂନି ନିନୁ ଗ୊ଲ୍ଚୁଟେ ସର୍ଵ - ଭୂଷଣଂବୁ  
 ଲିତର ଭୂଷଣମୁଲ ନିଚ୍ଚ - ଗିଂପନେଲ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 030  
 ସୀ୤ ଭୁଵନରକ୍ଷକ ❘ ନିନ୍ନୁ - ବ୊ଗଡନେରନି ନୋରୁ  
@@ -12486,8 +12486,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ପଦ୍ମଲୋଚନ ନୀମୀଦ - ଭକ୍ତିଲେନି  
 ମାନଵୁଡୁ ର୆ଂଡୁପାଦାଲ - ମହିଷମଯ୍ଯ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 031  
 ସୀ୤ ଅତିଵିଦ୍ଯନେର୍ଚୁଟ - ଅନ୍ନଵସ୍ତ୍ରମୁଲକେ  
@@ -12501,8 +12501,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଯିତର କାମଂବୁ ଗୋରକ - ସତତମୁଗନୁ  
 ଭକ୍ତି ନୀଯଂଦୁ ନିଲୁପୁଟ - ମୁକ୍ତି କ୊଱କ୆  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 032  
 ସୀ୤ ଧରଣିଲୋ ଵେଯେଂଡ୍ଲୁ - ତନୁଵୁ ନିଲ୍ଵଗବୋଦୁ  
@@ -12516,8 +12516,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଵ୆ର୍ରି କୁକ୍କଲ ଭ୍ରମଲନ୍ନି - ଵିଡିଚି ନିନ୍ନୁ  
 ଭଜନ ଜେସ୆ଡିଵାରିକି - ବରମସୁଖମୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 033  
 ସୀ୤ ନରସିଂହ ❘ ନାକୁ ଦୁ - ର୍ଣଯମୁଲେ ମ୆ଂଡାଯ୆  
@@ -12531,8 +12531,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଅବ୍ଜଦଳନେତ୍ର ❘ ନାତଂଡ୍ରି - ଵୈନ ଫଲମୁ  
 ନେରମୁଲୁ ଗାଚି ରକ୍ଷିଂପୁ - ନୀଵ୆ ଦିକ୍କୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 034  
 ସୀ୤ ଧୀରତ ବରୁଲ ନିଂ - ଦିଂପ ନେର୍ଚିତି ଗାନି  
@@ -12546,23 +12546,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନଵନିଲୋ ନେନୁ ଜନ୍ମିଂଚି - ନଂଦୁ କେମି  
 ସାର୍ଥକମୁ ଗାନରାଦାଯ୆ - ସ୍ଵଲ୍ପମୈନ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 035  
 ସୀ୤ ଅଂତ୍ଯକାଲମୁନଂଦୁ - ନାଯାସମୁନ ନିନ୍ନୁ  
 ଦଲତୁନୋ ତଲପନୋ - ତଲତୁ ନିପୁଡ୆  
-ନରସିଂହ ❘ ନରସିଂହ | - ନରସିଂହ | ଲକ୍ଷ୍ମୀଶ |  
-ଦାନଵାଂତକ ❘ କୋଟି - ଭାନୁତେଜ |  
-ଗୋଵିଂଦ ❘ ଗୋଵିଂଦ | - ଗୋଵିଂଦ | ସର୍ଵେଶ |  
-ପନ୍ନଗାଧିପଶାଯି ❘ - ପଦ୍ମନାଭ |  
-ମଧୁଵୈରି ❘ ମଧୁଵୈରି | - ମଧୁଵୈରି | ଲୋକେଶ |  
-ନୀଲମେଘଶରୀର ❘ ନିଗମଵିନୁତ |  
+ନରସିଂହ ❘ ନରସିଂହ ｜ - ନରସିଂହ ｜ ଲକ୍ଷ୍ମୀଶ ｜  
+ଦାନଵାଂତକ ❘ କୋଟି - ଭାନୁତେଜ ｜  
+ଗୋଵିଂଦ ❘ ଗୋଵିଂଦ ｜ - ଗୋଵିଂଦ ｜ ସର୍ଵେଶ ｜  
+ପନ୍ନଗାଧିପଶାଯି ❘ - ପଦ୍ମନାଭ ｜  
+ମଧୁଵୈରି ❘ ମଧୁଵୈରି ｜ - ମଧୁଵୈରି ｜ ଲୋକେଶ ｜  
+ନୀଲମେଘଶରୀର ❘ ନିଗମଵିନୁତ ｜  
 
 ତେ୤ ଈ ଵିଧଂବୁନ ନୀନାମ - ମିଷ୍ଟମୁଗନୁ  
 ଭଜନସେଯୁଚୁ ନୁଂଦୁ ନା - ଭାଵମଂଦୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 036  
 ସୀ୤ ଆଯୁରାରୋଗ୍ଯ ପୁ - ତ୍ରାର୍ଥ ସଂପଦଲନ୍ନି  
@@ -12576,8 +12576,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଅଵନିଲୋ ମାନଵୁଲ କନ୍ନି - ଯାସଲିଚ୍ଚି  
 ଵ୍ଯର୍ଥୁଲନୁ ଜେସି ତ୆ଲିପ୆ଡି - ଵାଡ ଵୀଵ୆୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 037  
 ସୀ୤ କାଯ ମ୆ଂତ ଭଯାନ - ଗାପାଡିନନୁଗାନି  
@@ -12591,8 +12591,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଜୀଵୁନି ପ୍ରଯାଣକାଲଂବୁ - ସିଦ୍ଧମୈନ  
 ନିଲୁଚୁନା ଦେହ ମିଂଦ୊କ୍କ - ନିମିଷମୈନ?  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 038  
 ସୀ୤ ଜଂଦ୆ ମିଂପୁଗ ଵେସି - ସଂଧ୍ଯ ଵାର୍ଚିନ ନେମି  
@@ -12606,8 +12606,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଎ନ୍ନି ଲୌକିକଵେଷାଲୁ - ଗଟ୍ଟୁକ୊ନିନ  
 ଗୁରୁନି ଜ୆ଂଦକ ସନ୍ମୁକ୍ତି - ଦ୊ରକବୋଦୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 039  
 ସୀ୤ ନରସିଂହ ❘ ନେ ନିନ୍ନୁ - ନମ୍ମିନଂଦୁକୁ ଜାଲ  
@@ -12621,8 +12621,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଎ଚଟ ନନ୍ନୁଂଚିନନୁଗାନି - ଯ୆ପୁଡୁ ନିନ୍ନୁ  
 ମ଱ଚି ପୋକୁଂଡ ନୀନାମ - ସ୍ମରଣନ୊ସଗୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 040  
 ସୀ୤ ଦେହ ମୁନ୍ନଵ଱କୁ - ମୋହସାଗରମଂଦୁ  
@@ -12636,8 +12636,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ମତ୍ତୁଲୈନଟ୍ଟି ଦୁର୍ଜାତି - ମନୁଜୁଲ୆ଲ୍ଲ  
 ନିନ୍ନୁ ଗନଲେରୁ ମ୊ଦଟିକେ - ନୀରଜାକ୍ଷ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 041  
 ସୀ୤ ଇଲଲୋନ ନେ ଜନ୍ମ - ମ୆ତ୍ତିନପ୍ପଟିନୁଂଡି  
@@ -12651,8 +12651,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ସୂର୍ଯଶଶିନେତ୍ର ❘ ନୀଚାଟୁ - ଜ୊ଚ୍ଚି ନାନୁ  
 କଲୁଷମୁଲୁ ଦ୍ରୁଂଚି ନନ୍ନେଲୁ - କଷ୍ଟମନକ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 042  
 ସୀ୤ ତାପସାର୍ଚିତ ❘ ନେନୁ - ପାପକର୍ମୁଡନଂଚୁ  
@@ -12666,8 +12666,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଦଂଡ୍ରିଵୈ ନୀଵୁ ପରପୀଡ - ଦଗୁଲଜେଯ  
 ଵାସିଗଲ ପେରୁ କପକୀର୍ତି - ଵଚ୍ଚୁନଯ୍ଯ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 043  
 ସୀ୤ ଧରଣିଲୋପଲ ନେନୁ - ତଲ୍ଲିଗର୍ଭମୁନଂଦୁ  
@@ -12681,8 +12681,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନଳିନଦଳନେତ୍ର ❘ ନିନ୍ନୁ ନେ - ନମ୍ମିନାନୁ  
 ଜେରି ରକ୍ଷିଂପଵେ ନନ୍ନୁ - ଶୀଘ୍ରମୁଗନୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 044  
 ସୀ୤ ଅଡଵିପକ୍ଷୁଲ କ୆ଵ୍ଵ - ଡାହାର ମିଚ୍ଚ୆ନୁ  
@@ -12696,8 +12696,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଜୀଵକୋଟ୍ଲନୁ ବୋଷିଂପ - ନୀଵ୆କାନି  
 ଵେ଱୆ ଯ୊କ ଦାତ ଲେଡଯ୍ଯ - ଵ୆ଦକିଚୂଡ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 045  
 ସୀ୤ ଦନୁଜାରି ❘ ନାଵଂଟି - ଦାସଜାଲମୁ ନୀକୁ  
@@ -12711,8 +12711,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଭୂଜନୁଲଲୋନ ନେ ନପ୍ର - ଯୋଜକୁଡନୁ  
 ଗନୁକ ନୀ ସତ୍କଟାକ୍ଷଂବୁ - ଗଲୁଗଜେଯୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 046  
 ସୀ୤ କମଲଲୋଚନ ❘ ନନ୍ନୁ - ଗନ୍ନତଂଡ୍ରିଵିଗାନ  
@@ -12726,8 +12726,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ କ୊ସକୁ ନୀ ଶଂଖ ଚକ୍ରମୁଲ୍ - କୁଦୁଵବ୆ଟ୍ଟି  
 ଗ୍ରାସମୁ ନ୊ସଂଗି ପୋଷିଂଚୁ - କପଟମୁଡିଗି୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 047  
 ସୀ୤ କୁଵଲଯଶ୍ଯାମ ❘ ନୀ - କ୊ଲୁଵୁ ଚେସିନ ନାକୁ  
@@ -12741,8 +12741,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନେଡୁ କରୁଣିଂପକୁଂଟିଵା - ନିଶ୍ଚଯମୁଗ  
 ଦ୆ଗବଡିତି ଚୂଡୁ ନୀତୋଡ - ଜଗଡମୁନକୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 048  
 ସୀ୤ ହରି ❘ ନୀକୁ ବର୍ଯଂକ - ମୈନ ଶେଷୁଡୁ ଚାଲ  
@@ -12756,8 +12756,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ସ୍ଵସ୍ଥମୁଗ ନୀକୁ ଗ୍ରାସମୁ - ଜରୁଗୁଚୁଂଡୁ  
 ଗାସୁ ନୀ ଚେତି ଦ୊କଟୈନ - ଗାଦୁ ଵ୍ଯଯମୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 049  
 ସୀ୤ ପୁଂଡରୀକାକ୍ଷ ❘ ନା - ର୆ଂଡୁ କନ୍ନୁଲ ନିଂଡ  
@@ -12771,8 +12771,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନେମିଟିକି ଵିସ୍ତରିଂଚ୆ ନୀ - କିଂତ କୀର୍ତି  
 ଦ୍ରୋହିନୈନନୁ ନା କୀଵୁ - ଦ୊ରକରାଦ୆?  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 050  
 ସୀ୤ ପଚ୍ଚି ଚର୍ମପୁ ଦିତ୍ତି - ପସଲେଦୁ ଦେହଂବୁ  
@@ -12786,8 +12786,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ବ୊ଂଦିଲୋ ନୁଂଡୁ ପ୍ରାଣମୁଲ୍ - ପୋଯିନଂତ  
 ଗାଟିକେ ଗାନି କ୊଱ଗାଦୁ - ଗଵ୍ଵକୈନ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 051  
 ସୀ୤ ପଲୁରୋଗମୁଲକୁ ନୀ - ପାଦତୀରମ୆ କାନି  
@@ -12801,8 +12801,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଦ୊ରିକିତିଵି ନାକୁ ଦଂଡି ଵୈ - ଦ୍ଯୁଡଵୁ ନୀଵୁ  
 ଵେଯିକଷ୍ଟାଲୁ ଵଚ୍ଚିନନ୍ - ଵ୆଱ଵନଯ୍ଯ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 052  
 ସୀ୤ କୂଟିକୋସରମୁ ନେ - ଗ୊଱ଗାନି ଜନୁଲଚେ  
@@ -12816,8 +12816,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନିଟୁଲ ସଂସାରଵାରିଧି - ନୀଦଲେକ  
 ଵେଯିଵିଧମୁଲ ନିନ୍ନୁ ନେ - ଵେଡୁକ୊ଂଟି୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 053  
 ସୀ୤ ସାଧୁ ସଜ୍ଜନୁଲତୋ - ଜଗଡମାଡିନ ଗୀଡୁ  
@@ -12831,8 +12831,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଦୁଷ୍ଟକାର୍ଯମୁ ଲ୊ନରିଂଚୁ - ଦୁର୍ଜନୁଲକୁ  
 ଘନତରଂବୈନ ନରକଂବୁ - ଗଟ୍ଟିମୁଲ୍ଲ୆୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 054  
 ସୀ୤ ପରୁଲଦ୍ରଵ୍ଯମୁମୀଦ - ଭ୍ରାଂତି ନ୊ଂଦିନଵାଡୁ  
@@ -12846,8 +12846,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ପ୍ରଜଲ ଜଂତୁଲ ହିଂସିଂଚୁ - ପାତକୁଂଡୁ  
 କାଲକିଂକର ଗଦଲଚେ - ଗଷ୍ଟମ୊ଂଦୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 055  
 ସୀ୤ ନରସିଂହ ❘ ନା ତଂଡ୍ରି - ନନ୍ନେଲୁ ନନ୍ନେଲୁ  
@@ -12861,8 +12861,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ସୁରଵିନୁତ ❘ ନେନୁ ନୀଚାଟୁ - ଜ୊ଚ୍ଚିନାନୁ  
 ନା ମ୊଱ାଲିଂଚି କଡତେର୍ଚୁ - ନାଗଶଯନ ❘  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 056  
 ସୀ୤ ନୀ ଭକ୍ତୁଲନୁ ଗନୁଲ୍ - ନିଂଡ ଜୂଚିଯୁ ର୆ଂଡୁ  
@@ -12876,8 +12876,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ପରମଭକ୍ତୁଂଡୁ ଧନ୍ଯୁଂଡୁ - ଭାନୁତେଜ ❘  
 ଵାନି ଗନୁଗ୊ନ୍ନ ବୁଣ୍ଯଂବୁ - ଵସୁଧଲୋନ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 057  
 ସୀ୤ ପକ୍ଷିଵାହନ ❘ ନେନୁ - ବ୍ରତିକିନନ୍ନିଦିନାଲୁ  
@@ -12891,8 +12891,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ କ୊ସକୁ ନୀ ସନ୍ନିଧିକି ବିଲ୍ଚୁ - କ୊ନିଯୁ ନୀକୁ  
 ସେଵକୁନି ଜେସିକ୊ନଵଯ୍ଯ - ଶେଷଶଯନ ❘  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 058  
 ସୀ୤ ନିଗମାଦିଶାସ୍ତ୍ରମୁଲ୍ - ନେର୍ଚିନ ଦ୍ଵିଜୁଡୈନ  
@@ -12906,8 +12906,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଗର୍ଵମୁନ ଗଷ୍ଟପଡି ନିନ୍ନୁ - ଗାନକୁନ୍ନ  
 ମୋକ୍ଷସାମ୍ରାଜ୍ଯ ମ୊ଂଦଡୁ - ମୋହନାଂଗ ❘  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 059  
 ସୀ୤ ପଂଜରଂବୁନ ଗାକି - ବଟ୍ଟି ଯୁଂଚିନ ଲ୆ସ୍ସ  
@@ -12921,8 +12921,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ କୁଜନୁଲନୁ ଦ୆ଚ୍ଚି ନୀ ସେଵ - କ୊଱କୁ ବ୆ଟ୍ଟ  
 ଵାଂଛତୋ ଜେତୁରେ ଭକ୍ତ - ଵରୁଲଵଲ୆ନୁ?  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 060  
 ସୀ୤ ନୀକୁ ଦାସୁଡ ନଂଟି - ନିନ୍ନୁ ନମ୍ମୁକଯୁଂଟି  
@@ -12936,8 +12936,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଶୀଘ୍ରମୁଗ ଗୋର୍କୁ ଲୀଡେର୍ଚୁ - ଚିଂତ ଦୀର୍ଚୁ  
 ନିରତମୁଗ ନନ୍ନୁ ବୋଷିଂଚୁ - ନ୆ନରୁ ନୁଂଚୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 061  
 ସୀ୤ ଵିଦ୍ଯ ନେର୍ଚିତି ନଂଚୁ - ଵିର୍ରଵୀଗଗଲେଦୁ  
@@ -12951,8 +12951,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନଲୁଗୁରିକି ମ୆ପ୍ପୁଗାନୈନ - ନଡୁଵଲେଦୁ  
 ନଳିନଦଳନେତ୍ର ❘ ନିନ୍ନୁ ନେ - ନମ୍ମିନାନୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 062  
 ସୀ୤ ଅତିଲୋଭୁଲନୁ ଭିକ୍ଷ - ମଡୁଗବୋଵୁଟ ରୋତ  
@@ -12964,10 +12964,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ଆଦାଯମୁଲୁ ଲେକ - ଯପ୍ପୁଦୀଯୁଟ ରୋତ  
 ଜାର ଚୋରୁଲ ଗୂଡି - ଚନୁଟ ରୋତ  
 
-ତେ୤ ଯାଦିଲକ୍ଷ୍ମୀଶ ❘ ନୀବଂଟ - ନୈତିନଯ୍ଯ |  
+ତେ୤ ଯାଦିଲକ୍ଷ୍ମୀଶ ❘ ନୀବଂଟ - ନୈତିନଯ୍ଯ ｜  
 ଯିଂକ ନ୆ଡବାସି ଜନ୍ମଂବୁ - ଲ୆ତ୍ତ ରୋତ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 063  
 ସୀ୤ ଵ୆ର୍ରିଵାନିକି ନେଲ - ଵେଦାକ୍ଷରଂବୁଲୁ?  
@@ -12981,8 +12981,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ କ୍ରୂରଜନୁଲକୁ ନୀମୀଦ - ଗୋରି କେଲ?  
 ଦ୍ରୋହି ପାପାତ୍ମୁନକୁ ଦଯା - ଦୁଃଖ ମେଲ?  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 064  
 ସୀ୤ ନା ତଂଡ୍ରି ନାଦାତ - ନାଯିଷ୍ଟଦୈଵମା  
@@ -12996,8 +12996,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଦଂଡିଦ୊ର ଵଂଚୁ ନୀଵ୆ଂଟ - ଦଗିଲିନାନୁ  
 ନେଡୁ ପ୍ରତ୍ଯକ୍ଷମୈ ନନ୍ନୁ - ନିର୍ଵହିଂପୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 065  
 ସୀ୤ ଵେମା଱ୁ ନୀକଥଲ୍ - ଵିନୁଚୁ ନୁଂଡ୆ଡିଵାଡୁ  
@@ -13011,8 +13011,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନିନ୍ନୁ ନମ୍ମିନ ଭକ୍ତୁଂଡୁ - ନିଶ୍ଚଯମୁଗ  
 ଗୋରି ଚିଲ୍ଲର ଵେଲ୍ପୁଲ - ଗ୊ଲ୍ଵବୋଡୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 066  
 ସୀ୤ ନେ ନ୆ଂତ ଵେଡିନ - ନୀ କେଲ ଦଯରାଦୁ?  
@@ -13026,8 +13026,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଦାତ ଦୈଵଂବୁ ତଲ୍ଲିଯୁ - ଦଂଡ୍ରି ଵୀଵ୆  
 ନମ୍ମିଯୁନ୍ନାନୁ ନୀପାଦ - ନଳିନମୁଲନୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 067  
 ସୀ୤ ଵେଦମୁଲ୍ ଚଦିଵ୆ଡୁ - ଵିପ୍ରଵର୍ଯୁଂଡୈନ  
@@ -13041,8 +13041,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନିନ୍ନୁ ଗ୊ନିଯାଡୁଚୁଂଡ୆ନା - ନିଶ୍ଚଯମୁଗ  
 ଵାଡୁ ମୋକ୍ଷାଧିକାରି ଯୀ - ଵସୁଧଲୋନ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 068  
 ସୀ୤ ସକଲଵିଦ୍ଯଲୁ ନେର୍ଚି - ସଭ ଜଯିଂପଗଵଚ୍ଚୁ  
@@ -13056,8 +13056,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ତାମରସଗର୍ଭ ହର ପୁରଂ - ଦରୁଲକୈନ  
 ନିନ୍ନୁ ଵର୍ଣିଂପ ଦରମୌନ୆ - ନୀରଜାକ୍ଷ ❘  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 069  
 ସୀ୤ ନରସିଂହ ❘ ନୀଵଂଟି - ଦ୊ରନୁ ସଂପାଦିଂଚି  
@@ -13069,10 +13069,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ପ୆ଟ୍ଟଜାଲକ ଯେଲ - ଭିକ୍ଷମ୆ତ୍ତିଂଚ୆ଦୁ  
 ନନ୍ନୁ ବୀଦନୁ ଜେସି - ନା ଵଦେମି?  
 
-ତେ୤ ଅମଲ ❘ କମଲାକ୍ଷ | ନେ ନିଟ୍ଲୁ - ଶ୍ରମପଡଂଗ  
+ତେ୤ ଅମଲ ❘ କମଲାକ୍ଷ ｜ ନେ ନିଟ୍ଲୁ - ଶ୍ରମପଡଂଗ  
 ଗନ୍ନୁଲକୁ ବଂଡୁଵୈ ନୀକୁ - ଗାନବଡୁନ୆?  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 070  
 ସୀ୤ ଵନରୁହନାଭ ❘ ନୀ - ଵଂକ ଜେରିତି ନେନୁ  
@@ -13086,8 +13086,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଗୋପଗାଡନୁ ନୀଵୁ ନା - ଗୁଣମୁ ତ୆ଲିସି  
 ଯିପ୍ପୁଡେ ନନ୍ନୁ ରକ୍ଷିଂଚି - ଯେଲୁକ୊ମ୍ମୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 071  
 ସୀ୤ ପ୍ରହ୍ଲାଦୁ ଡେପାଟି - ପୈଡି କାନୁକ ଲିଚ୍ଚ୆?  
@@ -13101,8 +13101,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନୀକୁ ଵୀରଂଦ ଱ଯିନଟ୍ଲୁ - ନେନୁ ଗାନ?  
 ଯ୆ଂଦୁ କନି ନନ୍ନୁ ରକ୍ଷିଂପ - ଵିଂଦୁଵଦନ ❘  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 072  
 ସୀ୤ ଵାଂଛତୋ ବଲିଚକ୍ର - ଵର୍ତିଦଗ୍ଗର ଜେରି  
@@ -13116,8 +13116,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଭକ୍ତୁଲକୁ ନୀଵୁ ପ୆ଟ୍ଟୁଟ - ଭାଗ୍ଯମୌନୁ  
 ଵାରି କାଶିଂଚିତିଵି ତିଂଡି - ଵାଡ ଵଗୁଚୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 073  
 ସୀ୤ ସ୍ତଂଭମଂ ଦୁଦଯିଂଚି - ଦାନଵେଂଦ୍ରୁନି ଦ୍ରୁଂଚି  
@@ -13131,8 +13131,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଵାରିଵଲ୆ ନନ୍ନୁ ବୋଷିଂପ - ଵଶମୁଗାଦ୆?  
 ଯଂତ ଵଲପକ୍ଷ ମେଲ ଶ୍ରୀ - କାଂତ ❘ ନୀକୁ?  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 074  
 ସୀ୤ ଵ୍ଯାସୁ ଡେ କୁଲମଂଦୁ - ଵାସିଗା ଜନ୍ମିଂଚ୆?  
@@ -13146,8 +13146,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନେ କୁଲଂବୁନ ଵୀ ରିଂଦ - ଱୆ଚ୍ଚିନାରୁ?  
 ନୀକୃପାପାତ୍ରୁଲକୁ ଜାତି - ନୀତୁ ଲେଲ?  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 075  
 ସୀ୤ ଵସୁଧାସ୍ଥଲଂବୁନ - ଵର୍ଣହୀନୁଡୁ ଗାନି  
@@ -13161,8 +13161,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ପ୍ରତିଦିନମୁ ନୀଦୁ ଭଜନଚେ - ବରଗୁନଟ୍ଟି  
 ଵାନି କେ ଵଂକ ଲେଦଯ୍ଯ - ଵଚ୍ଚୁ ମୁକ୍ତି୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 076  
 ସୀ୤ ଇଭକୁଂଭମୁଲମୀଦି - କ୆ଗିର୆ଡି ସିଂଗଂବୁ  
@@ -13176,8 +13176,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନିଲନୁ ନୀକୀର୍ତନଲୁ ପାଡ - ନେର୍ଚିନତଡୁ  
 ପରୁଲକୀର୍ତନ ବାଡୁନେ - ଯରସି ଚୂଡ?  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 077  
 ସୀ୤ ସର୍ଵେଶ ❘ ନୀପାଦ - ସରସିଜଦ୍ଵଯମଂଦୁ  
@@ -13191,8 +13191,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ପ୍ରେମତୋ ନନ୍ନୁ ବୋଷିଂଚି - ପ୆ଂଚୁକ୊ନୁମୁ  
 ଘନତ କ୆କ୍କିଂଚୁ ନୀଦାସ - ଗଣମୁଲୋନ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 078  
 ସୀ୤ ଜୀମୂତଵର୍ଣ ❘ ନୀ - ମୋମୁତୋ ସରିରାକ  
@@ -13206,8 +13206,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନିଂଦିରାଦେଵି ନିନ୍ନୁ ମୋ - ହିଂଚି ଵିଡକ  
 ନୀକୁ ବଟ୍ଟମହିଷି ଯଯ୍ଯ୆ - ନିଶ୍ଚଯମୁଗ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 079  
 ସୀ୤ ହରିଦାସୁଲନୁ ନିଂଦ - ଲାଡକୁଂଡିନ ଜାଲୁ  
@@ -13221,8 +13221,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଒କରି ଵର୍ଶାଶନମୁ ମୁଂଚ - କୁନ୍ନ ଜାଲୁ  
 ବେରୁକୀର୍ତିଗ ସତ୍ରମୁଲ୍ - ପ୆ଟ୍ଟିନଟ୍ଲୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 080  
 ସୀ୤ ଇହଲୋକସୌଖ୍ଯମୁ - ଲିଚ୍ଚଗିଂଚ୆ଦ ମନ୍ନ  
@@ -13236,8 +13236,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନମ୍ମରା ଦଯ୍ଯ ❘ ଯିଦି ମାଯ - ନାଟକଂବୁ  
 ଜନ୍ମ ମିକ ନ୊ଲ୍ଲ ନ ନ୍ନେଲୁ - ଜଲଜନାଭ ❘  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 081  
 ସୀ୤ ଵଦନଂବୁ ନୀନାମ - ଭଜନ ଗୋରୁଚୁନୁଂଡୁ  
@@ -13251,8 +13251,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ସ୍ଵପ୍ନମୁନ ନୈନ ନେଵେଳ - ସଂତତମୁନୁ  
 ବୁଦ୍ଧି ନୀ ପାଦମୁଲଯଂଦୁ - ବୂନିଯୁଂଡୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 082  
 ସୀ୤ ପଦ୍ମାକ୍ଷ ❘ ମମତଚେ - ବରମୁ ନଂଦ୆ଦ ମଂଚୁ  
@@ -13266,23 +13266,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନୀ ଶରୀରାଲୁ ପଡିପୋଵୁ - ଟ୆଱ୁଗ କେମୁ  
 କାମୁକୁଲ ମୈତି ମିକ ମିମ୍ମୁ - ଗାନଲେମୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 083  
-ସୀ୤ ଗରୁଡଵାହନ ❘ ଦିଵ୍ଯ - କୌସ୍ତୁଭାଲଂକାର |  
-ରଵିକୋଟିତେଜ ❘ ସା - ରଂଗଵଦନ |  
-ମଣିଗଣାନ୍ଵିତ ❘ ହେମ - ମକୁଟାଭରଣ | ଚାରୁ  
-ମକରକୁଂଡଲ ❘ ଲସ - ନ୍ମଂଦହାସ |  
-କାଂଚନାଂବର ❘ ରତ୍ନ - କାଂଚିଵିଭୂଷିତ |  
-ସୁରଵରାର୍ଚିତ ❘ ଚଂଦ୍ର - ସୂର୍ଯନଯନ |  
-କମଲନାଭ ❘ ମୁକୁଂଦ | - ଗଂଗାଧରସ୍ତୁତ |  
-ରାକ୍ଷସାଂତକ ❘ ନାଗ - ରାଜଶଯନ |  
+ସୀ୤ ଗରୁଡଵାହନ ❘ ଦିଵ୍ଯ - କୌସ୍ତୁଭାଲଂକାର ｜  
+ରଵିକୋଟିତେଜ ❘ ସା - ରଂଗଵଦନ ｜  
+ମଣିଗଣାନ୍ଵିତ ❘ ହେମ - ମକୁଟାଭରଣ ｜ ଚାରୁ  
+ମକରକୁଂଡଲ ❘ ଲସ - ନ୍ମଂଦହାସ ｜  
+କାଂଚନାଂବର ❘ ରତ୍ନ - କାଂଚିଵିଭୂଷିତ ｜  
+ସୁରଵରାର୍ଚିତ ❘ ଚଂଦ୍ର - ସୂର୍ଯନଯନ ｜  
+କମଲନାଭ ❘ ମୁକୁଂଦ ｜ - ଗଂଗାଧରସ୍ତୁତ ｜  
+ରାକ୍ଷସାଂତକ ❘ ନାଗ - ରାଜଶଯନ ｜  
 
-ତେ୤ ପତିତପାଵନ ❘ ଲକ୍ଷୀଶ | - ବ୍ରହ୍ମଜନକ |  
-ଭକ୍ତଵତ୍ସଲ ❘ ସର୍ଵେଶ | - ପରମପୁରୁଷ |  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ତେ୤ ପତିତପାଵନ ❘ ଲକ୍ଷୀଶ ｜ - ବ୍ରହ୍ମଜନକ ｜  
+ଭକ୍ତଵତ୍ସଲ ❘ ସର୍ଵେଶ ｜ - ପରମପୁରୁଷ ｜  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 084  
 ସୀ୤ ପଲୁମା଱ୁ ଦଶରୂପ - ମୁଲୁ ଦରିଂଚିତି ଵେଲ?  
@@ -13296,8 +13296,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଵନଜଲୋଚନ ❘ ଯିଟୁଵଂଟି - ଵୈଭଵମୁଲୁ  
 ସ୊ଗସୁଗା ନୀକୁ ଦୋଚ୆ନୋ - ସୁଂଦରାଂଗ?  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 085  
 ସୀ୤ ତିରୁପତି ସ୍ଥଲମଂଦୁ - ଦିନ୍ନଗା ନେ ନୁନ୍ନ  
@@ -13311,8 +13311,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଯ୆ଂଦୁ ବୋଵକ ନେନୁ ନୀ - ମଂଦିରମୁନ  
 ନିଲିଚିତିନି ନୀକୁ ନାମୀଦ - ନ୆ନରୁ ଲେଦୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 086  
 ସୀ୤ ତାର୍କ୍ଷ୍ଯଵାହନ ❘ ନୀଵୁ - ଦଂଡିଦାତ ଵଟଂଚୁ  
@@ -13326,8 +13326,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନୀକୁ ନାଵିଦ୍ଯ ହର୍ଷଂବୁ - ଗାକ ଯୁନ୍ନ  
 ତେପତେପକୁ ଵେଷମୁଲ୍ - ଦେନୁ ସୁମ୍ମି୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 087  
 ସୀ୤ ଅମରେଂଦ୍ରଵିନୁତ ❘ ନେ - ନତିଦୁରାତ୍ମୁଡ ନଂଚୁ  
@@ -13341,23 +13341,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନଡୁପୁଚୁନୁ ନିନ୍ନୁ ଗ୊ଲିଚ୆ଦ - ନମ୍ମି ବୁଦ୍ଧି  
 ନୀ ପ୍ରପଂଚଂବୁ ଗଲୁଗୁ ନା - କିଂତ୆ ଚାଲୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 088  
-ସୀ୤ ଭୁଵନେଶ ❘ ଗୋଵିଂଦ | - ରଵିକୋଟିସଂକାଶ |  
-ପକ୍ଷିଵାହନ ❘ ଭକ୍ତ - ପାରିଜାତ |  
+ସୀ୤ ଭୁଵନେଶ ❘ ଗୋଵିଂଦ ｜ - ରଵିକୋଟିସଂକାଶ ｜  
+ପକ୍ଷିଵାହନ ❘ ଭକ୍ତ - ପାରିଜାତ ｜  
 ଯଂଭୋଜଭଵ ରୁଦ୍ର - ଜଂଭାରିସନ୍ନୁତ ❘  
-ସାମଗାନଵିଲୋଲ ❘ - ସାରସାକ୍ଷ |  
-ଵନଧିଗଂଭୀର ❘ ଶ୍ରୀ - ଵତ୍ସକୌସ୍ତୁଭଵକ୍ଷ |  
+ସାମଗାନଵିଲୋଲ ❘ - ସାରସାକ୍ଷ ｜  
+ଵନଧିଗଂଭୀର ❘ ଶ୍ରୀ - ଵତ୍ସକୌସ୍ତୁଭଵକ୍ଷ ｜  
 ଶଂଖଚକ୍ରଗଦାସି - ଶାର୍ଜ୍ଞହସ୍ତ ❘  
-ଦୀନରକ୍ଷକ ❘ ଵାସୁ - ଦେଵ | ଦୈତ୍ଯଵିନାଶ |  
-ନାରଦାର୍ଚିତ ❘ ଦିଵ୍ଯ - ନାଗଶଯନ |  
+ଦୀନରକ୍ଷକ ❘ ଵାସୁ - ଦେଵ ｜ ଦୈତ୍ଯଵିନାଶ ｜  
+ନାରଦାର୍ଚିତ ❘ ଦିଵ୍ଯ - ନାଗଶଯନ ｜  
 
 ତେ୤ ଚାରୁ ନଵରତ୍ନକୁଂଡଲ - ଶ୍ରଵଣଯୁଗଳ ❘  
-ଵିବୁଧଵଂଦିତ ପାଦବ୍ଜ ❘ - ଵିଶ୍ଵରୂପ |  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଵିବୁଧଵଂଦିତ ପାଦବ୍ଜ ❘ - ଵିଶ୍ଵରୂପ ｜  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 089  
 ସୀ୤ ନାଗେଂଦ୍ରଶଯନ ❘ ନୀ - ନାମମାଧୁର୍ଯଂବୁ  
@@ -13371,8 +13371,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଵୀରି କ୆଱ୁକଗୁ ନୀକଥଲ୍ - ଵିଂତ ଲ୆ଲ୍ଲ  
 ନରୁଲ କ୆଱ୁ କନ୍ନ ନ୆ଵରୈନ - ନଵ୍ଵିପୋର୆?  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 090  
 ସୀ୤ ଅର୍ଥୁ ଲେମୈନ ନି - ନ୍ନଡୁଗଵଚ୍ଚ୆ଦ ରଂଚୁ  
@@ -13385,9 +13385,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ମଂଚି ଯୋଧୁଲ କାଵ - ଲୁଂଚିନାଵୁ  
 
 ତେ୤ ଲାଵୁ ଗଲଵାଡ ଵୈତି ଵେ - ଲାଗୁ ନେନୁ  
-ନିନ୍ନୁ ଜୂତୁନୁ ନାତଂଡ୍ରି ❘ - ନୀରଜାକ୍ଷ |  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ନିନ୍ନୁ ଜୂତୁନୁ ନାତଂଡ୍ରି ❘ - ନୀରଜାକ୍ଷ ｜  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 091  
 ସୀ୤ ନୀକଥଲ୍ ଚ୆ଵୁଲଲୋ - ସୋକୁଟ ମ୊ଦଲୁଗା  
@@ -13396,13 +13396,13 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ମଗ୍ନୁଡୈ ଦେହଂବୁ - ମ଱ଚୁଵାଡୁ  
 ଫାଲଂବୁତୋ ନୀଦୁ - ପାଦଯୁଗ୍ମମୁନକୁ  
 ବ୍ରେମତୋ ଦଂଡ ମ - ର୍ପିଂଚୁଵାଡୁ  
-ହା ପୁଂଡରୀକାକ୍ଷ ❘ - ହା ରାମ | ହରି | ଯଂଚୁ  
+ହା ପୁଂଡରୀକାକ୍ଷ ❘ - ହା ରାମ ｜ ହରି ｜ ଯଂଚୁ  
 ଵେଡ୍କତୋ ଗେକଲୁ - ଵେଯୁଵାଡୁ  
 
 ତେ୤ ଚିତ୍ତକମଲଂବୁନନୁ ନିନ୍ନୁ - ଜେର୍ଚୁଵାଡୁ  
 ନୀଦୁଲୋକଂବୁନଂ ଦୁଂଡୁ - ନୀରଜାକ୍ଷ ❘  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 092  
 ସୀ୤ ନିଗମଗୋଚର ❘ ନେନୁ - ନୀକୁ ମ୆ପ୍ପଗୁନଟ୍ଲୁ  
@@ -13416,8 +13416,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନନ୍ନି ଗଲଵାଡ ଵଖିଲ ଲୋ - କାଧିପତିଵି ❘  
 ନୀକୁ ସ୊ମ୍ମୁଲୁ ପ୆ଟ୍ଟ ନେ - ନ୆ଂତଵାଡ ❘  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 093  
 ସୀ୤ ନଵସରୋଜଦଳାକ୍ଷ ❘ - ନନ୍ନୁ ବୋଷିଂଚ୆ଡୁ  
@@ -13431,8 +13431,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ବରମସଂତୋଷ ମାଯ୆ ନା - ପ୍ରାଣମୁଲକୁ  
 ନୀ^^ଋଣମୁ ଦୀର୍ଚୁକ୊ନ ନେର - ନୀରଜାକ୍ଷ ❘  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 094  
 ସୀ୤ ଫଣୁଲପୁଟ୍ଟଲମୀଦ - ବଵ୍ଵଳିଂଚିନଯଟ୍ଲୁ  
@@ -13446,23 +13446,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ସ୍ଵାମି ନୀ ଭକ୍ତଵରୁଲୁ ଦୁ - ର୍ଜନୁଲତୋଡ  
 ଜ୆ଲିମି ଜେସିନଯ ଟ୍ଲୈନ - ଜେଟୁ ଵଚ୍ଚୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 095  
-ସୀ୤ ଦନୁଜସଂହାର ❘ ଚକ୍ର - ଧର | ନୀକୁ ଦଂଡଂବୁ  
+ସୀ୤ ଦନୁଜସଂହାର ❘ ଚକ୍ର - ଧର ｜ ନୀକୁ ଦଂଡଂବୁ  
 ଲିଂଦିରାଧିପ ❘ ନୀକୁ - ଵଂଦନଂବୁ  
 ପତିତପାଵନ ❘ ନୀକୁ - ବହୁନମସ୍କାରମୁଲ୍  
 ନୀରଜାତଦଳାକ୍ଷ ❘ - ନୀକୁ ଶରଣୁ  
-ଵାସଵାର୍ଚିତ ❘ ମେଘ - ଵର୍ଣ | ନୀକୁ ଶୁଭଂବୁ  
+ଵାସଵାର୍ଚିତ ❘ ମେଘ - ଵର୍ଣ ｜ ନୀକୁ ଶୁଭଂବୁ  
 ମଂଦରଧର ❘ ନୀକୁ - ମଂଗଳଂବୁ  
-କଂବୁକଂଧର ❘ ଶାର୍ଜ୍ଗ - କର | ନୀକୁ ଭଦ୍ରଂବୁ  
+କଂବୁକଂଧର ❘ ଶାର୍ଜ୍ଗ - କର ｜ ନୀକୁ ଭଦ୍ରଂବୁ  
 ଦୀନରକ୍ଷକ ❘ ନୀକୁ - ଦିଗ୍ଵିଜଯମୁ  
 
 ତେ୤ ସକଲଵୈଭଵମୁଲୁ ନୀକୁ - ସାର୍ଵଭୌମ ❘  
 ନିତ୍ଯକଲ୍ଯାଣମୁଲୁ ନଗୁ - ନୀକୁ ନ୆ପୁଡୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 096  
 ସୀ୤ ମତ୍ସ୍ଯାଵତାର ମୈ - ମଡୁଗୁଲୋପଲ ଜ୊ଚ୍ଚି  
@@ -13476,8 +13476,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ଯୁଂଦୁ ରରଵିଂଦନଯନ ❘ ନୀ - ଯୁନିକି ଦ୆ଲିଯୁ  
 ଵାରଲକୁ ଵେଗ ମୋକ୍ଷଂବୁ - ଵଚ୍ଚୁ ନନଘ ❘  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 097  
 ସୀ୤ କୂର୍ମାଵତାରମୈ - କୁଧରଂବୁକ୍ରିଂଦନୁ  
@@ -13490,9 +13490,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ଵର୍ତି ନ଱ଂପଵା - ଵୈର ମୁଡିଗି?  
 
 ତେ୤ ଯିଟ୍ଟି ପନୁ ଲ୆ଲ୍ଲ ଜେଯଗା - ନ୆ଵରିକେନି  
-ତଗୁନ୆ ନରସିଂହ ❘ ନୀକିଦି - ଦଗୁନୁ ଗାକ |  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ତଗୁନ୆ ନରସିଂହ ❘ ନୀକିଦି - ଦଗୁନୁ ଗାକ ｜  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 098  
 ସୀ୤ ଲକ୍ଷ୍ମୀଶ ❘ ନୀଦିଵ୍ଯ - ଲକ୍ଷଣଗୁଣମୁଲ  
@@ -13506,8 +13506,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନମ୍ମିଯୁନ୍ନାନୁ ନୀପାଦ - ନଳିନଭକ୍ତି  
 ଵେଗ ଦଯଚେସି ରକ୍ଷିଂପୁ - ଵେଦଵିଦ୍ଯ ❘  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 099  
 ସୀ୤ ଅମରେଂଦ୍ରଵିନୁତ ❘ ନି - ନ୍ନନୁସରିଂଚିନଵାରୁ  
@@ -13521,8 +13521,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନନୁଚୁ ବଲୁମା଱ୁ ଵେଡ୆ଦ - ନବ୍ଜନାଭ ❘  
 ନାକୁ ବ୍ରତ୍ଯକ୍ଷ ମଗୁମୁ ନିନ୍ - ନମ୍ମିନାନୁ୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 100  
 ସୀ୤ ଶେଷପ୍ପ ଯନୁ କଵି - ଚ୆ପ୍ପିନ ପଦ୍ଯମୁଲ୍  
@@ -13536,27 +13536,27 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ତେ୤ ନିଦ୍ଦି ପୁଣ୍ଯାକରଂ ବନି - ଯ୆ପୁଡୁ ଜନୁଲୁ  
 ଗଷଟ ମ୆ନ୍ନକ ପଠିଯିଂପ - ଗଲୁଗୁ ମୁକ୍ତି୤  
-ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ |  
-ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର |  
+ଭୂଷଣଵିକାସ ❘ ଶ୍ରୀଧର୍ମ - ପୁରନିଵାସ ｜  
+ଦୁଷ୍ଟସଂହାର ❘ ନରସିଂହ - ଦୁରିତଦୂର ｜  
 
 ## ShuddhaKannada
 
 ನಾರಸಿಂಹ ಶತಕಮ್  
 
 001  
-ಸೀ೤ ಶ್ರೀಮನೋಹರ ❘ ಸುರಾ - ರ್ಚಿತ ಸಿನ್ಧುಗಮ್ಭೀರ |  
-ಭಕ್ತವತ್ಸಲ ❘ ಕೋಟಿ - ಭಾನುತೇಜ |  
-ಕಞ್ಜನೇತ್ರ ❘ ಹಿರಣ್ಯ - ಕಶ್ಯಪಾನ್ತಕ | ಶೂರ |  
-ಸಾಧುರಕ್ಷಣ ❘ ಶಙ್ಖ - ಚಕ್ರಹಸ್ತ |  
-ಪ್ರಹ್ಲಾದ ವರದ ❘ ಪಾ - ಪಧ್ವಂಸ | ಸರ್ವೇಶ |  
-ಕ್ಷೀರಸಾಗರಶಾಯಿ ❘ - ಕೃಷ್ಣವರ್ಣ |  
-ಪಕ್ಷಿವಾಹನ ❘ ನೀಲ - ಭ್ರಮರಕುನ್ತಲಜಾಲ |  
+ಸೀ೤ ಶ್ರೀಮನೋಹರ ❘ ಸುರಾ - ರ್ಚಿತ ಸಿನ್ಧುಗಮ್ಭೀರ ｜  
+ಭಕ್ತವತ್ಸಲ ❘ ಕೋಟಿ - ಭಾನುತೇಜ ｜  
+ಕಞ್ಜನೇತ್ರ ❘ ಹಿರಣ್ಯ - ಕಶ್ಯಪಾನ್ತಕ ｜ ಶೂರ ｜  
+ಸಾಧುರಕ್ಷಣ ❘ ಶಙ್ಖ - ಚಕ್ರಹಸ್ತ ｜  
+ಪ್ರಹ್ಲಾದ ವರದ ❘ ಪಾ - ಪಧ್ವಂಸ ｜ ಸರ್ವೇಶ ｜  
+ಕ್ಷೀರಸಾಗರಶಾಯಿ ❘ - ಕೃಷ್ಣವರ್ಣ ｜  
+ಪಕ್ಷಿವಾಹನ ❘ ನೀಲ - ಭ್ರಮರಕುನ್ತಲಜಾಲ ｜  
 ಪಲ್ಲವಾರುಣಪಾದ - ಪದ್ಮಯುಗಳ ❘  
 
 ತೇ೤ ಚಾರುಶ್ರೀಚನ್ದನಾಗರು - ಚರ್ಚಿತಾಙ್ಗ ❘  
-ಕುನ್ದಕುಟ್ಮಲದನ್ತ ❘ ವೈ - ಕುಣ್ಠಧಾಮ |  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಕುನ್ದಕುಟ್ಮಲದನ್ತ ❘ ವೈ - ಕುಣ್ಠಧಾಮ ｜  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 002  
 ಸೀ೤ ಪದ್ಮಲೋಚನ ❘ ಸೀಸ - ಪದ್ಯಮುಲ್ ನೀ ಮೀದ  
@@ -13570,8 +13570,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ದಪ್ಪುಗಲಿಗಿನ ಸದ್ಭಕ್ತಿ - ತಕ್ಕುವೌನೆ  
 ಚೆಱಕುನಕು ವಙ್ಕಪೋಯಿನ - ಚೆಡುನೆ ತೀಪು?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 003  
 ಸೀ೤ ನರಸಿಂಹ ❘ ನೀ ದಿವ್ಯ - ನಾಮಮನ್ತ್ರಮುಚೇತ  
@@ -13585,8 +13585,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಭಳಿರ ❘ ನೇ ನೀ ಮಹಾಮನ್ತ್ರ - ಬಲಮುಚೇತ  
 ದಿವ್ಯ ವೈಕುಣ್ಠ ಪದವಿ ಸಾ - ಧಿಮ್ಪವಚ್ಚು  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 004  
 ಸೀ೤ ಆದಿನಾರಾಯಣಾ ❘ - ಯನುಚು ನಾಲುಕತೋಡ  
@@ -13600,8 +13600,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪರಮ ಸಾತ್ವಿಕುಲೈನ ನೀ - ಭಕ್ತವರುಲ  
 ದಾಸುಲಕು ದಾಸುಡನು ಜುಮೀ - ಧಾತ್ರಿಲೋನ  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 005  
 ಸೀ೤ ಐಶ್ವರ್ಯಮುಲಕು ನಿ - ನ್ನನುಸರಿಮ್ಪಗಲೇದು  
@@ -13615,8 +13615,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನೇನು ಗೋರಿನ ದೊಕ್ಕಟೇ - ನೀಲವರ್ಣ  
 ಚಯ್ಯನನು ಮೋಕ್ಷಮಿಚ್ಚಿನ - ಜಾಲು ನಾಕು  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 006  
 ಸೀ೤ ಮನ್ದುಣ್ಡನನಿ ನನ್ನು - ನಿನ್ದ ಚೇಸಿನನೇಮಿ?  
@@ -13630,8 +13630,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಕಲ್ಪವೃಕ್ಷಮ್ಬುವಲೆ ನೀವು - ಗಲ್ಗ ನಿಙ್ಕ  
 ಬ್ರಜಲ ಲಕ್ಷ್ಯಮ್ಬು ನಾಕೇಲ? - ಪದ್ಮನಾಭ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 007  
 ಸೀ೤ ಚಿತ್ತಶುದ್ಧಿಗ ನೀಕು - ಸೇವಜೇಸೆದಗಾನಿ  
@@ -13645,8 +13645,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪಾರಮಾರ್ಥಿಕಮುನಕು ನೇ ಬಾಟುಪಡಿತಿ  
 ಗೀರ್ತಿಕಿ ನಪೇಕ್ಷಪಡಲೇದು - ಕೃಷ್ಣವರ್ಣ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 008  
 ಸೀ೤ ಶ್ರವಣ ರನ್ಧ್ರಮುಲ ನೀ - ಸತ್ಕಥಲ್ ಪೊಗಡಙ್ಗ  
@@ -13660,8 +13660,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ವಸುಧಲೋನೆಲ್ಲ ವ್ಯರ್ಧುಣ್ಡು - ವಾಡೆ ಯಗುನು  
 ಮಱಿಯು ಜೆಡುಗಾಕ ಯೆಪ್ಪುಡು - ಮಮತನೊನ್ದಿ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 009  
 ಸೀ೤ ಗೌತಮೀಸ್ನಾನಾನ - ಗಡತೇಱುದ ಮಟನ್ನ  
@@ -13675,8 +13675,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಕಷ್ಟಮುಲಕೋರ್ವ ನಾಚೇತ - ಗಾದು ನಿನ್ನು  
 ಸ್ಮರಣಚೇಸೆದ ನಾ ಯಧಾ - ಶಕ್ತಿ ಕೊಲದಿ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 010  
 ಸೀ೤ ಅರ್ಥಿವಾಣ್ಡ್ರಕು ನೀಕ - ಹಾನಿ ಜೇಯುಟ ಕಣ್ಟೆ  
@@ -13690,8 +13690,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಜಲಜದಳನೇತ್ರ ನೀ ಭಕ್ತ - ಜನುಲತೋಡಿ  
 ಜಗಡಮಾಡೆಡು ಪನಿಕಣ್ಟೆ - ಜಾವು ಮೇಲು  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 011  
 ಸೀ೤ ಗಾರ್ದಭಮ್ಬುನ ಕೇಲ - ಕಸ್ತೂರಿ ತಿಲಕಮ್ಬು?  
@@ -13705,8 +13705,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ದ್ರೋಹಚಿನ್ತನ ಜೇಸೆಡಿ - ದುರ್ಜನುಲಕು  
 ಮಧುರಮೈನಟ್ಟಿ ನೀನಾಮ - ಮನ್ತ್ರಮೇಲ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 012  
 ಸೀ೤ ಪಸರಮ್ಬು ವಞ್ಜೈನ - ಬಸುಲಕಾಪರಿ ತಪ್ಪು  
@@ -13720,8 +13720,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಇಟ್ಟಿ ತಪ್ಪುಲೆಱುಙ್ಗಕ - ಯಿಚ್ಚವಚ್ಚಿ  
 ನಟುಲ ಮೆಲಗುದು ರಿಪ್ಪು ಡೀ - ಯವನಿ ಜನುಲು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 013  
 ಸೀ೤ ಕೋತಿಕಿ ಜಲತಾರು - ಕುಳ್ಲಾಯಿ ಯೇಟಿಕಿ?  
@@ -13735,8 +13735,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಮಾಟ ನಿಲುಕಡ ಕುಙ್ಕರಿ - ಮೋಟು ಕೇಲ?  
 ಚೆವಿಟಿವಾನಿಕಿ ಸತ್ಕಥ - ಶ್ರವಣ ಮೇಲ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 014  
 ಸೀ೤ ಮಾನ್ಯಮ್ಬುಲೀಯ ಸ - ಮರ್ಧುಡೊಕ್ಕಡು ಲೇಡು  
@@ -13750,8 +13750,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಯಿಟ್ಟಿ ದುಷ್ಟುಲ ಕಧಿಕಾರ - ಮಿಚ್ಚಿನಟ್ಟಿ  
 ಪ್ರಭುವು ತಪ್ಪು ಲಟಞ್ಚುನು - ಬಲುಕವಲೆನು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 015  
 ಸೀ೤ ತಲ್ಲಿಗರ್ಭಮುನುಣ್ಡಿ - ಧನಮು ತೇ ಡೆವ್ವಡು  
@@ -13765,8 +13765,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ತುದಕು ದೊಙ್ಗಲ ಕಿತ್ತುರೋ - ದೊರಲ ಕವುನೊ  
 ತೇನೆ ಜುಣ್ಟೀಗ ಲಿಯ್ಯವಾ - ತೆರುವರುಲಕು?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 016  
 ಸೀ೤ ಲೋಕಮಂ ದೆವಡೈನ - ಲೋಭಿಮಾನವು ಡುನ್ನ  
@@ -13780,8 +13780,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಶ್ರೀರಮಾನಾಥ ❘ ಯಿಟುವಣ್ಟಿ - ಕ್ರೂರುನಕುನು  
 ಭಿಕ್ಷುಕುಲ ಶತ್ರುವನಿ - ಪೇರು ಪೆಟ್ಟವಚ್ಚು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 017  
 ಸೀ೤ ತನುವುಲೋ ಬ್ರಾಣಮುಲ್ = ತರಳಿಪೊಯ್ಯೆಡಿವೇಳ  
@@ -13795,8 +13795,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಕಮಲನಾಭ ನೀ ಮಹಿಮಲು - ಗಾನಲೇನಿ  
 ತುಚ್ಛುಲಕು ಮುಕ್ತಿದೊರಕುಟ - ದುರ್ಲಭಮ್ಬು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 018  
 ಸೀ೤ ನೀಲಮೇಘಶ್ಯಾಮ ❘ - ನೀವೆ ತಣ್ಡ್ರಿವಿ ಮಾಕು  
@@ -13810,8 +13810,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ತೋಯಜಾತಾಕ್ಷ ನೀ ಪಾದ - ತುಲಸಿದಳಮು  
 ರೋಗಮುಲ ಕೌಷಧಮು ಬ್ರಹ್ಮ - ರುದ್ರವಿನುತ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 019  
 ಸೀ೤ ಬ್ರತಿಕಿನನ್ನಾಳ್ಲು ನೀ - ಭಜನ ತಪ್ಪನು ಗಾನಿ  
@@ -13825,8 +13825,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಾಟಿ ಕಿಪ್ಪುಡೆ ಚೇತು ನೀ - ನಾಮಭಜನ  
 ತಲಚೆದನು, ಜೆವಿ ನಿಡವಯ್ಯ ❘ - ಧೈರ್ಯಮುಗನು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 020  
 ಸೀ೤ ಪಾಞ್ಚಭೌತಿಕಮು ದು - ರ್ಬಲಮೈನ ಕಾಯಂ ಬಿ  
@@ -13840,8 +13840,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಮರಣಮೇ ನಿಶ್ಚಯಮು ಬುದ್ಧಿ - ಮನ್ತುಡೈನ  
 ದೇಹಮುನ್ನನ್ತಲೋ ಮಿಮ್ಮು - ದೆಲಿಯವಲಯು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 021  
 ಸೀ೤ ತಲ್ಲಿದಣ್ಡ್ರುಲು ಭಾರ್ಯ - ತನಯು ಲಾಪ್ತುಲು ಬಾವ  
@@ -13855,8 +13855,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಚುಟ್ಟಮುಲಮೀದಿ ಭ್ರಮದೀಸಿ - ಚೂರ ಜೆಕ್ಕಿ  
 ಸನ್ತತಮು ಮಿಮ್ಮು ನಮ್ಮುಟ - ಸಾರ್ಥಕಮ್ಬು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 022  
 ಸೀ೤ ಇಭರಾಜವರದ ❘ ನಿ - ನ್ನೆನ್ತ ಬಿಲ್ಚಿನಗಾನಿ  
@@ -13870,8 +13870,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಮೋಕ್ಷದಾಯಕ ❘ ಯಿಟುವಣ್ಟಿ - ಮೂರ್ಖಜನುನಿ  
 ಕಷ್ಟಪೆಟ್ಟಿನ ನೀಕೇಮಿ - ಕಡುಪುನಿಣ್ಡು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 023  
 ಸೀ೤ ನೀಮೀದ ಕೀರ್ತನಲ್ - ನಿತ್ಯಗಾನಮು ಜೇಸಿ  
@@ -13885,8 +13885,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಸಾಧುಡನು ಮೂರ್ಖಮತಿ ಮನು - ಷ್ಯಾಧಮುಡನು  
 ಹೀನುಡನು ಜುಮ್ಮಿ ನೀವು - ನ ನ್ನೇಲುಕೊನುಮು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 024  
 ಸೀ೤ ಅತಿಶಯಮ್ಬುಗ ಗಲ್ಲ - ಲಾಡನೇರ್ಚಿತಿಗಾನಿ  
@@ -13900,8 +13900,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಬಙ್ಕಜಾತಾಕ್ಷ ❘ ನೇ ನತಿ - ಪಾತಕುಡನು  
 ದಪ್ಪುಲನ್ನಿಯು ಕ್ಷಮಿಯಿಮ್ಪ - ದಣ್ಡ್ರಿ ವೀವೆ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 025  
 ಸೀ೤ ಉರ್ವಿಲೋ ನಾಯುಷ್ಯ - ಮುನ್ನ ಪರ್ಯನ್ತಮ್ಬು  
@@ -13915,8 +13915,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ದನ್ನು ವಿಡಿಪಿಮ್ಪ ವಚ್ಚೆಡಿ - ಧನ್ಯು ಡೇಡಿ  
 ಮುನ್ದು ನೀದಾಸುಡೈ ಯುನ್ನ - ಮುಕ್ತಿ ಗಲುಗು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 026  
 ಸೀ೤ ಅಧಿಕ ವಿದ್ಯಾವನ್ತು - ಲಪ್ರಯೋಜಕುಲೈರಿ  
@@ -13930,8 +13930,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪಕ್ಷಿವಾಹನ ❘ ಮಾವಣ್ಟಿ - ಭಿಕ್ಷುಕುಲಕು  
 ಶಕ್ತಿಲೇದಾಯೆ ನಿಕ ನೀವೆ - ಚಾಟು ಮಾಕು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 027  
 ಸೀ೤ ಭುಜಬಲಮ್ಬುನ ಬೆದ್ದ - ಪುಲುಲ ಜಮ್ಪಗವಚ್ಚು  
@@ -13945,8 +13945,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಬುಡಮಿಲೋ ದುಷ್ಟುಲಕು ಜ್ಞಾನ - ಬೋಧ ತೆಲಿಪಿ  
 ಸಜ್ಜನುಲ ಜೇಯಲೇ ಡೆನ್ತ - ಚತುರುದೈನ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 028  
 ಸೀ೤ ಅವನಿಲೋಗಲ ಯಾತ್ರ - ಲನ್ನಿ ಚೇಯಗವಚ್ಚು  
@@ -13960,8 +13960,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಜಿತ್ತ ಮನ್ಯಸ್ಥಲಮ್ಬುನ - ಜೇರಕುಣ್ಡ  
 ನೀ ಪದಾಮ್ಭೋಜಮುಲಯನ್ದು - ನಿಲಪರಾದು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 029  
 ಸೀ೤ ಕರ್ಣಯುಗ್ಮಮುನ ನೀ - ಕಥಲು ಸೋಕಿನಜಾಲು  
@@ -13975,8 +13975,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪೂನಿ ನಿನು ಗೊಲ್ಚುಟೇ ಸರ್ವ - ಭೂಷಣಮ್ಬು  
 ಲಿತರ ಭೂಷಣಮುಲ ನಿಚ್ಚ - ಗಿಮ್ಪನೇಲ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 030  
 ಸೀ೤ ಭುವನರಕ್ಷಕ ❘ ನಿನ್ನು - ಬೊಗಡನೇರನಿ ನೋರು  
@@ -13990,8 +13990,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪದ್ಮಲೋಚನ ನೀಮೀದ - ಭಕ್ತಿಲೇನಿ  
 ಮಾನವುಡು ರೆಣ್ಡುಪಾದಾಲ - ಮಹಿಷಮಯ್ಯ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 031  
 ಸೀ೤ ಅತಿವಿದ್ಯನೇರ್ಚುಟ - ಅನ್ನವಸ್ತ್ರಮುಲಕೇ  
@@ -14005,8 +14005,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಯಿತರ ಕಾಮಮ್ಬು ಗೋರಕ - ಸತತಮುಗನು  
 ಭಕ್ತಿ ನೀಯನ್ದು ನಿಲುಪುಟ - ಮುಕ್ತಿ ಕೊಱಕೆ  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 032  
 ಸೀ೤ ಧರಣಿಲೋ ವೇಯೇಣ್ಡ್ಲು - ತನುವು ನಿಲ್ವಗಬೋದು  
@@ -14020,8 +14020,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ವೆರ್ರಿ ಕುಕ್ಕಲ ಭ್ರಮಲನ್ನಿ - ವಿಡಿಚಿ ನಿನ್ನು  
 ಭಜನ ಜೇಸೆಡಿವಾರಿಕಿ - ಬರಮಸುಖಮು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 033  
 ಸೀ೤ ನರಸಿಂಹ ❘ ನಾಕು ದು - ರ್ಣಯಮುಲೇ ಮೆಣ್ಡಾಯೆ  
@@ -14035,8 +14035,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಅಬ್ಜದಳನೇತ್ರ ❘ ನಾತಣ್ಡ್ರಿ - ವೈನ ಫಲಮು  
 ನೇರಮುಲು ಗಾಚಿ ರಕ್ಷಿಮ್ಪು - ನೀವೆ ದಿಕ್ಕು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 034  
 ಸೀ೤ ಧೀರತ ಬರುಲ ನಿಂ - ದಿಮ್ಪ ನೇರ್ಚಿತಿ ಗಾನಿ  
@@ -14050,23 +14050,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನವನಿಲೋ ನೇನು ಜನ್ಮಿಞ್ಚಿ - ನನ್ದು ಕೇಮಿ  
 ಸಾರ್ಥಕಮು ಗಾನರಾದಾಯೆ - ಸ್ವಲ್ಪಮೈನ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 035  
 ಸೀ೤ ಅನ್ತ್ಯಕಾಲಮುನನ್ದು - ನಾಯಾಸಮುನ ನಿನ್ನು  
 ದಲತುನೋ ತಲಪನೋ - ತಲತು ನಿಪುಡೆ  
-ನರಸಿಂಹ ❘ ನರಸಿಂಹ | - ನರಸಿಂಹ | ಲಕ್ಷ್ಮೀಶ |  
-ದಾನವಾನ್ತಕ ❘ ಕೋಟಿ - ಭಾನುತೇಜ |  
-ಗೋವಿನ್ದ ❘ ಗೋವಿನ್ದ | - ಗೋವಿನ್ದ | ಸರ್ವೇಶ |  
-ಪನ್ನಗಾಧಿಪಶಾಯಿ ❘ - ಪದ್ಮನಾಭ |  
-ಮಧುವೈರಿ ❘ ಮಧುವೈರಿ | - ಮಧುವೈರಿ | ಲೋಕೇಶ |  
-ನೀಲಮೇಘಶರೀರ ❘ ನಿಗಮವಿನುತ |  
+ನರಸಿಂಹ ❘ ನರಸಿಂಹ ｜ - ನರಸಿಂಹ ｜ ಲಕ್ಷ್ಮೀಶ ｜  
+ದಾನವಾನ್ತಕ ❘ ಕೋಟಿ - ಭಾನುತೇಜ ｜  
+ಗೋವಿನ್ದ ❘ ಗೋವಿನ್ದ ｜ - ಗೋವಿನ್ದ ｜ ಸರ್ವೇಶ ｜  
+ಪನ್ನಗಾಧಿಪಶಾಯಿ ❘ - ಪದ್ಮನಾಭ ｜  
+ಮಧುವೈರಿ ❘ ಮಧುವೈರಿ ｜ - ಮಧುವೈರಿ ｜ ಲೋಕೇಶ ｜  
+ನೀಲಮೇಘಶರೀರ ❘ ನಿಗಮವಿನುತ ｜  
 
 ತೇ೤ ಈ ವಿಧಮ್ಬುನ ನೀನಾಮ - ಮಿಷ್ಟಮುಗನು  
 ಭಜನಸೇಯುಚು ನುನ್ದು ನಾ - ಭಾವಮನ್ದು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 036  
 ಸೀ೤ ಆಯುರಾರೋಗ್ಯ ಪು - ತ್ರಾರ್ಥ ಸಮ್ಪದಲನ್ನಿ  
@@ -14080,8 +14080,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಅವನಿಲೋ ಮಾನವುಲ ಕನ್ನಿ - ಯಾಸಲಿಚ್ಚಿ  
 ವ್ಯರ್ಥುಲನು ಜೇಸಿ ತೆಲಿಪೆಡಿ - ವಾಡ ವೀವೆ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 037  
 ಸೀ೤ ಕಾಯ ಮೆನ್ತ ಭಯಾನ - ಗಾಪಾಡಿನನುಗಾನಿ  
@@ -14095,8 +14095,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಜೀವುನಿ ಪ್ರಯಾಣಕಾಲಮ್ಬು - ಸಿದ್ಧಮೈನ  
 ನಿಲುಚುನಾ ದೇಹ ಮಿನ್ದೊಕ್ಕ - ನಿಮಿಷಮೈನ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 038  
 ಸೀ೤ ಜನ್ದೆ ಮಿಮ್ಪುಗ ವೇಸಿ - ಸನ್ಧ್ಯ ವಾರ್ಚಿನ ನೇಮಿ  
@@ -14110,8 +14110,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಎನ್ನಿ ಲೌಕಿಕವೇಷಾಲು - ಗಟ್ಟುಕೊನಿನ  
 ಗುರುನಿ ಜೆನ್ದಕ ಸನ್ಮುಕ್ತಿ - ದೊರಕಬೋದು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 039  
 ಸೀ೤ ನರಸಿಂಹ ❘ ನೇ ನಿನ್ನು - ನಮ್ಮಿನನ್ದುಕು ಜಾಲ  
@@ -14125,8 +14125,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಎಚಟ ನನ್ನುಞ್ಚಿನನುಗಾನಿ - ಯೆಪುಡು ನಿನ್ನು  
 ಮಱಚಿ ಪೋಕುಣ್ಡ ನೀನಾಮ - ಸ್ಮರಣನೊಸಗು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 040  
 ಸೀ೤ ದೇಹ ಮುನ್ನವಱಕು - ಮೋಹಸಾಗರಮನ್ದು  
@@ -14140,8 +14140,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಮತ್ತುಲೈನಟ್ಟಿ ದುರ್ಜಾತಿ - ಮನುಜುಲೆಲ್ಲ  
 ನಿನ್ನು ಗನಲೇರು ಮೊದಟಿಕೇ - ನೀರಜಾಕ್ಷ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 041  
 ಸೀ೤ ಇಲಲೋನ ನೇ ಜನ್ಮ - ಮೆತ್ತಿನಪ್ಪಟಿನುಣ್ಡಿ  
@@ -14155,8 +14155,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಸೂರ್ಯಶಶಿನೇತ್ರ ❘ ನೀಚಾಟು - ಜೊಚ್ಚಿ ನಾನು  
 ಕಲುಷಮುಲು ದ್ರುಞ್ಚಿ ನನ್ನೇಲು - ಕಷ್ಟಮನಕ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 042  
 ಸೀ೤ ತಾಪಸಾರ್ಚಿತ ❘ ನೇನು - ಪಾಪಕರ್ಮುಡನಞ್ಚು  
@@ -14170,8 +14170,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ದಣ್ಡ್ರಿವೈ ನೀವು ಪರಪೀಡ - ದಗುಲಜೇಯ  
 ವಾಸಿಗಲ ಪೇರು ಕಪಕೀರ್ತಿ - ವಚ್ಚುನಯ್ಯ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 043  
 ಸೀ೤ ಧರಣಿಲೋಪಲ ನೇನು - ತಲ್ಲಿಗರ್ಭಮುನನ್ದು  
@@ -14185,8 +14185,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಳಿನದಳನೇತ್ರ ❘ ನಿನ್ನು ನೇ - ನಮ್ಮಿನಾನು  
 ಜೇರಿ ರಕ್ಷಿಮ್ಪವೇ ನನ್ನು - ಶೀಘ್ರಮುಗನು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 044  
 ಸೀ೤ ಅಡವಿಪಕ್ಷುಲ ಕೆವ್ವ - ಡಾಹಾರ ಮಿಚ್ಚೆನು  
@@ -14200,8 +14200,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಜೀವಕೋಟ್ಲನು ಬೋಷಿಮ್ಪ - ನೀವೆಕಾನಿ  
 ವೇಱೆ ಯೊಕ ದಾತ ಲೇಡಯ್ಯ - ವೆದಕಿಚೂಡ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 045  
 ಸೀ೤ ದನುಜಾರಿ ❘ ನಾವಣ್ಟಿ - ದಾಸಜಾಲಮು ನೀಕು  
@@ -14215,8 +14215,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಭೂಜನುಲಲೋನ ನೇ ನಪ್ರ - ಯೋಜಕುಡನು  
 ಗನುಕ ನೀ ಸತ್ಕಟಾಕ್ಷಮ್ಬು - ಗಲುಗಜೇಯು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 046  
 ಸೀ೤ ಕಮಲಲೋಚನ ❘ ನನ್ನು - ಗನ್ನತಣ್ಡ್ರಿವಿಗಾನ  
@@ -14230,8 +14230,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಕೊಸಕು ನೀ ಶಙ್ಖ ಚಕ್ರಮುಲ್ - ಕುದುವಬೆಟ್ಟಿ  
 ಗ್ರಾಸಮು ನೊಸಙ್ಗಿ ಪೋಷಿಞ್ಚು - ಕಪಟಮುಡಿಗಿ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 047  
 ಸೀ೤ ಕುವಲಯಶ್ಯಾಮ ❘ ನೀ - ಕೊಲುವು ಚೇಸಿನ ನಾಕು  
@@ -14245,8 +14245,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನೇಡು ಕರುಣಿಮ್ಪಕುಣ್ಟಿವಾ - ನಿಶ್ಚಯಮುಗ  
 ದೆಗಬಡಿತಿ ಚೂಡು ನೀತೋಡ - ಜಗಡಮುನಕು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 048  
 ಸೀ೤ ಹರಿ ❘ ನೀಕು ಬರ್ಯಙ್ಕ - ಮೈನ ಶೇಷುಡು ಚಾಲ  
@@ -14260,8 +14260,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಸ್ವಸ್ಥಮುಗ ನೀಕು ಗ್ರಾಸಮು - ಜರುಗುಚುಣ್ಡು  
 ಗಾಸು ನೀ ಚೇತಿ ದೊಕಟೈನ - ಗಾದು ವ್ಯಯಮು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 049  
 ಸೀ೤ ಪುಣ್ಡರೀಕಾಕ್ಷ ❘ ನಾ - ರೆಣ್ಡು ಕನ್ನುಲ ನಿಣ್ಡ  
@@ -14275,8 +14275,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನೇಮಿಟಿಕಿ ವಿಸ್ತರಿಞ್ಚೆ ನೀ - ಕಿನ್ತ ಕೀರ್ತಿ  
 ದ್ರೋಹಿನೈನನು ನಾ ಕೀವು - ದೊರಕರಾದೆ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 050  
 ಸೀ೤ ಪಚ್ಚಿ ಚರ್ಮಪು ದಿತ್ತಿ - ಪಸಲೇದು ದೇಹಮ್ಬು  
@@ -14290,8 +14290,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಬೊನ್ದಿಲೋ ನುಣ್ಡು ಪ್ರಾಣಮುಲ್ - ಪೋಯಿನನ್ತ  
 ಗಾಟಿಕೇ ಗಾನಿ ಕೊಱಗಾದು - ಗವ್ವಕೈನ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 051  
 ಸೀ೤ ಪಲುರೋಗಮುಲಕು ನೀ - ಪಾದತೀರಮೆ ಕಾನಿ  
@@ -14305,8 +14305,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ದೊರಿಕಿತಿವಿ ನಾಕು ದಣ್ಡಿ ವೈ - ದ್ಯುಡವು ನೀವು  
 ವೇಯಿಕಷ್ಟಾಲು ವಚ್ಚಿನನ್ - ವೆಱವನಯ್ಯ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 052  
 ಸೀ೤ ಕೂಟಿಕೋಸರಮು ನೇ - ಗೊಱಗಾನಿ ಜನುಲಚೇ  
@@ -14320,8 +14320,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಿಟುಲ ಸಂಸಾರವಾರಿಧಿ - ನೀದಲೇಕ  
 ವೇಯಿವಿಧಮುಲ ನಿನ್ನು ನೇ - ವೇಡುಕೊಣ್ಟಿ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 053  
 ಸೀ೤ ಸಾಧು ಸಜ್ಜನುಲತೋ - ಜಗಡಮಾಡಿನ ಗೀಡು  
@@ -14335,8 +14335,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ದುಷ್ಟಕಾರ್ಯಮು ಲೊನರಿಞ್ಚು - ದುರ್ಜನುಲಕು  
 ಘನತರಮ್ಬೈನ ನರಕಮ್ಬು - ಗಟ್ಟಿಮುಲ್ಲೆ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 054  
 ಸೀ೤ ಪರುಲದ್ರವ್ಯಮುಮೀದ - ಭ್ರಾನ್ತಿ ನೊನ್ದಿನವಾಡು  
@@ -14350,8 +14350,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪ್ರಜಲ ಜನ್ತುಲ ಹಿಂಸಿಞ್ಚು - ಪಾತಕುಣ್ಡು  
 ಕಾಲಕಿಙ್ಕರ ಗದಲಚೇ - ಗಷ್ಟಮೊನ್ದು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 055  
 ಸೀ೤ ನರಸಿಂಹ ❘ ನಾ ತಣ್ಡ್ರಿ - ನನ್ನೇಲು ನನ್ನೇಲು  
@@ -14365,8 +14365,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಸುರವಿನುತ ❘ ನೇನು ನೀಚಾಟು - ಜೊಚ್ಚಿನಾನು  
 ನಾ ಮೊಱಾಲಿಞ್ಚಿ ಕಡತೇರ್ಚು - ನಾಗಶಯನ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 056  
 ಸೀ೤ ನೀ ಭಕ್ತುಲನು ಗನುಲ್ - ನಿಣ್ಡ ಜೂಚಿಯು ರೆಣ್ಡು  
@@ -14380,8 +14380,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪರಮಭಕ್ತುಣ್ಡು ಧನ್ಯುಣ್ಡು - ಭಾನುತೇಜ ❘  
 ವಾನಿ ಗನುಗೊನ್ನ ಬುಣ್ಯಮ್ಬು - ವಸುಧಲೋನ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 057  
 ಸೀ೤ ಪಕ್ಷಿವಾಹನ ❘ ನೇನು - ಬ್ರತಿಕಿನನ್ನಿದಿನಾಲು  
@@ -14395,8 +14395,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಕೊಸಕು ನೀ ಸನ್ನಿಧಿಕಿ ಬಿಲ್ಚು - ಕೊನಿಯು ನೀಕು  
 ಸೇವಕುನಿ ಜೇಸಿಕೊನವಯ್ಯ - ಶೇಷಶಯನ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 058  
 ಸೀ೤ ನಿಗಮಾದಿಶಾಸ್ತ್ರಮುಲ್ - ನೇರ್ಚಿನ ದ್ವಿಜುಡೈನ  
@@ -14410,8 +14410,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಗರ್ವಮುನ ಗಷ್ಟಪಡಿ ನಿನ್ನು - ಗಾನಕುನ್ನ  
 ಮೋಕ್ಷಸಾಮ್ರಾಜ್ಯ ಮೊನ್ದಡು - ಮೋಹನಾಙ್ಗ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 059  
 ಸೀ೤ ಪಞ್ಜರಮ್ಬುನ ಗಾಕಿ - ಬಟ್ಟಿ ಯುಞ್ಚಿನ ಲೆಸ್ಸ  
@@ -14425,8 +14425,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಕುಜನುಲನು ದೆಚ್ಚಿ ನೀ ಸೇವ - ಕೊಱಕು ಬೆಟ್ಟ  
 ವಾಞ್ಛತೋ ಜೇತುರೇ ಭಕ್ತ - ವರುಲವಲೆನು?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 060  
 ಸೀ೤ ನೀಕು ದಾಸುಡ ನಣ್ಟಿ - ನಿನ್ನು ನಮ್ಮುಕಯುಣ್ಟಿ  
@@ -14440,8 +14440,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಶೀಘ್ರಮುಗ ಗೋರ್ಕು ಲೀಡೇರ್ಚು - ಚಿನ್ತ ದೀರ್ಚು  
 ನಿರತಮುಗ ನನ್ನು ಬೋಷಿಞ್ಚು - ನೆನರು ನುಞ್ಚು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 061  
 ಸೀ೤ ವಿದ್ಯ ನೇರ್ಚಿತಿ ನಞ್ಚು - ವಿರ್ರವೀಗಗಲೇದು  
@@ -14455,8 +14455,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಲುಗುರಿಕಿ ಮೆಪ್ಪುಗಾನೈನ - ನಡುವಲೇದು  
 ನಳಿನದಳನೇತ್ರ ❘ ನಿನ್ನು ನೇ - ನಮ್ಮಿನಾನು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 062  
 ಸೀ೤ ಅತಿಲೋಭುಲನು ಭಿಕ್ಷ - ಮಡುಗಬೋವುಟ ರೋತ  
@@ -14468,10 +14468,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ಆದಾಯಮುಲು ಲೇಕ - ಯಪ್ಪುದೀಯುಟ ರೋತ  
 ಜಾರ ಚೋರುಲ ಗೂಡಿ - ಚನುಟ ರೋತ  
 
-ತೇ೤ ಯಾದಿಲಕ್ಷ್ಮೀಶ ❘ ನೀಬಣ್ಟ - ನೈತಿನಯ್ಯ |  
+ತೇ೤ ಯಾದಿಲಕ್ಷ್ಮೀಶ ❘ ನೀಬಣ್ಟ - ನೈತಿನಯ್ಯ ｜  
 ಯಿಙ್ಕ ನೆಡಬಾಸಿ ಜನ್ಮಮ್ಬು - ಲೆತ್ತ ರೋತ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 063  
 ಸೀ೤ ವೆರ್ರಿವಾನಿಕಿ ನೇಲ - ವೇದಾಕ್ಷರಮ್ಬುಲು?  
@@ -14485,8 +14485,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಕ್ರೂರಜನುಲಕು ನೀಮೀದ - ಗೋರಿ ಕೇಲ?  
 ದ್ರೋಹಿ ಪಾಪಾತ್ಮುನಕು ದಯಾ - ದುಃಖ ಮೇಲ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 064  
 ಸೀ೤ ನಾ ತಣ್ಡ್ರಿ ನಾದಾತ - ನಾಯಿಷ್ಟದೈವಮಾ  
@@ -14500,8 +14500,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ದಣ್ಡಿದೊರ ವಞ್ಚು ನೀವೆಣ್ಟ - ದಗಿಲಿನಾನು  
 ನೇಡು ಪ್ರತ್ಯಕ್ಷಮೈ ನನ್ನು - ನಿರ್ವಹಿಮ್ಪು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 065  
 ಸೀ೤ ವೇಮಾಱು ನೀಕಥಲ್ - ವಿನುಚು ನುಣ್ಡೆಡಿವಾಡು  
@@ -14515,8 +14515,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಿನ್ನು ನಮ್ಮಿನ ಭಕ್ತುಣ್ಡು - ನಿಶ್ಚಯಮುಗ  
 ಗೋರಿ ಚಿಲ್ಲರ ವೇಲ್ಪುಲ - ಗೊಲ್ವಬೋಡು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 066  
 ಸೀ೤ ನೇ ನೆನ್ತ ವೇಡಿನ - ನೀ ಕೇಲ ದಯರಾದು?  
@@ -14530,8 +14530,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ದಾತ ದೈವಮ್ಬು ತಲ್ಲಿಯು - ದಣ್ಡ್ರಿ ವೀವೆ  
 ನಮ್ಮಿಯುನ್ನಾನು ನೀಪಾದ - ನಳಿನಮುಲನು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 067  
 ಸೀ೤ ವೇದಮುಲ್ ಚದಿವೆಡು - ವಿಪ್ರವರ್ಯುಣ್ಡೈನ  
@@ -14545,8 +14545,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಿನ್ನು ಗೊನಿಯಾಡುಚುಣ್ಡೆನಾ - ನಿಶ್ಚಯಮುಗ  
 ವಾಡು ಮೋಕ್ಷಾಧಿಕಾರಿ ಯೀ - ವಸುಧಲೋನ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 068  
 ಸೀ೤ ಸಕಲವಿದ್ಯಲು ನೇರ್ಚಿ - ಸಭ ಜಯಿಮ್ಪಗವಚ್ಚು  
@@ -14560,8 +14560,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ತಾಮರಸಗರ್ಭ ಹರ ಪುರಂ - ದರುಲಕೈನ  
 ನಿನ್ನು ವರ್ಣಿಮ್ಪ ದರಮೌನೆ - ನೀರಜಾಕ್ಷ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 069  
 ಸೀ೤ ನರಸಿಂಹ ❘ ನೀವಣ್ಟಿ - ದೊರನು ಸಮ್ಪಾದಿಞ್ಚಿ  
@@ -14573,10 +14573,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ಪೆಟ್ಟಜಾಲಕ ಯೇಲ - ಭಿಕ್ಷಮೆತ್ತಿಞ್ಚೆದು  
 ನನ್ನು ಬೀದನು ಜೇಸಿ - ನಾ ವದೇಮಿ?  
 
-ತೇ೤ ಅಮಲ ❘ ಕಮಲಾಕ್ಷ | ನೇ ನಿಟ್ಲು - ಶ್ರಮಪಡಙ್ಗ  
+ತೇ೤ ಅಮಲ ❘ ಕಮಲಾಕ್ಷ ｜ ನೇ ನಿಟ್ಲು - ಶ್ರಮಪಡಙ್ಗ  
 ಗನ್ನುಲಕು ಬಣ್ಡುವೈ ನೀಕು - ಗಾನಬಡುನೆ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 070  
 ಸೀ೤ ವನರುಹನಾಭ ❘ ನೀ - ವಙ್ಕ ಜೇರಿತಿ ನೇನು  
@@ -14590,8 +14590,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಗೋಪಗಾಡನು ನೀವು ನಾ - ಗುಣಮು ತೆಲಿಸಿ  
 ಯಿಪ್ಪುಡೇ ನನ್ನು ರಕ್ಷಿಞ್ಚಿ - ಯೇಲುಕೊಮ್ಮು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 071  
 ಸೀ೤ ಪ್ರಹ್ಲಾದು ಡೇಪಾಟಿ - ಪೈಡಿ ಕಾನುಕ ಲಿಚ್ಚೆ?  
@@ -14605,8 +14605,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನೀಕು ವೀರನ್ದ ಱಯಿನಟ್ಲು - ನೇನು ಗಾನ?  
 ಯೆನ್ದು ಕನಿ ನನ್ನು ರಕ್ಷಿಮ್ಪ - ವಿನ್ದುವದನ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 072  
 ಸೀ೤ ವಾಞ್ಛತೋ ಬಲಿಚಕ್ರ - ವರ್ತಿದಗ್ಗರ ಜೇರಿ  
@@ -14620,8 +14620,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಭಕ್ತುಲಕು ನೀವು ಪೆಟ್ಟುಟ - ಭಾಗ್ಯಮೌನು  
 ವಾರಿ ಕಾಶಿಞ್ಚಿತಿವಿ ತಿಣ್ಡಿ - ವಾಡ ವಗುಚು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 073  
 ಸೀ೤ ಸ್ತಮ್ಭಮಂ ದುದಯಿಞ್ಚಿ - ದಾನವೇನ್ದ್ರುನಿ ದ್ರುಞ್ಚಿ  
@@ -14635,8 +14635,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ವಾರಿವಲೆ ನನ್ನು ಬೋಷಿಮ್ಪ - ವಶಮುಗಾದೆ?  
 ಯನ್ತ ವಲಪಕ್ಷ ಮೇಲ ಶ್ರೀ - ಕಾನ್ತ ❘ ನೀಕು?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 074  
 ಸೀ೤ ವ್ಯಾಸು ಡೇ ಕುಲಮನ್ದು - ವಾಸಿಗಾ ಜನ್ಮಿಞ್ಚೆ?  
@@ -14650,8 +14650,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನೇ ಕುಲಮ್ಬುನ ವೀ ರಿನ್ದ - ಱೆಚ್ಚಿನಾರು?  
 ನೀಕೃಪಾಪಾತ್ರುಲಕು ಜಾತಿ - ನೀತು ಲೇಲ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 075  
 ಸೀ೤ ವಸುಧಾಸ್ಥಲಮ್ಬುನ - ವರ್ಣಹೀನುಡು ಗಾನಿ  
@@ -14665,8 +14665,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪ್ರತಿದಿನಮು ನೀದು ಭಜನಚೇ - ಬರಗುನಟ್ಟಿ  
 ವಾನಿ ಕೇ ವಙ್ಕ ಲೇದಯ್ಯ - ವಚ್ಚು ಮುಕ್ತಿ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 076  
 ಸೀ೤ ಇಭಕುಮ್ಭಮುಲಮೀದಿ - ಕೆಗಿರೆಡಿ ಸಿಙ್ಗಮ್ಬು  
@@ -14680,8 +14680,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಿಲನು ನೀಕೀರ್ತನಲು ಪಾಡ - ನೇರ್ಚಿನತಡು  
 ಪರುಲಕೀರ್ತನ ಬಾಡುನೇ - ಯರಸಿ ಚೂಡ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 077  
 ಸೀ೤ ಸರ್ವೇಶ ❘ ನೀಪಾದ - ಸರಸಿಜದ್ವಯಮನ್ದು  
@@ -14695,8 +14695,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಪ್ರೇಮತೋ ನನ್ನು ಬೋಷಿಞ್ಚಿ - ಪೆಞ್ಚುಕೊನುಮು  
 ಘನತ ಕೆಕ್ಕಿಞ್ಚು ನೀದಾಸ - ಗಣಮುಲೋನ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 078  
 ಸೀ೤ ಜೀಮೂತವರ್ಣ ❘ ನೀ - ಮೋಮುತೋ ಸರಿರಾಕ  
@@ -14710,8 +14710,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಿನ್ದಿರಾದೇವಿ ನಿನ್ನು ಮೋ - ಹಿಞ್ಚಿ ವಿಡಕ  
 ನೀಕು ಬಟ್ಟಮಹಿಷಿ ಯಯ್ಯೆ - ನಿಶ್ಚಯಮುಗ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 079  
 ಸೀ೤ ಹರಿದಾಸುಲನು ನಿನ್ದ - ಲಾಡಕುಣ್ಡಿನ ಜಾಲು  
@@ -14725,8 +14725,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಒಕರಿ ವರ್ಶಾಶನಮು ಮುಞ್ಚ - ಕುನ್ನ ಜಾಲು  
 ಬೇರುಕೀರ್ತಿಗ ಸತ್ರಮುಲ್ - ಪೆಟ್ಟಿನಟ್ಲು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 080  
 ಸೀ೤ ಇಹಲೋಕಸೌಖ್ಯಮು - ಲಿಚ್ಚಗಿಞ್ಚೆದ ಮನ್ನ  
@@ -14740,8 +14740,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಮ್ಮರಾ ದಯ್ಯ ❘ ಯಿದಿ ಮಾಯ - ನಾಟಕಮ್ಬು  
 ಜನ್ಮ ಮಿಕ ನೊಲ್ಲ ನ ನ್ನೇಲು - ಜಲಜನಾಭ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 081  
 ಸೀ೤ ವದನಮ್ಬು ನೀನಾಮ - ಭಜನ ಗೋರುಚುನುಣ್ಡು  
@@ -14755,8 +14755,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಸ್ವಪ್ನಮುನ ನೈನ ನೇವೇಳ - ಸನ್ತತಮುನು  
 ಬುದ್ಧಿ ನೀ ಪಾದಮುಲಯನ್ದು - ಬೂನಿಯುಣ್ಡು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 082  
 ಸೀ೤ ಪದ್ಮಾಕ್ಷ ❘ ಮಮತಚೇ - ಬರಮು ನನ್ದೆದ ಮಞ್ಚು  
@@ -14770,23 +14770,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನೀ ಶರೀರಾಲು ಪಡಿಪೋವು - ಟೆಱುಗ ಕೇಮು  
 ಕಾಮುಕುಲ ಮೈತಿ ಮಿಕ ಮಿಮ್ಮು - ಗಾನಲೇಮು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 083  
-ಸೀ೤ ಗರುಡವಾಹನ ❘ ದಿವ್ಯ - ಕೌಸ್ತುಭಾಲಙ್ಕಾರ |  
-ರವಿಕೋಟಿತೇಜ ❘ ಸಾ - ರಙ್ಗವದನ |  
-ಮಣಿಗಣಾನ್ವಿತ ❘ ಹೇಮ - ಮಕುಟಾಭರಣ | ಚಾರು  
-ಮಕರಕುಣ್ಡಲ ❘ ಲಸ - ನ್ಮನ್ದಹಾಸ |  
-ಕಾಞ್ಚನಾಮ್ಬರ ❘ ರತ್ನ - ಕಾಞ್ಚಿವಿಭೂಷಿತ |  
-ಸುರವರಾರ್ಚಿತ ❘ ಚನ್ದ್ರ - ಸೂರ್ಯನಯನ |  
-ಕಮಲನಾಭ ❘ ಮುಕುನ್ದ | - ಗಙ್ಗಾಧರಸ್ತುತ |  
-ರಾಕ್ಷಸಾನ್ತಕ ❘ ನಾಗ - ರಾಜಶಯನ |  
+ಸೀ೤ ಗರುಡವಾಹನ ❘ ದಿವ್ಯ - ಕೌಸ್ತುಭಾಲಙ್ಕಾರ ｜  
+ರವಿಕೋಟಿತೇಜ ❘ ಸಾ - ರಙ್ಗವದನ ｜  
+ಮಣಿಗಣಾನ್ವಿತ ❘ ಹೇಮ - ಮಕುಟಾಭರಣ ｜ ಚಾರು  
+ಮಕರಕುಣ್ಡಲ ❘ ಲಸ - ನ್ಮನ್ದಹಾಸ ｜  
+ಕಾಞ್ಚನಾಮ್ಬರ ❘ ರತ್ನ - ಕಾಞ್ಚಿವಿಭೂಷಿತ ｜  
+ಸುರವರಾರ್ಚಿತ ❘ ಚನ್ದ್ರ - ಸೂರ್ಯನಯನ ｜  
+ಕಮಲನಾಭ ❘ ಮುಕುನ್ದ ｜ - ಗಙ್ಗಾಧರಸ್ತುತ ｜  
+ರಾಕ್ಷಸಾನ್ತಕ ❘ ನಾಗ - ರಾಜಶಯನ ｜  
 
-ತೇ೤ ಪತಿತಪಾವನ ❘ ಲಕ್ಷೀಶ | - ಬ್ರಹ್ಮಜನಕ |  
-ಭಕ್ತವತ್ಸಲ ❘ ಸರ್ವೇಶ | - ಪರಮಪುರುಷ |  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ತೇ೤ ಪತಿತಪಾವನ ❘ ಲಕ್ಷೀಶ ｜ - ಬ್ರಹ್ಮಜನಕ ｜  
+ಭಕ್ತವತ್ಸಲ ❘ ಸರ್ವೇಶ ｜ - ಪರಮಪುರುಷ ｜  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 084  
 ಸೀ೤ ಪಲುಮಾಱು ದಶರೂಪ - ಮುಲು ದರಿಞ್ಚಿತಿ ವೇಲ?  
@@ -14800,8 +14800,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ವನಜಲೋಚನ ❘ ಯಿಟುವಣ್ಟಿ - ವೈಭವಮುಲು  
 ಸೊಗಸುಗಾ ನೀಕು ದೋಚೆನೋ - ಸುನ್ದರಾಙ್ಗ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 085  
 ಸೀ೤ ತಿರುಪತಿ ಸ್ಥಲಮನ್ದು - ದಿನ್ನಗಾ ನೇ ನುನ್ನ  
@@ -14815,8 +14815,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಯೆನ್ದು ಬೋವಕ ನೇನು ನೀ - ಮನ್ದಿರಮುನ  
 ನಿಲಿಚಿತಿನಿ ನೀಕು ನಾಮೀದ - ನೆನರು ಲೇದು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 086  
 ಸೀ೤ ತಾರ್ಕ್ಷ್ಯವಾಹನ ❘ ನೀವು - ದಣ್ಡಿದಾತ ವಟಞ್ಚು  
@@ -14830,8 +14830,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನೀಕು ನಾವಿದ್ಯ ಹರ್ಷಮ್ಬು - ಗಾಕ ಯುನ್ನ  
 ತೇಪತೇಪಕು ವೇಷಮುಲ್ - ದೇನು ಸುಮ್ಮಿ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 087  
 ಸೀ೤ ಅಮರೇನ್ದ್ರವಿನುತ ❘ ನೇ - ನತಿದುರಾತ್ಮುಡ ನಞ್ಚು  
@@ -14845,23 +14845,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಡುಪುಚುನು ನಿನ್ನು ಗೊಲಿಚೆದ - ನಮ್ಮಿ ಬುದ್ಧಿ  
 ನೀ ಪ್ರಪಞ್ಚಮ್ಬು ಗಲುಗು ನಾ - ಕಿನ್ತೆ ಚಾಲು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 088  
-ಸೀ೤ ಭುವನೇಶ ❘ ಗೋವಿನ್ದ | - ರವಿಕೋಟಿಸಙ್ಕಾಶ |  
-ಪಕ್ಷಿವಾಹನ ❘ ಭಕ್ತ - ಪಾರಿಜಾತ |  
+ಸೀ೤ ಭುವನೇಶ ❘ ಗೋವಿನ್ದ ｜ - ರವಿಕೋಟಿಸಙ್ಕಾಶ ｜  
+ಪಕ್ಷಿವಾಹನ ❘ ಭಕ್ತ - ಪಾರಿಜಾತ ｜  
 ಯಮ್ಭೋಜಭವ ರುದ್ರ - ಜಮ್ಭಾರಿಸನ್ನುತ ❘  
-ಸಾಮಗಾನವಿಲೋಲ ❘ - ಸಾರಸಾಕ್ಷ |  
-ವನಧಿಗಮ್ಭೀರ ❘ ಶ್ರೀ - ವತ್ಸಕೌಸ್ತುಭವಕ್ಷ |  
+ಸಾಮಗಾನವಿಲೋಲ ❘ - ಸಾರಸಾಕ್ಷ ｜  
+ವನಧಿಗಮ್ಭೀರ ❘ ಶ್ರೀ - ವತ್ಸಕೌಸ್ತುಭವಕ್ಷ ｜  
 ಶಙ್ಖಚಕ್ರಗದಾಸಿ - ಶಾರ್ಜ್ಞಹಸ್ತ ❘  
-ದೀನರಕ್ಷಕ ❘ ವಾಸು - ದೇವ | ದೈತ್ಯವಿನಾಶ |  
-ನಾರದಾರ್ಚಿತ ❘ ದಿವ್ಯ - ನಾಗಶಯನ |  
+ದೀನರಕ್ಷಕ ❘ ವಾಸು - ದೇವ ｜ ದೈತ್ಯವಿನಾಶ ｜  
+ನಾರದಾರ್ಚಿತ ❘ ದಿವ್ಯ - ನಾಗಶಯನ ｜  
 
 ತೇ೤ ಚಾರು ನವರತ್ನಕುಣ್ಡಲ - ಶ್ರವಣಯುಗಳ ❘  
-ವಿಬುಧವನ್ದಿತ ಪಾದಬ್ಜ ❘ - ವಿಶ್ವರೂಪ |  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ವಿಬುಧವನ್ದಿತ ಪಾದಬ್ಜ ❘ - ವಿಶ್ವರೂಪ ｜  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 089  
 ಸೀ೤ ನಾಗೇನ್ದ್ರಶಯನ ❘ ನೀ - ನಾಮಮಾಧುರ್ಯಮ್ಬು  
@@ -14875,8 +14875,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ವೀರಿ ಕೆಱುಕಗು ನೀಕಥಲ್ - ವಿನ್ತ ಲೆಲ್ಲ  
 ನರುಲ ಕೆಱು ಕನ್ನ ನೆವರೈನ - ನವ್ವಿಪೋರೆ?  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 090  
 ಸೀ೤ ಅರ್ಥು ಲೇಮೈನ ನಿ - ನ್ನಡುಗವಚ್ಚೆದ ರಞ್ಚು  
@@ -14889,9 +14889,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ಮಞ್ಚಿ ಯೋಧುಲ ಕಾವ - ಲುಞ್ಚಿನಾವು  
 
 ತೇ೤ ಲಾವು ಗಲವಾಡ ವೈತಿ ವೇ - ಲಾಗು ನೇನು  
-ನಿನ್ನು ಜೂತುನು ನಾತಣ್ಡ್ರಿ ❘ - ನೀರಜಾಕ್ಷ |  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ನಿನ್ನು ಜೂತುನು ನಾತಣ್ಡ್ರಿ ❘ - ನೀರಜಾಕ್ಷ ｜  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 091  
 ಸೀ೤ ನೀಕಥಲ್ ಚೆವುಲಲೋ - ಸೋಕುಟ ಮೊದಲುಗಾ  
@@ -14900,13 +14900,13 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ಮಗ್ನುಡೈ ದೇಹಮ್ಬು - ಮಱಚುವಾಡು  
 ಫಾಲಮ್ಬುತೋ ನೀದು - ಪಾದಯುಗ್ಮಮುನಕು  
 ಬ್ರೇಮತೋ ದಣ್ಡ ಮ - ರ್ಪಿಞ್ಚುವಾಡು  
-ಹಾ ಪುಣ್ಡರೀಕಾಕ್ಷ ❘ - ಹಾ ರಾಮ | ಹರಿ | ಯಞ್ಚು  
+ಹಾ ಪುಣ್ಡರೀಕಾಕ್ಷ ❘ - ಹಾ ರಾಮ ｜ ಹರಿ ｜ ಯಞ್ಚು  
 ವೇಡ್ಕತೋ ಗೇಕಲು - ವೇಯುವಾಡು  
 
 ತೇ೤ ಚಿತ್ತಕಮಲಮ್ಬುನನು ನಿನ್ನು - ಜೇರ್ಚುವಾಡು  
 ನೀದುಲೋಕಮ್ಬುನಂ ದುಣ್ಡು - ನೀರಜಾಕ್ಷ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 092  
 ಸೀ೤ ನಿಗಮಗೋಚರ ❘ ನೇನು - ನೀಕು ಮೆಪ್ಪಗುನಟ್ಲು  
@@ -14920,8 +14920,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನನ್ನಿ ಗಲವಾಡ ವಖಿಲ ಲೋ - ಕಾಧಿಪತಿವಿ ❘  
 ನೀಕು ಸೊಮ್ಮುಲು ಪೆಟ್ಟ ನೇ - ನೆನ್ತವಾಡ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 093  
 ಸೀ೤ ನವಸರೋಜದಳಾಕ್ಷ ❘ - ನನ್ನು ಬೋಷಿಞ್ಚೆಡು  
@@ -14935,8 +14935,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಬರಮಸನ್ತೋಷ ಮಾಯೆ ನಾ - ಪ್ರಾಣಮುಲಕು  
 ನೀ^^ಋಣಮು ದೀರ್ಚುಕೊನ ನೇರ - ನೀರಜಾಕ್ಷ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 094  
 ಸೀ೤ ಫಣುಲಪುಟ್ಟಲಮೀದ - ಬವ್ವಳಿಞ್ಚಿನಯಟ್ಲು  
@@ -14950,23 +14950,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಸ್ವಾಮಿ ನೀ ಭಕ್ತವರುಲು ದು - ರ್ಜನುಲತೋಡ  
 ಜೆಲಿಮಿ ಜೇಸಿನಯ ಟ್ಲೈನ - ಜೇಟು ವಚ್ಚು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 095  
-ಸೀ೤ ದನುಜಸಂಹಾರ ❘ ಚಕ್ರ - ಧರ | ನೀಕು ದಣ್ಡಮ್ಬು  
+ಸೀ೤ ದನುಜಸಂಹಾರ ❘ ಚಕ್ರ - ಧರ ｜ ನೀಕು ದಣ್ಡಮ್ಬು  
 ಲಿನ್ದಿರಾಧಿಪ ❘ ನೀಕು - ವನ್ದನಮ್ಬು  
 ಪತಿತಪಾವನ ❘ ನೀಕು - ಬಹುನಮಸ್ಕಾರಮುಲ್  
 ನೀರಜಾತದಳಾಕ್ಷ ❘ - ನೀಕು ಶರಣು  
-ವಾಸವಾರ್ಚಿತ ❘ ಮೇಘ - ವರ್ಣ | ನೀಕು ಶುಭಮ್ಬು  
+ವಾಸವಾರ್ಚಿತ ❘ ಮೇಘ - ವರ್ಣ ｜ ನೀಕು ಶುಭಮ್ಬು  
 ಮನ್ದರಧರ ❘ ನೀಕು - ಮಙ್ಗಳಮ್ಬು  
-ಕಮ್ಬುಕನ್ಧರ ❘ ಶಾರ್ಜ್ಗ - ಕರ | ನೀಕು ಭದ್ರಮ್ಬು  
+ಕಮ್ಬುಕನ್ಧರ ❘ ಶಾರ್ಜ್ಗ - ಕರ ｜ ನೀಕು ಭದ್ರಮ್ಬು  
 ದೀನರಕ್ಷಕ ❘ ನೀಕು - ದಿಗ್ವಿಜಯಮು  
 
 ತೇ೤ ಸಕಲವೈಭವಮುಲು ನೀಕು - ಸಾರ್ವಭೌಮ ❘  
 ನಿತ್ಯಕಲ್ಯಾಣಮುಲು ನಗು - ನೀಕು ನೆಪುಡು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 096  
 ಸೀ೤ ಮತ್ಸ್ಯಾವತಾರ ಮೈ - ಮಡುಗುಲೋಪಲ ಜೊಚ್ಚಿ  
@@ -14980,8 +14980,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ಯುನ್ದು ರರವಿನ್ದನಯನ ❘ ನೀ - ಯುನಿಕಿ ದೆಲಿಯು  
 ವಾರಲಕು ವೇಗ ಮೋಕ್ಷಮ್ಬು - ವಚ್ಚು ನನಘ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 097  
 ಸೀ೤ ಕೂರ್ಮಾವತಾರಮೈ - ಕುಧರಮ್ಬುಕ್ರಿನ್ದನು  
@@ -14994,9 +14994,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ವರ್ತಿ ನಱಮ್ಪವಾ - ವೈರ ಮುಡಿಗಿ?  
 
 ತೇ೤ ಯಿಟ್ಟಿ ಪನು ಲೆಲ್ಲ ಜೇಯಗಾ - ನೆವರಿಕೇನಿ  
-ತಗುನೆ ನರಸಿಂಹ ❘ ನೀಕಿದಿ - ದಗುನು ಗಾಕ |  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ತಗುನೆ ನರಸಿಂಹ ❘ ನೀಕಿದಿ - ದಗುನು ಗಾಕ ｜  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 098  
 ಸೀ೤ ಲಕ್ಷ್ಮೀಶ ❘ ನೀದಿವ್ಯ - ಲಕ್ಷಣಗುಣಮುಲ  
@@ -15010,8 +15010,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಮ್ಮಿಯುನ್ನಾನು ನೀಪಾದ - ನಳಿನಭಕ್ತಿ  
 ವೇಗ ದಯಚೇಸಿ ರಕ್ಷಿಮ್ಪು - ವೇದವಿದ್ಯ ❘  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 099  
 ಸೀ೤ ಅಮರೇನ್ದ್ರವಿನುತ ❘ ನಿ - ನ್ನನುಸರಿಞ್ಚಿನವಾರು  
@@ -15025,8 +15025,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನನುಚು ಬಲುಮಾಱು ವೇಡೆದ - ನಬ್ಜನಾಭ ❘  
 ನಾಕು ಬ್ರತ್ಯಕ್ಷ ಮಗುಮು ನಿನ್ - ನಮ್ಮಿನಾನು೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 100  
 ಸೀ೤ ಶೇಷಪ್ಪ ಯನು ಕವಿ - ಚೆಪ್ಪಿನ ಪದ್ಯಮುಲ್  
@@ -15040,27 +15040,27 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 ತೇ೤ ನಿದ್ದಿ ಪುಣ್ಯಾಕರಂ ಬನಿ - ಯೆಪುಡು ಜನುಲು  
 ಗಷಟ ಮೆನ್ನಕ ಪಠಿಯಿಮ್ಪ - ಗಲುಗು ಮುಕ್ತಿ೤  
-ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ |  
-ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ |  
+ಭೂಷಣವಿಕಾಸ ❘ ಶ್ರೀಧರ್ಮ - ಪುರನಿವಾಸ ｜  
+ದುಷ್ಟಸಂಹಾರ ❘ ನರಸಿಂಹ - ದುರಿತದೂರ ｜  
 
 ## ShuddhaTelugu
 
 నారసింహ శతకమ్  
 
 001  
-సీ౤ శ్రీమనోహర ❘ సురా - ర్చిత సిన్ధుగమ్భీర |  
-భక్తవత్సల ❘ కోటి - భానుతేజ |  
-కఞ్జనేత్ర ❘ హిరణ్య - కశ్యపాన్తక | శూర |  
-సాధురక్షణ ❘ శఙ్ఖ - చక్రహస్త |  
-ప్రహ్లాద వరద ❘ పా - పధ్వంస | సర్వేశ |  
-క్షీరసాగరశాయి ❘ - కృష్ణవర్ణ |  
-పక్షివాహన ❘ నీల - భ్రమరకున్తలజాల |  
+సీ౤ శ్రీమనోహర ❘ సురా - ర్చిత సిన్ధుగమ్భీర ｜  
+భక్తవత్సల ❘ కోటి - భానుతేజ ｜  
+కఞ్జనేత్ర ❘ హిరణ్య - కశ్యపాన్తక ｜ శూర ｜  
+సాధురక్షణ ❘ శఙ్ఖ - చక్రహస్త ｜  
+ప్రహ్లాద వరద ❘ పా - పధ్వంస ｜ సర్వేశ ｜  
+క్షీరసాగరశాయి ❘ - కృష్ణవర్ణ ｜  
+పక్షివాహన ❘ నీల - భ్రమరకున్తలజాల ｜  
 పల్లవారుణపాద - పద్మయుగళ ❘  
 
 తే౤ చారుశ్రీచన్దనాగరు - చర్చితాఙ్గ ❘  
-కున్దకుట్మలదన్త ❘ వై - కుణ్ఠధామ |  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+కున్దకుట్మలదన్త ❘ వై - కుణ్ఠధామ ｜  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 002  
 సీ౤ పద్మలోచన ❘ సీస - పద్యముల్ నీ మీద  
@@ -15074,8 +15074,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ దప్పుగలిగిన సద్భక్తి - తక్కువౌనె  
 చెఱకునకు వఙ్కపోయిన - చెడునె తీపు?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 003  
 సీ౤ నరసింహ ❘ నీ దివ్య - నామమన్త్రముచేత  
@@ -15089,8 +15089,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ భళిర ❘ నే నీ మహామన్త్ర - బలముచేత  
 దివ్య వైకుణ్ఠ పదవి సా - ధిమ్పవచ్చు  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 004  
 సీ౤ ఆదినారాయణా ❘ - యనుచు నాలుకతోడ  
@@ -15104,8 +15104,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ పరమ సాత్వికులైన నీ - భక్తవరుల  
 దాసులకు దాసుడను జుమీ - ధాత్రిలోన  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 005  
 సీ౤ ఐశ్వర్యములకు ని - న్ననుసరిమ్పగలేదు  
@@ -15119,8 +15119,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నేను గోరిన దొక్కటే - నీలవర్ణ  
 చయ్యనను మోక్షమిచ్చిన - జాలు నాకు  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 006  
 సీ౤ మన్దుణ్డనని నన్ను - నిన్ద చేసిననేమి?  
@@ -15134,8 +15134,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ కల్పవృక్షమ్బువలె నీవు - గల్గ నిఙ్క  
 బ్రజల లక్ష్యమ్బు నాకేల? - పద్మనాభ ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 007  
 సీ౤ చిత్తశుద్ధిగ నీకు - సేవజేసెదగాని  
@@ -15149,8 +15149,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ పారమార్థికమునకు నే బాటుపడితి  
 గీర్తికి నపేక్షపడలేదు - కృష్ణవర్ణ ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 008  
 సీ౤ శ్రవణ రన్ధ్రముల నీ - సత్కథల్ పొగడఙ్గ  
@@ -15164,8 +15164,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ వసుధలోనెల్ల వ్యర్ధుణ్డు - వాడె యగును  
 మఱియు జెడుగాక యెప్పుడు - మమతనొన్ది౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 009  
 సీ౤ గౌతమీస్నానాన - గడతేఱుద మటన్న  
@@ -15179,8 +15179,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ కష్టములకోర్వ నాచేత - గాదు నిన్ను  
 స్మరణచేసెద నా యధా - శక్తి కొలది౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 010  
 సీ౤ అర్థివాణ్డ్రకు నీక - హాని జేయుట కణ్టె  
@@ -15194,8 +15194,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ జలజదళనేత్ర నీ భక్త - జనులతోడి  
 జగడమాడెడు పనికణ్టె - జావు మేలు  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 011  
 సీ౤ గార్దభమ్బున కేల - కస్తూరి తిలకమ్బు?  
@@ -15209,8 +15209,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ద్రోహచిన్తన జేసెడి - దుర్జనులకు  
 మధురమైనట్టి నీనామ - మన్త్రమేల?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 012  
 సీ౤ పసరమ్బు వఞ్జైన - బసులకాపరి తప్పు  
@@ -15224,8 +15224,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ఇట్టి తప్పులెఱుఙ్గక - యిచ్చవచ్చి  
 నటుల మెలగుదు రిప్పు డీ - యవని జనులు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 013  
 సీ౤ కోతికి జలతారు - కుళ్లాయి యేటికి?  
@@ -15239,8 +15239,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ మాట నిలుకడ కుఙ్కరి - మోటు కేల?  
 చెవిటివానికి సత్కథ - శ్రవణ మేల?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 014  
 సీ౤ మాన్యమ్బులీయ స - మర్ధుడొక్కడు లేడు  
@@ -15254,8 +15254,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ యిట్టి దుష్టుల కధికార - మిచ్చినట్టి  
 ప్రభువు తప్పు లటఞ్చును - బలుకవలెను౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 015  
 సీ౤ తల్లిగర్భమునుణ్డి - ధనము తే డెవ్వడు  
@@ -15269,8 +15269,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ తుదకు దొఙ్గల కిత్తురో - దొరల కవునొ  
 తేనె జుణ్టీగ లియ్యవా - తెరువరులకు?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 016  
 సీ౤ లోకమం దెవడైన - లోభిమానవు డున్న  
@@ -15284,8 +15284,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ శ్రీరమానాథ ❘ యిటువణ్టి - క్రూరునకును  
 భిక్షుకుల శత్రువని - పేరు పెట్టవచ్చు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 017  
 సీ౤ తనువులో బ్రాణముల్ = తరళిపొయ్యెడివేళ  
@@ -15299,8 +15299,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ కమలనాభ నీ మహిమలు - గానలేని  
 తుచ్ఛులకు ముక్తిదొరకుట - దుర్లభమ్బు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 018  
 సీ౤ నీలమేఘశ్యామ ❘ - నీవె తణ్డ్రివి మాకు  
@@ -15314,8 +15314,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ తోయజాతాక్ష నీ పాద - తులసిదళము  
 రోగముల కౌషధము బ్రహ్మ - రుద్రవినుత౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 019  
 సీ౤ బ్రతికినన్నాళ్లు నీ - భజన తప్పను గాని  
@@ -15329,8 +15329,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నాటి కిప్పుడె చేతు నీ - నామభజన  
 తలచెదను, జెవి నిడవయ్య ❘ - ధైర్యముగను౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 020  
 సీ౤ పాఞ్చభౌతికము దు - ర్బలమైన కాయం బి  
@@ -15344,8 +15344,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ మరణమే నిశ్చయము బుద్ధి - మన్తుడైన  
 దేహమున్నన్తలో మిమ్ము - దెలియవలయు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 021  
 సీ౤ తల్లిదణ్డ్రులు భార్య - తనయు లాప్తులు బావ  
@@ -15359,8 +15359,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ చుట్టములమీది భ్రమదీసి - చూర జెక్కి  
 సన్తతము మిమ్ము నమ్ముట - సార్థకమ్బు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 022  
 సీ౤ ఇభరాజవరద ❘ ని - న్నెన్త బిల్చినగాని  
@@ -15374,8 +15374,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ మోక్షదాయక ❘ యిటువణ్టి - మూర్ఖజనుని  
 కష్టపెట్టిన నీకేమి - కడుపునిణ్డు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 023  
 సీ౤ నీమీద కీర్తనల్ - నిత్యగానము జేసి  
@@ -15389,8 +15389,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ సాధుడను మూర్ఖమతి మను - ష్యాధముడను  
 హీనుడను జుమ్మి నీవు - న న్నేలుకొనుము౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 024  
 సీ౤ అతిశయమ్బుగ గల్ల - లాడనేర్చితిగాని  
@@ -15404,8 +15404,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ బఙ్కజాతాక్ష ❘ నే నతి - పాతకుడను  
 దప్పులన్నియు క్షమియిమ్ప - దణ్డ్రి వీవె ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 025  
 సీ౤ ఉర్విలో నాయుష్య - మున్న పర్యన్తమ్బు  
@@ -15419,8 +15419,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ దన్ను విడిపిమ్ప వచ్చెడి - ధన్యు డేడి  
 మున్దు నీదాసుడై యున్న - ముక్తి గలుగు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 026  
 సీ౤ అధిక విద్యావన్తు - లప్రయోజకులైరి  
@@ -15434,8 +15434,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ పక్షివాహన ❘ మావణ్టి - భిక్షుకులకు  
 శక్తిలేదాయె నిక నీవె - చాటు మాకు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 027  
 సీ౤ భుజబలమ్బున బెద్ద - పులుల జమ్పగవచ్చు  
@@ -15449,8 +15449,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ బుడమిలో దుష్టులకు జ్ఞాన - బోధ తెలిపి  
 సజ్జనుల జేయలే డెన్త - చతురుదైన౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 028  
 సీ౤ అవనిలోగల యాత్ర - లన్ని చేయగవచ్చు  
@@ -15464,8 +15464,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ జిత్త మన్యస్థలమ్బున - జేరకుణ్డ  
 నీ పదామ్భోజములయన్దు - నిలపరాదు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 029  
 సీ౤ కర్ణయుగ్మమున నీ - కథలు సోకినజాలు  
@@ -15479,8 +15479,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ పూని నిను గొల్చుటే సర్వ - భూషణమ్బు  
 లితర భూషణముల నిచ్చ - గిమ్పనేల౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 030  
 సీ౤ భువనరక్షక ❘ నిన్ను - బొగడనేరని నోరు  
@@ -15494,8 +15494,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ పద్మలోచన నీమీద - భక్తిలేని  
 మానవుడు రెణ్డుపాదాల - మహిషమయ్య౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 031  
 సీ౤ అతివిద్యనేర్చుట - అన్నవస్త్రములకే  
@@ -15509,8 +15509,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ యితర కామమ్బు గోరక - సతతముగను  
 భక్తి నీయన్దు నిలుపుట - ముక్తి కొఱకె  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 032  
 సీ౤ ధరణిలో వేయేణ్డ్లు - తనువు నిల్వగబోదు  
@@ -15524,8 +15524,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ వెర్రి కుక్కల భ్రమలన్ని - విడిచి నిన్ను  
 భజన జేసెడివారికి - బరమసుఖము౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 033  
 సీ౤ నరసింహ ❘ నాకు దు - ర్ణయములే మెణ్డాయె  
@@ -15539,8 +15539,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ అబ్జదళనేత్ర ❘ నాతణ్డ్రి - వైన ఫలము  
 నేరములు గాచి రక్షిమ్పు - నీవె దిక్కు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 034  
 సీ౤ ధీరత బరుల నిం - దిమ్ప నేర్చితి గాని  
@@ -15554,23 +15554,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నవనిలో నేను జన్మిఞ్చి - నన్దు కేమి  
 సార్థకము గానరాదాయె - స్వల్పమైన౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 035  
 సీ౤ అన్త్యకాలమునన్దు - నాయాసమున నిన్ను  
 దలతునో తలపనో - తలతు నిపుడె  
-నరసింహ ❘ నరసింహ | - నరసింహ | లక్ష్మీశ |  
-దానవాన్తక ❘ కోటి - భానుతేజ |  
-గోవిన్ద ❘ గోవిన్ద | - గోవిన్ద | సర్వేశ |  
-పన్నగాధిపశాయి ❘ - పద్మనాభ |  
-మధువైరి ❘ మధువైరి | - మధువైరి | లోకేశ |  
-నీలమేఘశరీర ❘ నిగమవినుత |  
+నరసింహ ❘ నరసింహ ｜ - నరసింహ ｜ లక్ష్మీశ ｜  
+దానవాన్తక ❘ కోటి - భానుతేజ ｜  
+గోవిన్ద ❘ గోవిన్ద ｜ - గోవిన్ద ｜ సర్వేశ ｜  
+పన్నగాధిపశాయి ❘ - పద్మనాభ ｜  
+మధువైరి ❘ మధువైరి ｜ - మధువైరి ｜ లోకేశ ｜  
+నీలమేఘశరీర ❘ నిగమవినుత ｜  
 
 తే౤ ఈ విధమ్బున నీనామ - మిష్టముగను  
 భజనసేయుచు నున్దు నా - భావమన్దు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 036  
 సీ౤ ఆయురారోగ్య పు - త్రార్థ సమ్పదలన్ని  
@@ -15584,8 +15584,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ అవనిలో మానవుల కన్ని - యాసలిచ్చి  
 వ్యర్థులను జేసి తెలిపెడి - వాడ వీవె౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 037  
 సీ౤ కాయ మెన్త భయాన - గాపాడిననుగాని  
@@ -15599,8 +15599,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ జీవుని ప్రయాణకాలమ్బు - సిద్ధమైన  
 నిలుచునా దేహ మిన్దొక్క - నిమిషమైన?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 038  
 సీ౤ జన్దె మిమ్పుగ వేసి - సన్ధ్య వార్చిన నేమి  
@@ -15614,8 +15614,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ఎన్ని లౌకికవేషాలు - గట్టుకొనిన  
 గురుని జెన్దక సన్ముక్తి - దొరకబోదు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 039  
 సీ౤ నరసింహ ❘ నే నిన్ను - నమ్మినన్దుకు జాల  
@@ -15629,8 +15629,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ఎచట నన్నుఞ్చిననుగాని - యెపుడు నిన్ను  
 మఱచి పోకుణ్డ నీనామ - స్మరణనొసగు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 040  
 సీ౤ దేహ మున్నవఱకు - మోహసాగరమన్దు  
@@ -15644,8 +15644,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ మత్తులైనట్టి దుర్జాతి - మనుజులెల్ల  
 నిన్ను గనలేరు మొదటికే - నీరజాక్ష౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 041  
 సీ౤ ఇలలోన నే జన్మ - మెత్తినప్పటినుణ్డి  
@@ -15659,8 +15659,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ సూర్యశశినేత్ర ❘ నీచాటు - జొచ్చి నాను  
 కలుషములు ద్రుఞ్చి నన్నేలు - కష్టమనక౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 042  
 సీ౤ తాపసార్చిత ❘ నేను - పాపకర్ముడనఞ్చు  
@@ -15674,8 +15674,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ దణ్డ్రివై నీవు పరపీడ - దగులజేయ  
 వాసిగల పేరు కపకీర్తి - వచ్చునయ్య౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 043  
 సీ౤ ధరణిలోపల నేను - తల్లిగర్భమునన్దు  
@@ -15689,8 +15689,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నళినదళనేత్ర ❘ నిన్ను నే - నమ్మినాను  
 జేరి రక్షిమ్పవే నన్ను - శీఘ్రముగను౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 044  
 సీ౤ అడవిపక్షుల కెవ్వ - డాహార మిచ్చెను  
@@ -15704,8 +15704,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ జీవకోట్లను బోషిమ్ప - నీవెకాని  
 వేఱె యొక దాత లేడయ్య - వెదకిచూడ౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 045  
 సీ౤ దనుజారి ❘ నావణ్టి - దాసజాలము నీకు  
@@ -15719,8 +15719,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ భూజనులలోన నే నప్ర - యోజకుడను  
 గనుక నీ సత్కటాక్షమ్బు - గలుగజేయు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 046  
 సీ౤ కమలలోచన ❘ నన్ను - గన్నతణ్డ్రివిగాన  
@@ -15734,8 +15734,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ కొసకు నీ శఙ్ఖ చక్రముల్ - కుదువబెట్టి  
 గ్రాసము నొసఙ్గి పోషిఞ్చు - కపటముడిగి౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 047  
 సీ౤ కువలయశ్యామ ❘ నీ - కొలువు చేసిన నాకు  
@@ -15749,8 +15749,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నేడు కరుణిమ్పకుణ్టివా - నిశ్చయముగ  
 దెగబడితి చూడు నీతోడ - జగడమునకు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 048  
 సీ౤ హరి ❘ నీకు బర్యఙ్క - మైన శేషుడు చాల  
@@ -15764,8 +15764,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ స్వస్థముగ నీకు గ్రాసము - జరుగుచుణ్డు  
 గాసు నీ చేతి దొకటైన - గాదు వ్యయము౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 049  
 సీ౤ పుణ్డరీకాక్ష ❘ నా - రెణ్డు కన్నుల నిణ్డ  
@@ -15779,8 +15779,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నేమిటికి విస్తరిఞ్చె నీ - కిన్త కీర్తి  
 ద్రోహినైనను నా కీవు - దొరకరాదె?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 050  
 సీ౤ పచ్చి చర్మపు దిత్తి - పసలేదు దేహమ్బు  
@@ -15794,8 +15794,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ బొన్దిలో నుణ్డు ప్రాణముల్ - పోయినన్త  
 గాటికే గాని కొఱగాదు - గవ్వకైన౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 051  
 సీ౤ పలురోగములకు నీ - పాదతీరమె కాని  
@@ -15809,8 +15809,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ దొరికితివి నాకు దణ్డి వై - ద్యుడవు నీవు  
 వేయికష్టాలు వచ్చినన్ - వెఱవనయ్య౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 052  
 సీ౤ కూటికోసరము నే - గొఱగాని జనులచే  
@@ -15824,8 +15824,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నిటుల సంసారవారిధి - నీదలేక  
 వేయివిధముల నిన్ను నే - వేడుకొణ్టి౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 053  
 సీ౤ సాధు సజ్జనులతో - జగడమాడిన గీడు  
@@ -15839,8 +15839,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ దుష్టకార్యము లొనరిఞ్చు - దుర్జనులకు  
 ఘనతరమ్బైన నరకమ్బు - గట్టిముల్లె౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 054  
 సీ౤ పరులద్రవ్యముమీద - భ్రాన్తి నొన్దినవాడు  
@@ -15854,8 +15854,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ప్రజల జన్తుల హింసిఞ్చు - పాతకుణ్డు  
 కాలకిఙ్కర గదలచే - గష్టమొన్దు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 055  
 సీ౤ నరసింహ ❘ నా తణ్డ్రి - నన్నేలు నన్నేలు  
@@ -15869,8 +15869,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ సురవినుత ❘ నేను నీచాటు - జొచ్చినాను  
 నా మొఱాలిఞ్చి కడతేర్చు - నాగశయన ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 056  
 సీ౤ నీ భక్తులను గనుల్ - నిణ్డ జూచియు రెణ్డు  
@@ -15884,8 +15884,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ పరమభక్తుణ్డు ధన్యుణ్డు - భానుతేజ ❘  
 వాని గనుగొన్న బుణ్యమ్బు - వసుధలోన౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 057  
 సీ౤ పక్షివాహన ❘ నేను - బ్రతికినన్నిదినాలు  
@@ -15899,8 +15899,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ కొసకు నీ సన్నిధికి బిల్చు - కొనియు నీకు  
 సేవకుని జేసికొనవయ్య - శేషశయన ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 058  
 సీ౤ నిగమాదిశాస్త్రముల్ - నేర్చిన ద్విజుడైన  
@@ -15914,8 +15914,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ గర్వమున గష్టపడి నిన్ను - గానకున్న  
 మోక్షసామ్రాజ్య మొన్దడు - మోహనాఙ్గ ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 059  
 సీ౤ పఞ్జరమ్బున గాకి - బట్టి యుఞ్చిన లెస్స  
@@ -15929,8 +15929,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ కుజనులను దెచ్చి నీ సేవ - కొఱకు బెట్ట  
 వాఞ్ఛతో జేతురే భక్త - వరులవలెను?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 060  
 సీ౤ నీకు దాసుడ నణ్టి - నిన్ను నమ్ముకయుణ్టి  
@@ -15944,8 +15944,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ శీఘ్రముగ గోర్కు లీడేర్చు - చిన్త దీర్చు  
 నిరతముగ నన్ను బోషిఞ్చు - నెనరు నుఞ్చు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 061  
 సీ౤ విద్య నేర్చితి నఞ్చు - విర్రవీగగలేదు  
@@ -15959,8 +15959,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నలుగురికి మెప్పుగానైన - నడువలేదు  
 నళినదళనేత్ర ❘ నిన్ను నే - నమ్మినాను౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 062  
 సీ౤ అతిలోభులను భిక్ష - మడుగబోవుట రోత  
@@ -15972,10 +15972,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ఆదాయములు లేక - యప్పుదీయుట రోత  
 జార చోరుల గూడి - చనుట రోత  
 
-తే౤ యాదిలక్ష్మీశ ❘ నీబణ్ట - నైతినయ్య |  
+తే౤ యాదిలక్ష్మీశ ❘ నీబణ్ట - నైతినయ్య ｜  
 యిఙ్క నెడబాసి జన్మమ్బు - లెత్త రోత౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 063  
 సీ౤ వెర్రివానికి నేల - వేదాక్షరమ్బులు?  
@@ -15989,8 +15989,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ క్రూరజనులకు నీమీద - గోరి కేల?  
 ద్రోహి పాపాత్మునకు దయా - దుఃఖ మేల?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 064  
 సీ౤ నా తణ్డ్రి నాదాత - నాయిష్టదైవమా  
@@ -16004,8 +16004,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ దణ్డిదొర వఞ్చు నీవెణ్ట - దగిలినాను  
 నేడు ప్రత్యక్షమై నన్ను - నిర్వహిమ్పు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 065  
 సీ౤ వేమాఱు నీకథల్ - వినుచు నుణ్డెడివాడు  
@@ -16019,8 +16019,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నిన్ను నమ్మిన భక్తుణ్డు - నిశ్చయముగ  
 గోరి చిల్లర వేల్పుల - గొల్వబోడు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 066  
 సీ౤ నే నెన్త వేడిన - నీ కేల దయరాదు?  
@@ -16034,8 +16034,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ దాత దైవమ్బు తల్లియు - దణ్డ్రి వీవె  
 నమ్మియున్నాను నీపాద - నళినములను౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 067  
 సీ౤ వేదముల్ చదివెడు - విప్రవర్యుణ్డైన  
@@ -16049,8 +16049,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నిన్ను గొనియాడుచుణ్డెనా - నిశ్చయముగ  
 వాడు మోక్షాధికారి యీ - వసుధలోన౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 068  
 సీ౤ సకలవిద్యలు నేర్చి - సభ జయిమ్పగవచ్చు  
@@ -16064,8 +16064,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ తామరసగర్భ హర పురం - దరులకైన  
 నిన్ను వర్ణిమ్ప దరమౌనె - నీరజాక్ష ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 069  
 సీ౤ నరసింహ ❘ నీవణ్టి - దొరను సమ్పాదిఞ్చి  
@@ -16077,10 +16077,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 పెట్టజాలక యేల - భిక్షమెత్తిఞ్చెదు  
 నన్ను బీదను జేసి - నా వదేమి?  
 
-తే౤ అమల ❘ కమలాక్ష | నే నిట్లు - శ్రమపడఙ్గ  
+తే౤ అమల ❘ కమలాక్ష ｜ నే నిట్లు - శ్రమపడఙ్గ  
 గన్నులకు బణ్డువై నీకు - గానబడునె?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 070  
 సీ౤ వనరుహనాభ ❘ నీ - వఙ్క జేరితి నేను  
@@ -16094,8 +16094,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ గోపగాడను నీవు నా - గుణము తెలిసి  
 యిప్పుడే నన్ను రక్షిఞ్చి - యేలుకొమ్ము౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 071  
 సీ౤ ప్రహ్లాదు డేపాటి - పైడి కానుక లిచ్చె?  
@@ -16109,8 +16109,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నీకు వీరన్ద ఱయినట్లు - నేను గాన?  
 యెన్దు కని నన్ను రక్షిమ్ప - విన్దువదన ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 072  
 సీ౤ వాఞ్ఛతో బలిచక్ర - వర్తిదగ్గర జేరి  
@@ -16124,8 +16124,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ భక్తులకు నీవు పెట్టుట - భాగ్యమౌను  
 వారి కాశిఞ్చితివి తిణ్డి - వాడ వగుచు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 073  
 సీ౤ స్తమ్భమం దుదయిఞ్చి - దానవేన్ద్రుని ద్రుఞ్చి  
@@ -16139,8 +16139,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ వారివలె నన్ను బోషిమ్ప - వశముగాదె?  
 యన్త వలపక్ష మేల శ్రీ - కాన్త ❘ నీకు?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 074  
 సీ౤ వ్యాసు డే కులమన్దు - వాసిగా జన్మిఞ్చె?  
@@ -16154,8 +16154,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నే కులమ్బున వీ రిన్ద - ఱెచ్చినారు?  
 నీకృపాపాత్రులకు జాతి - నీతు లేల?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 075  
 సీ౤ వసుధాస్థలమ్బున - వర్ణహీనుడు గాని  
@@ -16169,8 +16169,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ప్రతిదినము నీదు భజనచే - బరగునట్టి  
 వాని కే వఙ్క లేదయ్య - వచ్చు ముక్తి౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 076  
 సీ౤ ఇభకుమ్భములమీది - కెగిరెడి సిఙ్గమ్బు  
@@ -16184,8 +16184,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నిలను నీకీర్తనలు పాడ - నేర్చినతడు  
 పరులకీర్తన బాడునే - యరసి చూడ?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 077  
 సీ౤ సర్వేశ ❘ నీపాద - సరసిజద్వయమన్దు  
@@ -16199,8 +16199,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ప్రేమతో నన్ను బోషిఞ్చి - పెఞ్చుకొనుము  
 ఘనత కెక్కిఞ్చు నీదాస - గణములోన౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 078  
 సీ౤ జీమూతవర్ణ ❘ నీ - మోముతో సరిరాక  
@@ -16214,8 +16214,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నిన్దిరాదేవి నిన్ను మో - హిఞ్చి విడక  
 నీకు బట్టమహిషి యయ్యె - నిశ్చయముగ౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 079  
 సీ౤ హరిదాసులను నిన్ద - లాడకుణ్డిన జాలు  
@@ -16229,8 +16229,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ఒకరి వర్శాశనము ముఞ్చ - కున్న జాలు  
 బేరుకీర్తిగ సత్రముల్ - పెట్టినట్లు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 080  
 సీ౤ ఇహలోకసౌఖ్యము - లిచ్చగిఞ్చెద మన్న  
@@ -16244,8 +16244,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నమ్మరా దయ్య ❘ యిది మాయ - నాటకమ్బు  
 జన్మ మిక నొల్ల న న్నేలు - జలజనాభ ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 081  
 సీ౤ వదనమ్బు నీనామ - భజన గోరుచునుణ్డు  
@@ -16259,8 +16259,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ స్వప్నమున నైన నేవేళ - సన్తతమును  
 బుద్ధి నీ పాదములయన్దు - బూనియుణ్డు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 082  
 సీ౤ పద్మాక్ష ❘ మమతచే - బరము నన్దెద మఞ్చు  
@@ -16274,23 +16274,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నీ శరీరాలు పడిపోవు - టెఱుగ కేము  
 కాముకుల మైతి మిక మిమ్ము - గానలేము౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 083  
-సీ౤ గరుడవాహన ❘ దివ్య - కౌస్తుభాలఙ్కార |  
-రవికోటితేజ ❘ సా - రఙ్గవదన |  
-మణిగణాన్విత ❘ హేమ - మకుటాభరణ | చారు  
-మకరకుణ్డల ❘ లస - న్మన్దహాస |  
-కాఞ్చనామ్బర ❘ రత్న - కాఞ్చివిభూషిత |  
-సురవరార్చిత ❘ చన్ద్ర - సూర్యనయన |  
-కమలనాభ ❘ ముకున్ద | - గఙ్గాధరస్తుత |  
-రాక్షసాన్తక ❘ నాగ - రాజశయన |  
+సీ౤ గరుడవాహన ❘ దివ్య - కౌస్తుభాలఙ్కార ｜  
+రవికోటితేజ ❘ సా - రఙ్గవదన ｜  
+మణిగణాన్విత ❘ హేమ - మకుటాభరణ ｜ చారు  
+మకరకుణ్డల ❘ లస - న్మన్దహాస ｜  
+కాఞ్చనామ్బర ❘ రత్న - కాఞ్చివిభూషిత ｜  
+సురవరార్చిత ❘ చన్ద్ర - సూర్యనయన ｜  
+కమలనాభ ❘ ముకున్ద ｜ - గఙ్గాధరస్తుత ｜  
+రాక్షసాన్తక ❘ నాగ - రాజశయన ｜  
 
-తే౤ పతితపావన ❘ లక్షీశ | - బ్రహ్మజనక |  
-భక్తవత్సల ❘ సర్వేశ | - పరమపురుష |  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+తే౤ పతితపావన ❘ లక్షీశ ｜ - బ్రహ్మజనక ｜  
+భక్తవత్సల ❘ సర్వేశ ｜ - పరమపురుష ｜  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 084  
 సీ౤ పలుమాఱు దశరూప - ములు దరిఞ్చితి వేల?  
@@ -16304,8 +16304,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ వనజలోచన ❘ యిటువణ్టి - వైభవములు  
 సొగసుగా నీకు దోచెనో - సున్దరాఙ్గ?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 085  
 సీ౤ తిరుపతి స్థలమన్దు - దిన్నగా నే నున్న  
@@ -16319,8 +16319,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ యెన్దు బోవక నేను నీ - మన్దిరమున  
 నిలిచితిని నీకు నామీద - నెనరు లేదు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 086  
 సీ౤ తార్క్ష్యవాహన ❘ నీవు - దణ్డిదాత వటఞ్చు  
@@ -16334,8 +16334,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నీకు నావిద్య హర్షమ్బు - గాక యున్న  
 తేపతేపకు వేషముల్ - దేను సుమ్మి౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 087  
 సీ౤ అమరేన్ద్రవినుత ❘ నే - నతిదురాత్ముడ నఞ్చు  
@@ -16349,23 +16349,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నడుపుచును నిన్ను గొలిచెద - నమ్మి బుద్ధి  
 నీ ప్రపఞ్చమ్బు గలుగు నా - కిన్తె చాలు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 088  
-సీ౤ భువనేశ ❘ గోవిన్ద | - రవికోటిసఙ్కాశ |  
-పక్షివాహన ❘ భక్త - పారిజాత |  
+సీ౤ భువనేశ ❘ గోవిన్ద ｜ - రవికోటిసఙ్కాశ ｜  
+పక్షివాహన ❘ భక్త - పారిజాత ｜  
 యమ్భోజభవ రుద్ర - జమ్భారిసన్నుత ❘  
-సామగానవిలోల ❘ - సారసాక్ష |  
-వనధిగమ్భీర ❘ శ్రీ - వత్సకౌస్తుభవక్ష |  
+సామగానవిలోల ❘ - సారసాక్ష ｜  
+వనధిగమ్భీర ❘ శ్రీ - వత్సకౌస్తుభవక్ష ｜  
 శఙ్ఖచక్రగదాసి - శార్జ్ఞహస్త ❘  
-దీనరక్షక ❘ వాసు - దేవ | దైత్యవినాశ |  
-నారదార్చిత ❘ దివ్య - నాగశయన |  
+దీనరక్షక ❘ వాసు - దేవ ｜ దైత్యవినాశ ｜  
+నారదార్చిత ❘ దివ్య - నాగశయన ｜  
 
 తే౤ చారు నవరత్నకుణ్డల - శ్రవణయుగళ ❘  
-విబుధవన్దిత పాదబ్జ ❘ - విశ్వరూప |  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+విబుధవన్దిత పాదబ్జ ❘ - విశ్వరూప ｜  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 089  
 సీ౤ నాగేన్ద్రశయన ❘ నీ - నామమాధుర్యమ్బు  
@@ -16379,8 +16379,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ వీరి కెఱుకగు నీకథల్ - విన్త లెల్ల  
 నరుల కెఱు కన్న నెవరైన - నవ్విపోరె?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 090  
 సీ౤ అర్థు లేమైన ని - న్నడుగవచ్చెద రఞ్చు  
@@ -16393,9 +16393,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 మఞ్చి యోధుల కావ - లుఞ్చినావు  
 
 తే౤ లావు గలవాడ వైతి వే - లాగు నేను  
-నిన్ను జూతును నాతణ్డ్రి ❘ - నీరజాక్ష |  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+నిన్ను జూతును నాతణ్డ్రి ❘ - నీరజాక్ష ｜  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 091  
 సీ౤ నీకథల్ చెవులలో - సోకుట మొదలుగా  
@@ -16404,13 +16404,13 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 మగ్నుడై దేహమ్బు - మఱచువాడు  
 ఫాలమ్బుతో నీదు - పాదయుగ్మమునకు  
 బ్రేమతో దణ్డ మ - ర్పిఞ్చువాడు  
-హా పుణ్డరీకాక్ష ❘ - హా రామ | హరి | యఞ్చు  
+హా పుణ్డరీకాక్ష ❘ - హా రామ ｜ హరి ｜ యఞ్చు  
 వేడ్కతో గేకలు - వేయువాడు  
 
 తే౤ చిత్తకమలమ్బునను నిన్ను - జేర్చువాడు  
 నీదులోకమ్బునం దుణ్డు - నీరజాక్ష ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 092  
 సీ౤ నిగమగోచర ❘ నేను - నీకు మెప్పగునట్లు  
@@ -16424,8 +16424,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నన్ని గలవాడ వఖిల లో - కాధిపతివి ❘  
 నీకు సొమ్ములు పెట్ట నే - నెన్తవాడ ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 093  
 సీ౤ నవసరోజదళాక్ష ❘ - నన్ను బోషిఞ్చెడు  
@@ -16439,8 +16439,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ బరమసన్తోష మాయె నా - ప్రాణములకు  
 నీ^^ఋణము దీర్చుకొన నేర - నీరజాక్ష ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 094  
 సీ౤ ఫణులపుట్టలమీద - బవ్వళిఞ్చినయట్లు  
@@ -16454,23 +16454,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ స్వామి నీ భక్తవరులు దు - ర్జనులతోడ  
 జెలిమి జేసినయ ట్లైన - జేటు వచ్చు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 095  
-సీ౤ దనుజసంహార ❘ చక్ర - ధర | నీకు దణ్డమ్బు  
+సీ౤ దనుజసంహార ❘ చక్ర - ధర ｜ నీకు దణ్డమ్బు  
 లిన్దిరాధిప ❘ నీకు - వన్దనమ్బు  
 పతితపావన ❘ నీకు - బహునమస్కారముల్  
 నీరజాతదళాక్ష ❘ - నీకు శరణు  
-వాసవార్చిత ❘ మేఘ - వర్ణ | నీకు శుభమ్బు  
+వాసవార్చిత ❘ మేఘ - వర్ణ ｜ నీకు శుభమ్బు  
 మన్దరధర ❘ నీకు - మఙ్గళమ్బు  
-కమ్బుకన్ధర ❘ శార్జ్గ - కర | నీకు భద్రమ్బు  
+కమ్బుకన్ధర ❘ శార్జ్గ - కర ｜ నీకు భద్రమ్బు  
 దీనరక్షక ❘ నీకు - దిగ్విజయము  
 
 తే౤ సకలవైభవములు నీకు - సార్వభౌమ ❘  
 నిత్యకల్యాణములు నగు - నీకు నెపుడు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 096  
 సీ౤ మత్స్యావతార మై - మడుగులోపల జొచ్చి  
@@ -16484,8 +16484,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ యున్దు రరవిన్దనయన ❘ నీ - యునికి దెలియు  
 వారలకు వేగ మోక్షమ్బు - వచ్చు ననఘ ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 097  
 సీ౤ కూర్మావతారమై - కుధరమ్బుక్రిన్దను  
@@ -16498,9 +16498,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 వర్తి నఱమ్పవా - వైర ముడిగి?  
 
 తే౤ యిట్టి పను లెల్ల జేయగా - నెవరికేని  
-తగునె నరసింహ ❘ నీకిది - దగును గాక |  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+తగునె నరసింహ ❘ నీకిది - దగును గాక ｜  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 098  
 సీ౤ లక్ష్మీశ ❘ నీదివ్య - లక్షణగుణముల  
@@ -16514,8 +16514,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నమ్మియున్నాను నీపాద - నళినభక్తి  
 వేగ దయచేసి రక్షిమ్పు - వేదవిద్య ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 099  
 సీ౤ అమరేన్ద్రవినుత ❘ ని - న్ననుసరిఞ్చినవారు  
@@ -16529,8 +16529,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ననుచు బలుమాఱు వేడెద - నబ్జనాభ ❘  
 నాకు బ్రత్యక్ష మగుము నిన్ - నమ్మినాను౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 100  
 సీ౤ శేషప్ప యను కవి - చెప్పిన పద్యముల్  
@@ -16544,27 +16544,27 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నిద్ది పుణ్యాకరం బని - యెపుడు జనులు  
 గషట మెన్నక పఠియిమ్ప - గలుగు ముక్తి౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 ## Tamil
 
 நாரஸிம்ஹ ஶதகம்  
 
 ௦௦1  
-ஸீ௤ ஶ்ரீமநோஹர ❘ ஸுரா - ர்சித ஸிந்து4க3ம்பீ4ர |  
-ப4க்தவத்ஸல ❘ கோடி - பா4நுதேஜ |  
-கஂஜநேத்ர ❘ ஹிரண்ய - கஶ்யபாந்தக | ஶூர |  
-ஸாது4ரக்ஷண ❘ ஶங்க3 \- சக்ரஹஸ்த |  
-ப்ரஹ்லாத3 வரத3 ❘ பா - பத்4வம்ஸ | ஸர்வேஶ |  
-க்ஷீரஸாக3ரஶாயி ❘ - க்ருஷ்ணவர்ண |  
-பக்ஷிவாஹந ❘ நீல - ப்4ரமரகுந்தலஜால |  
+ஸீ௤ ஶ்ரீமநோஹர ❘ ஸுரா - ர்சித ஸிந்து4க3ம்பீ4ர ｜  
+ப4க்தவத்ஸல ❘ கோடி - பா4நுதேஜ ｜  
+கஂஜநேத்ர ❘ ஹிரண்ய - கஶ்யபாந்தக ｜ ஶூர ｜  
+ஸாது4ரக்ஷண ❘ ஶங்க3 \- சக்ரஹஸ்த ｜  
+ப்ரஹ்லாத3 வரத3 ❘ பா - பத்4வம்ஸ ｜ ஸர்வேஶ ｜  
+க்ஷீரஸாக3ரஶாயி ❘ - க்ருஷ்ணவர்ண ｜  
+பக்ஷிவாஹந ❘ நீல - ப்4ரமரகுந்தலஜால ｜  
 பல்லவாருணபாத3 \- பத்3மயுகள3 ❘  
 
 தே௤ சாருஶ்ரீசந்த3நாக3ரு - சர்சிதாங்க3 ❘  
-குந்த3குட்மலத3ந்த ❘ வை - குண்ட2தா4ம |  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+குந்த3குட்மலத3ந்த ❘ வை - குண்ட2தா4ம ｜  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦௦2  
 ஸீ௤ பத்3மலோசந ❘ ஸீஸ - பத்3யமுல் நீ மீத3  
@@ -16578,8 +16578,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ த3ப்புக3லிகி3ந ஸத்3ப4க்தி - தக்குவௌநெ  
 செறகுநகு வஂகபோயிந - செடு3நெ தீபு?  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦௦3  
 ஸீ௤ நரஸிம்ஹ ❘ நீ தி3வ்ய - நாமமந்த்ரமுசேத  
@@ -16593,8 +16593,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ பள4ிர ❘ நே நீ மஹாமந்த்ர - ப3லமுசேத  
 தி3வ்ய வைகுண்ட2 பத3வி ஸா - தி4ம்பவச்சு  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦௦4  
 ஸீ௤ ஆதி3நாராயணா ❘ - யநுசு நாலுகதோட3  
@@ -16608,8 +16608,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ பரம ஸாத்விகுலைந நீ - ப4க்தவருல  
 தா3ஸுலகு தா3ஸுட3நு ஜுமீ - தா4த்ரிலோந  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦௦5  
 ஸீ௤ ஐஶ்வர்யமுலகு நி - ந்நநுஸரிம்பக3லேது3  
@@ -16623,8 +16623,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நேநு கோ3ரிந தொ3க்கடே - நீலவர்ண  
 சய்யநநு மோக்ஷமிச்சிந - ஜாலு நாகு  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦௦6  
 ஸீ௤ மந்து3ண்ட3நநி நந்நு - நிந்த3 சேஸிநநேமி?  
@@ -16638,8 +16638,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ கல்பவ்ருக்ஷம்பு3வலெ நீவு - க3ல்க3 நிஂக  
 ப்3ரஜல லக்ஷ்யம்பு3 நாகேல? - பத்3மநாப4 ❘  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦௦7  
 ஸீ௤ சித்தஶுத்3தி4க3 நீகு - ஸேவஜேஸெத3கா3நி  
@@ -16653,8 +16653,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ பாரமார்தி2கமுநகு நே பா3டுபடி3தி  
 கீ3ர்திகி நபேக்ஷபட3லேது3 \- க்ருஷ்ணவர்ண ❘  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦௦8  
 ஸீ௤ ஶ்ரவண ரந்த்4ரமுல நீ - ஸத்கத2ல் பொக3ட3ங்க3  
@@ -16668,8 +16668,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ வஸுத4லோநெல்ல வ்யர்து4ண்டு3 \- வாடெ3 யகு3நு  
 மறியு ஜெடு3கா3க யெப்புடு3 \- மமதநொந்தி3௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦௦9  
 ஸீ௤ கௌ3தமீஸ்நாநாந - க3ட3தேறுத3 மடந்ந  
@@ -16683,8 +16683,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ கஷ்டமுலகோர்வ நாசேத - கா3து3 நிந்நு  
 ஸ்மரணசேஸெத3 நா யதா4 \- ஶக்தி கொலதி3௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦1௦  
 ஸீ௤ அர்தி2வாண்ட்3ரகு நீக - ஹாநி ஜேயுட கண்டெ  
@@ -16698,8 +16698,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ஜலஜதள3நேத்ர நீ ப4க்த - ஜநுலதோடி3  
 ஜக3ட3மாடெ3டு3 பநிகண்டெ - ஜாவு மேலு  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦11  
 ஸீ௤ கா3ர்த3ப4ம்பு3ந கேல - கஸ்தூரி திலகம்பு3?  
@@ -16713,8 +16713,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ த்3ரோஹசிந்தந ஜேஸெடி3 \- து3ர்ஜநுலகு  
 மது4ரமைநட்டி நீநாம - மந்த்ரமேல?  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦12  
 ஸீ௤ பஸரம்பு3 வஂஜைந - ப3ஸுலகாபரி தப்பு  
@@ -16728,8 +16728,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ இட்டி தப்புலெறுங்க3க - யிச்சவச்சி  
 நடுல மெலகு3து3 ரிப்பு டீ3 \- யவநி ஜநுலு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦13  
 ஸீ௤ கோதிகி ஜலதாரு - குள்லாயி யேடிகி?  
@@ -16743,8 +16743,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ மாட நிலுகட3 குஂகரி - மோடு கேல?  
 செவிடிவாநிகி ஸத்கத2 \- ஶ்ரவண மேல?  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦14  
 ஸீ௤ மாந்யம்பு3லீய ஸ - மர்து4டொ3க்கடு3 லேடு3  
@@ -16758,8 +16758,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ யிட்டி து3ஷ்டுல கதி4கார - மிச்சிநட்டி  
 ப்ரபு4வு தப்பு லடஂசுநு - ப3லுகவலெநு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦15  
 ஸீ௤ தல்லிக3ர்ப4முநுண்டி3 \- த4நமு தே டெ3வ்வடு3  
@@ -16773,8 +16773,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ துத3கு தொ3ங்க3ல கித்துரோ - தொ3ரல கவுநொ  
 தேநெ ஜுண்டீக3 லிய்யவா - தெருவருலகு?  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦16  
 ஸீ௤ லோகமம் தெ3வடை3ந - லோபி4மாநவு டு3ந்ந  
@@ -16788,8 +16788,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ஶ்ரீரமாநாத2 ❘ யிடுவண்டி - க்ரூருநகுநு  
 பி4க்ஷுகுல ஶத்ருவநி - பேரு பெட்டவச்சு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦17  
 ஸீ௤ தநுவுலோ ப்3ராணமுல் = தரளிபொய்யெடி3வேள  
@@ -16803,8 +16803,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ கமலநாப4 நீ மஹிமலு - கா3நலேநி  
 துச்சு2லகு முக்திதொ3ரகுட - து3ர்லப4ம்பு3௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦18  
 ஸீ௤ நீலமேக4ஶ்யாம ❘ - நீவெ தண்ட்3ரிவி மாகு  
@@ -16818,8 +16818,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ தோயஜாதாக்ஷ நீ பாத3 \- துலஸிதள3மு  
 ரோக3முல கௌஷத4மு ப்3ரஹ்ம - ருத்3ரவிநுத௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦19  
 ஸீ௤ ப்3ரதிகிநந்நாள்லு நீ - பஜ4ந தப்பநு கா3நி  
@@ -16833,8 +16833,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நாடி கிப்புடெ3 சேது நீ - நாமபஜ4ந  
 தலசெத3நு, ஜெவி நிட3வய்ய ❘ - தை4ர்யமுக3நு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦2௦  
 ஸீ௤ பாஂசபௌ4திகமு து3 \- ர்ப3லமைந காயம் பி3  
@@ -16848,8 +16848,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ மரணமே நிஶ்சயமு பு3த்3தி4 \- மந்துடை3ந  
 தே3ஹமுந்நந்தலோ மிம்மு - தெ3லியவலயு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦21  
 ஸீ௤ தல்லித3ண்ட்3ருலு பா4ர்ய - தநயு லாப்துலு பா3வ  
@@ -16863,8 +16863,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ சுட்டமுலமீதி3 ப்4ரமதீ3ஸி - சூர ஜெக்கி  
 ஸந்ததமு மிம்மு நம்முட - ஸார்த2கம்பு3௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦22  
 ஸீ௤ இப4ராஜவரத3 ❘ நி - ந்நெந்த பி3ல்சிநகா3நி  
@@ -16878,8 +16878,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ மோக்ஷதா3யக ❘ யிடுவண்டி - மூர்கஜ2நுநி  
 கஷ்டபெட்டிந நீகேமி - கடு3புநிண்டு3௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦23  
 ஸீ௤ நீமீத3 கீர்தநல் - நித்யகா3நமு ஜேஸி  
@@ -16893,8 +16893,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ஸாது4ட3நு மூர்க2மதி மநு - ஷ்யாத4முட3நு  
 ஹீநுட3நு ஜும்மி நீவு - ந ந்நேலுகொநுமு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦24  
 ஸீ௤ அதிஶயம்பு3க3 க3ல்ல - லாட3நேர்சிதிகா3நி  
@@ -16908,8 +16908,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ பஂ3கஜாதாக்ஷ ❘ நே நதி - பாதகுட3நு  
 த3ப்புலந்நியு க்ஷமியிம்ப - த3ண்ட்3ரி வீவெ ❘  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦25  
 ஸீ௤ உர்விலோ நாயுஷ்ய - முந்ந பர்யந்தம்பு3  
@@ -16923,8 +16923,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ த3ந்நு விடி3பிம்ப வச்செடி3 \- த4ந்யு டே3டி3  
 முந்து3 நீதா3ஸுடை3 யுந்ந - முக்தி க3லுகு3௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦26  
 ஸீ௤ அதி4க வித்3யாவந்து - லப்ரயோஜகுலைரி  
@@ -16938,8 +16938,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ பக்ஷிவாஹந ❘ மாவண்டி - பி4க்ஷுகுலகு  
 ஶக்திலேதா3யெ நிக நீவெ - சாடு மாகு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦27  
 ஸீ௤ பு4ஜப3லம்பு3ந பெ3த்3த3 \- புலுல ஜம்பக3வச்சு  
@@ -16953,8 +16953,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ பு3ட3மிலோ து3ஷ்டுலகு ஜ்ஞாந - போ3த4 தெலிபி  
 ஸஜ்ஜநுல ஜேயலே டெ3ந்த - சதுருதை3ந௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦28  
 ஸீ௤ அவநிலோக3ல யாத்ர - லந்நி சேயக3வச்சு  
@@ -16968,8 +16968,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ஜித்த மந்யஸ்த2லம்பு3ந - ஜேரகுண்ட3  
 நீ பதா3ம்போ4ஜமுலயந்து3 \- நிலபராது3௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦29  
 ஸீ௤ கர்ணயுக்3மமுந நீ - கத2லு ஸோகிநஜாலு  
@@ -16983,8 +16983,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ பூநி நிநு கொ3ல்சுடே ஸர்வ - பூ4ஷணம்பு3  
 லிதர பூ4ஷணமுல நிச்ச - கி3ம்பநேல௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦3௦  
 ஸீ௤ பு4வநரக்ஷக ❘ நிந்நு - பொ3க3ட3நேரநி நோரு  
@@ -16998,8 +16998,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ பத்3மலோசந நீமீத3 \- ப4க்திலேநி  
 மாநவுடு3 ரெண்டு3பாதா3ல - மஹிஷமய்ய௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦31  
 ஸீ௤ அதிவித்3யநேர்சுட - அந்நவஸ்த்ரமுலகே  
@@ -17013,8 +17013,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ யிதர காமம்பு3 கோ3ரக - ஸததமுக3நு  
 ப4க்தி நீயந்து3 நிலுபுட - முக்தி கொறகெ  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦32  
 ஸீ௤ த4ரணிலோ வேயேண்ட்3லு - தநுவு நில்வக3போ3து3  
@@ -17028,8 +17028,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ வெர்ரி குக்கல ப்4ரமலந்நி - விடி3சி நிந்நு  
 பஜ4ந ஜேஸெடி3வாரிகி - ப3ரமஸுக2மு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦33  
 ஸீ௤ நரஸிம்ஹ ❘ நாகு து3 \- ர்ணயமுலே மெண்டா3யெ  
@@ -17043,8 +17043,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ அப்3ஜதள3நேத்ர ❘ நாதண்ட்3ரி - வைந ப2லமு  
 நேரமுலு கா3சி ரக்ஷிம்பு - நீவெ தி3க்கு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦34  
 ஸீ௤ தீ4ரத ப3ருல நிம் - தி3ம்ப நேர்சிதி கா3நி  
@@ -17058,23 +17058,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நவநிலோ நேநு ஜந்மிஂசி - நந்து3 கேமி  
 ஸார்த2கமு கா3நராதா3யெ - ஸ்வல்பமைந௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦35  
 ஸீ௤ அந்த்யகாலமுநந்து3 \- நாயாஸமுந நிந்நு  
 த3லதுநோ தலபநோ - தலது நிபுடெ3  
-நரஸிம்ஹ ❘ நரஸிம்ஹ | - நரஸிம்ஹ | லக்ஷ்மீஶ |  
-தா3நவாந்தக ❘ கோடி - பா4நுதேஜ |  
-கோ3விந்த3 ❘ கோ3விந்த3 | - கோ3விந்த3 | ஸர்வேஶ |  
-பந்நகா3தி4பஶாயி ❘ - பத்3மநாப4 |  
-மது4வைரி ❘ மது4வைரி | - மது4வைரி | லோகேஶ |  
-நீலமேக4ஶரீர ❘ நிக3மவிநுத |  
+நரஸிம்ஹ ❘ நரஸிம்ஹ ｜ - நரஸிம்ஹ ｜ லக்ஷ்மீஶ ｜  
+தா3நவாந்தக ❘ கோடி - பா4நுதேஜ ｜  
+கோ3விந்த3 ❘ கோ3விந்த3 ｜ - கோ3விந்த3 ｜ ஸர்வேஶ ｜  
+பந்நகா3தி4பஶாயி ❘ - பத்3மநாப4 ｜  
+மது4வைரி ❘ மது4வைரி ｜ - மது4வைரி ｜ லோகேஶ ｜  
+நீலமேக4ஶரீர ❘ நிக3மவிநுத ｜  
 
 தே௤ ஈ வித4ம்பு3ந நீநாம - மிஷ்டமுக3நு  
 பஜ4நஸேயுசு நுந்து3 நா - பா4வமந்து3௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦36  
 ஸீ௤ ஆயுராரோக்3ய பு - த்ரார்த2 ஸம்பத3லந்நி  
@@ -17088,8 +17088,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ அவநிலோ மாநவுல கந்நி - யாஸலிச்சி  
 வ்யர்து2லநு ஜேஸி தெலிபெடி3 \- வாட3 வீவெ௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦37  
 ஸீ௤ காய மெந்த ப4யாந - கா3பாடி3நநுகா3நி  
@@ -17103,8 +17103,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ஜீவுநி ப்ரயாணகாலம்பு3 \- ஸித்3த4மைந  
 நிலுசுநா தே3ஹ மிந்தொ3க்க - நிமிஷமைந?  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦38  
 ஸீ௤ ஜந்தெ3 மிம்புக3 வேஸி - ஸந்த்4ய வார்சிந நேமி  
@@ -17118,8 +17118,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ எந்நி லௌகிகவேஷாலு - க3ட்டுகொநிந  
 கு3ருநி ஜெந்த3க ஸந்முக்தி - தொ3ரகபோ3து3௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦39  
 ஸீ௤ நரஸிம்ஹ ❘ நே நிந்நு - நம்மிநந்து3கு ஜால  
@@ -17133,8 +17133,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ எசட நந்நுஂசிநநுகா3நி - யெபுடு3 நிந்நு  
 மறசி போகுண்ட3 நீநாம - ஸ்மரணநொஸகு3௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦4௦  
 ஸீ௤ தே3ஹ முந்நவறகு - மோஹஸாக3ரமந்து3  
@@ -17148,8 +17148,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ மத்துலைநட்டி து3ர்ஜாதி - மநுஜுலெல்ல  
 நிந்நு க3நலேரு மொத3டிகே - நீரஜாக்ஷ௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦41  
 ஸீ௤ இலலோந நே ஜந்ம - மெத்திநப்படிநுண்டி3  
@@ -17163,8 +17163,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ஸூர்யஶஶிநேத்ர ❘ நீசாடு - ஜொச்சி நாநு  
 கலுஷமுலு த்3ருஂசி நந்நேலு - கஷ்டமநக௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦42  
 ஸீ௤ தாபஸார்சித ❘ நேநு - பாபகர்முட3நஂசு  
@@ -17178,8 +17178,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ த3ண்ட்3ரிவை நீவு பரபீட3 \- த3கு3லஜேய  
 வாஸிக3ல பேரு கபகீர்தி - வச்சுநய்ய௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦43  
 ஸீ௤ த4ரணிலோபல நேநு - தல்லிக3ர்ப4முநந்து3  
@@ -17193,8 +17193,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நளிநதள3நேத்ர ❘ நிந்நு நே - நம்மிநாநு  
 ஜேரி ரக்ஷிம்பவே நந்நு - ஶீக்4ரமுக3நு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦44  
 ஸீ௤ அட3விபக்ஷுல கெவ்வ - டா3ஹார மிச்செநு  
@@ -17208,8 +17208,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ஜீவகோட்லநு போ3ஷிம்ப - நீவெகாநி  
 வேறெ யொக தா3த லேட3ய்ய - வெத3கிசூட௤3  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦45  
 ஸீ௤ த3நுஜாரி ❘ நாவண்டி - தா3ஸஜாலமு நீகு  
@@ -17223,8 +17223,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ பூ4ஜநுலலோந நே நப்ர - யோஜகுட3நு  
 க3நுக நீ ஸத்கடாக்ஷம்பு3 \- க3லுகஜ3ேயு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦46  
 ஸீ௤ கமலலோசந ❘ நந்நு - க3ந்நதண்ட்3ரிவிகா3ந  
@@ -17238,8 +17238,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ கொஸகு நீ ஶங்க3 சக்ரமுல் - குது3வபெ3ட்டி  
 க்3ராஸமு நொஸங்கி3 போஷிஂசு - கபடமுடி3கி3௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦47  
 ஸீ௤ குவலயஶ்யாம ❘ நீ - கொலுவு சேஸிந நாகு  
@@ -17253,8 +17253,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நேடு3 கருணிம்பகுண்டிவா - நிஶ்சயமுக3  
 தெ3க3ப3டி3தி சூடு3 நீதோட3 \- ஜக3ட3முநகு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦48  
 ஸீ௤ ஹரி ❘ நீகு ப3ர்யஂக - மைந ஶேஷுடு3 சால  
@@ -17268,8 +17268,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ஸ்வஸ்த2முக3 நீகு க்3ராஸமு - ஜருகு3சுண்டு3  
 கா3ஸு நீ சேதி தொ3கடைந - கா3து3 வ்யயமு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦49  
 ஸீ௤ புண்ட3ரீகாக்ஷ ❘ நா - ரெண்டு3 கந்நுல நிண்ட3  
@@ -17283,8 +17283,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நேமிடிகி விஸ்தரிஂசெ நீ - கிந்த கீர்தி  
 த்3ரோஹிநைநநு நா கீவு - தொ3ரகராதெ3?  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦5௦  
 ஸீ௤ பச்சி சர்மபு தி3த்தி - பஸலேது3 தே3ஹம்பு3  
@@ -17298,8 +17298,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ பொ3ந்தி3லோ நுண்டு3 ப்ராணமுல் - போயிநந்த  
 கா3டிகே கா3நி கொறகா3து3 \- க3வ்வகைந௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦51  
 ஸீ௤ பலுரோக3முலகு நீ - பாத3தீரமெ காநி  
@@ -17313,8 +17313,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ தொ3ரிகிதிவி நாகு த3ண்டி3 வை - த்3யுட3வு நீவு  
 வேயிகஷ்டாலு வச்சிநந் - வெறவநய்ய௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦52  
 ஸீ௤ கூடிகோஸரமு நே - கொ3றகா3நி ஜநுலசே  
@@ -17328,8 +17328,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நிடுல ஸம்ஸாரவாரிதி4 \- நீத3லேக  
 வேயிவித4முல நிந்நு நே - வேடு3கொண்டி௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦53  
 ஸீ௤ ஸாது4 ஸஜ்ஜநுலதோ - ஜக3ட3மாடி3ந கீ3டு3  
@@ -17343,8 +17343,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ து3ஷ்டகார்யமு லொநரிஂசு - து3ர்ஜநுலகு  
 க4நதரம்பை3ந நரகம்பு3 \- க3ட்டிமுல்லெ௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦54  
 ஸீ௤ பருலத்3ரவ்யமுமீத3 \- ப்4ராந்தி நொந்தி3நவாடு3  
@@ -17358,8 +17358,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ப்ரஜல ஜந்துல ஹிம்ஸிஂசு - பாதகுண்டு3  
 காலகிஂகர க3த3லசே - க3ஷ்டமொந்து3௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦55  
 ஸீ௤ நரஸிம்ஹ ❘ நா தண்ட்3ரி - நந்நேலு நந்நேலு  
@@ -17373,8 +17373,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ஸுரவிநுத ❘ நேநு நீசாடு - ஜொச்சிநாநு  
 நா மொறாலிஂசி கட3தேர்சு - நாக3ஶயந ❘  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦56  
 ஸீ௤ நீ ப4க்துலநு க3நுல் - நிண்ட3 ஜூசியு ரெண்டு3  
@@ -17388,8 +17388,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ பரமப4க்துண்டு3 த4ந்யுண்டு3 \- பா4நுதேஜ ❘  
 வாநி க3நுகொ3ந்ந பு3ண்யம்பு3 \- வஸுத4லோந௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦57  
 ஸீ௤ பக்ஷிவாஹந ❘ நேநு - ப்3ரதிகிநந்நிதி3நாலு  
@@ -17403,8 +17403,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ கொஸகு நீ ஸந்நிதி4கி பி3ல்சு - கொநியு நீகு  
 ஸேவகுநி ஜேஸிகொநவய்ய - ஶேஷஶயந ❘  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦58  
 ஸீ௤ நிக3மாதி3ஶாஸ்த்ரமுல் - நேர்சிந த்3விஜுடை3ந  
@@ -17418,8 +17418,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ க3ர்வமுந க3ஷ்டபடி3 நிந்நு - கா3நகுந்ந  
 மோக்ஷஸாம்ராஜ்ய மொந்த3டு3 \- மோஹநாங்க3 ❘  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦59  
 ஸீ௤ பஂஜரம்பு3ந கா3கி - ப3ட்டி யுஂசிந லெஸ்ஸ  
@@ -17433,8 +17433,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ குஜநுலநு தெ3ச்சி நீ ஸேவ - கொறகு பெ3ட்ட  
 வாஞ்ச2தோ ஜேதுரே ப4க்த - வருலவலெநு?  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦6௦  
 ஸீ௤ நீகு தா3ஸுட3 நண்டி - நிந்நு நம்முகயுண்டி  
@@ -17448,8 +17448,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ஶீக்4ரமுக3 கோ3ர்கு லீடே3ர்சு - சிந்த தீ3ர்சு  
 நிரதமுக3 நந்நு போ3ஷிஂசு - நெநரு நுஂசு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦61  
 ஸீ௤ வித்3ய நேர்சிதி நஂசு - விர்ரவீக3க3லேது3  
@@ -17463,8 +17463,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நலுகு3ரிகி மெப்புகா3நைந - நடு3வலேது3  
 நளிநதள3நேத்ர ❘ நிந்நு நே - நம்மிநாநு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦62  
 ஸீ௤ அதிலோபு4லநு பி4க்ஷ - மடு3க3போ3வுட ரோத  
@@ -17476,10 +17476,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ஆதா3யமுலு லேக - யப்புதீ3யுட ரோத  
 ஜார சோருல கூ3டி3 \- சநுட ரோத  
 
-தே௤ யாதி3லக்ஷ்மீஶ ❘ நீப3ண்ட - நைதிநய்ய |  
+தே௤ யாதி3லக்ஷ்மீஶ ❘ நீப3ண்ட - நைதிநய்ய ｜  
 யிஂக நெட3பா3ஸி ஜந்மம்பு3 \- லெத்த ரோத௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦63  
 ஸீ௤ வெர்ரிவாநிகி நேல - வேதா3க்ஷரம்பு3லு?  
@@ -17493,8 +17493,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ க்ரூரஜநுலகு நீமீத3 \- கோ3ரி கேல?  
 த்3ரோஹி பாபாத்முநகு த3யா - து3ஃக2 மேல?  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦64  
 ஸீ௤ நா தண்ட்3ரி நாதா3த - நாயிஷ்டதை3வமா  
@@ -17508,8 +17508,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ த3ண்டி3தொ3ர வஂசு நீவெண்ட - த3கி3லிநாநு  
 நேடு3 ப்ரத்யக்ஷமை நந்நு - நிர்வஹிம்பு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦65  
 ஸீ௤ வேமாறு நீகத2ல் - விநுசு நுண்டெ3டி3வாடு3  
@@ -17523,8 +17523,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நிந்நு நம்மிந ப4க்துண்டு3 \- நிஶ்சயமுக3  
 கோ3ரி சில்லர வேல்புல - கொ3ல்வபோ3டு3௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦66  
 ஸீ௤ நே நெந்த வேடி3ந - நீ கேல த3யராது3?  
@@ -17538,8 +17538,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ தா3த தை3வம்பு3 தல்லியு - த3ண்ட்3ரி வீவெ  
 நம்மியுந்நாநு நீபாத3 \- நளிநமுலநு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦67  
 ஸீ௤ வேத3முல் சதி3வெடு3 \- விப்ரவர்யுண்டை3ந  
@@ -17553,8 +17553,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நிந்நு கொ3நியாடு3சுண்டெ3நா - நிஶ்சயமுக3  
 வாடு3 மோக்ஷாதி4காரி யீ - வஸுத4லோந௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦68  
 ஸீ௤ ஸகலவித்3யலு நேர்சி - ஸப4 ஜயிம்பக3வச்சு  
@@ -17568,8 +17568,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ தாமரஸக3ர்ப4 ஹர புரம் - த3ருலகைந  
 நிந்நு வர்ணிம்ப த3ரமௌநெ - நீரஜாக்ஷ ❘  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦69  
 ஸீ௤ நரஸிம்ஹ ❘ நீவண்டி - தொ3ரநு ஸம்பாதி3ஂசி  
@@ -17581,10 +17581,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 பெட்டஜாலக யேல - பி4க்ஷமெத்திஂசெது3  
 நந்நு பீ3த3நு ஜேஸி - நா வதே3மி?  
 
-தே௤ அமல ❘ கமலாக்ஷ | நே நிட்லு - ஶ்ரமபட3ங்க3  
+தே௤ அமல ❘ கமலாக்ஷ ｜ நே நிட்லு - ஶ்ரமபட3ங்க3  
 க3ந்நுலகு ப3ண்டு3வை நீகு - கா3நப3டு3நெ?  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦7௦  
 ஸீ௤ வநருஹநாப4 ❘ நீ - வஂக ஜேரிதி நேநு  
@@ -17598,8 +17598,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ கோ3பகா3ட3நு நீவு நா - கு3ணமு தெலிஸி  
 யிப்புடே3 நந்நு ரக்ஷிஂசி - யேலுகொம்மு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦71  
 ஸீ௤ ப்ரஹ்லாது3 டே3பாடி - பைடி3 காநுக லிச்செ?  
@@ -17613,8 +17613,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நீகு வீரந்த3 றயிநட்லு - நேநு கா3ந?  
 யெந்து3 கநி நந்நு ரக்ஷிம்ப - விந்து3வத3ந ❘  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦72  
 ஸீ௤ வாஞ்ச2தோ ப3லிசக்ர - வர்தித3க்3க3ர ஜேரி  
@@ -17628,8 +17628,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ப4க்துலகு நீவு பெட்டுட - பா4க்3யமௌநு  
 வாரி காஶிஂசிதிவி திண்டி3 \- வாட3 வகு3சு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦73  
 ஸீ௤ ஸ்தம்ப4மம் து3த3யிஂசி - தா3நவேந்த்3ருநி த்3ருஂசி  
@@ -17643,8 +17643,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ வாரிவலெ நந்நு போ3ஷிம்ப - வஶமுகா3தெ3?  
 யந்த வலபக்ஷ மேல ஶ்ரீ - காந்த ❘ நீகு?  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦74  
 ஸீ௤ வ்யாஸு டே3 குலமந்து3 \- வாஸிகா3 ஜந்மிஂசெ?  
@@ -17658,8 +17658,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நே குலம்பு3ந வீ ரிந்த3 \- றெச்சிநாரு?  
 நீக்ருபாபாத்ருலகு ஜாதி - நீது லேல?  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦75  
 ஸீ௤ வஸுதா4ஸ்த2லம்பு3ந - வர்ணஹீநுடு3 கா3நி  
@@ -17673,8 +17673,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ப்ரதிதி3நமு நீது3 பஜ4நசே - ப3ரகு3நட்டி  
 வாநி கே வஂக லேத3ய்ய - வச்சு முக்தி௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦76  
 ஸீ௤ இப4கும்ப4முலமீதி3 \- கெகி3ரெடி3 ஸிங்க3ம்பு3  
@@ -17688,8 +17688,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நிலநு நீகீர்தநலு பாட3 \- நேர்சிநதடு3  
 பருலகீர்தந பா3டு3நே - யரஸி சூட?3  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦77  
 ஸீ௤ ஸர்வேஶ ❘ நீபாத3 \- ஸரஸிஜத்3வயமந்து3  
@@ -17703,8 +17703,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ப்ரேமதோ நந்நு போ3ஷிஂசி - பெஂசுகொநுமு  
 க4நத கெக்கிஂசு நீதா3ஸ - க3ணமுலோந௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦78  
 ஸீ௤ ஜீமூதவர்ண ❘ நீ - மோமுதோ ஸரிராக  
@@ -17718,8 +17718,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நிந்தி3ராதே3வி நிந்நு மோ - ஹிஂசி விட3க  
 நீகு ப3ட்டமஹிஷி யய்யெ - நிஶ்சயமுக௤3  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦79  
 ஸீ௤ ஹரிதா3ஸுலநு நிந்த3 \- லாட3குண்டி3ந ஜாலு  
@@ -17733,8 +17733,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ஒகரி வர்ஶாஶநமு முஂச - குந்ந ஜாலு  
 பே3ருகீர்திக3 ஸத்ரமுல் - பெட்டிநட்லு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦8௦  
 ஸீ௤ இஹலோகஸௌக்2யமு - லிச்சகி3ஂசெத3 மந்ந  
@@ -17748,8 +17748,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நம்மரா த3ய்ய ❘ யிதி3 மாய - நாடகம்பு3  
 ஜந்ம மிக நொல்ல ந ந்நேலு - ஜலஜநாப4 ❘  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦81  
 ஸீ௤ வத3நம்பு3 நீநாம - பஜ4ந கோ3ருசுநுண்டு3  
@@ -17763,8 +17763,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ஸ்வப்நமுந நைந நேவேள - ஸந்ததமுநு  
 பு3த்3தி4 நீ பாத3முலயந்து3 \- பூ3நியுண்டு3௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦82  
 ஸீ௤ பத்3மாக்ஷ ❘ மமதசே - ப3ரமு நந்தெ3த3 மஂசு  
@@ -17778,23 +17778,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நீ ஶரீராலு படி3போவு - டெறுக3 கேமு  
 காமுகுல மைதி மிக மிம்மு - கா3நலேமு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦83  
-ஸீ௤ க3ருட3வாஹந ❘ தி3வ்ய - கௌஸ்துபா4லஂகார |  
-ரவிகோடிதேஜ ❘ ஸா - ரங்க3வத3ந |  
-மணிக3ணாந்வித ❘ ஹேம - மகுடாப4ரண | சாரு  
-மகரகுண்ட3ல ❘ லஸ - ந்மந்த3ஹாஸ |  
-காஂசநாம்ப3ர ❘ ரத்ந - காஂசிவிபூ4ஷித |  
-ஸுரவரார்சித ❘ சந்த்3ர - ஸூர்யநயந |  
-கமலநாப4 ❘ முகுந்த3 | - க3ங்கா3த4ரஸ்துத |  
-ராக்ஷஸாந்தக ❘ நாக3 \- ராஜஶயந |  
+ஸீ௤ க3ருட3வாஹந ❘ தி3வ்ய - கௌஸ்துபா4லஂகார ｜  
+ரவிகோடிதேஜ ❘ ஸா - ரங்க3வத3ந ｜  
+மணிக3ணாந்வித ❘ ஹேம - மகுடாப4ரண ｜ சாரு  
+மகரகுண்ட3ல ❘ லஸ - ந்மந்த3ஹாஸ ｜  
+காஂசநாம்ப3ர ❘ ரத்ந - காஂசிவிபூ4ஷித ｜  
+ஸுரவரார்சித ❘ சந்த்3ர - ஸூர்யநயந ｜  
+கமலநாப4 ❘ முகுந்த3 ｜ - க3ங்கா3த4ரஸ்துத ｜  
+ராக்ஷஸாந்தக ❘ நாக3 \- ராஜஶயந ｜  
 
-தே௤ பதிதபாவந ❘ லக்ஷீஶ | - ப்3ரஹ்மஜநக |  
-ப4க்தவத்ஸல ❘ ஸர்வேஶ | - பரமபுருஷ |  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+தே௤ பதிதபாவந ❘ லக்ஷீஶ ｜ - ப்3ரஹ்மஜநக ｜  
+ப4க்தவத்ஸல ❘ ஸர்வேஶ ｜ - பரமபுருஷ ｜  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦84  
 ஸீ௤ பலுமாறு த3ஶரூப - முலு த3ரிஂசிதி வேல?  
@@ -17808,8 +17808,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ வநஜலோசந ❘ யிடுவண்டி - வைப4வமுலு  
 ஸொக3ஸுகா3 நீகு தோ3செநோ - ஸுந்த3ராங்க?3  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦85  
 ஸீ௤ திருபதி ஸ்த2லமந்து3 \- தி3ந்நகா3 நே நுந்ந  
@@ -17823,8 +17823,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ யெந்து3 போ3வக நேநு நீ - மந்தி3ரமுந  
 நிலிசிதிநி நீகு நாமீத3 \- நெநரு லேது3௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦86  
 ஸீ௤ தார்க்ஷ்யவாஹந ❘ நீவு - த3ண்டி3தா3த வடஂசு  
@@ -17838,8 +17838,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நீகு நாவித்3ய ஹர்ஷம்பு3 \- கா3க யுந்ந  
 தேபதேபகு வேஷமுல் - தே3நு ஸும்மி௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦87  
 ஸீ௤ அமரேந்த்3ரவிநுத ❘ நே - நதிது3ராத்முட3 நஂசு  
@@ -17853,23 +17853,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நடு3புசுநு நிந்நு கொ3லிசெத3 \- நம்மி பு3த்3தி4  
 நீ ப்ரபஂசம்பு3 க3லுகு3 நா - கிந்தெ சாலு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦88  
-ஸீ௤ பு4வநேஶ ❘ கோ3விந்த3 | - ரவிகோடிஸஂகாஶ |  
-பக்ஷிவாஹந ❘ ப4க்த - பாரிஜாத |  
+ஸீ௤ பு4வநேஶ ❘ கோ3விந்த3 ｜ - ரவிகோடிஸஂகாஶ ｜  
+பக்ஷிவாஹந ❘ ப4க்த - பாரிஜாத ｜  
 யம்போ4ஜப4வ ருத்3ர - ஜம்பா4ரிஸந்நுத ❘  
-ஸாமகா3நவிலோல ❘ - ஸாரஸாக்ஷ |  
-வநதி4க3ம்பீ4ர ❘ ஶ்ரீ - வத்ஸகௌஸ்துப4வக்ஷ |  
+ஸாமகா3நவிலோல ❘ - ஸாரஸாக்ஷ ｜  
+வநதி4க3ம்பீ4ர ❘ ஶ்ரீ - வத்ஸகௌஸ்துப4வக்ஷ ｜  
 ஶங்க3சக்ரக3தா3ஸி - ஶார்ஜ்ஞஹஸ்த ❘  
-தீ3நரக்ஷக ❘ வாஸு - தே3வ | தை3த்யவிநாஶ |  
-நாரதா3ர்சித ❘ தி3வ்ய - நாக3ஶயந |  
+தீ3நரக்ஷக ❘ வாஸு - தே3வ ｜ தை3த்யவிநாஶ ｜  
+நாரதா3ர்சித ❘ தி3வ்ய - நாக3ஶயந ｜  
 
 தே௤ சாரு நவரத்நகுண்ட3ல - ஶ்ரவணயுகள3 ❘  
-விபு3த4வந்தி3த பாத3ப்3ஜ ❘ - விஶ்வரூப |  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+விபு3த4வந்தி3த பாத3ப்3ஜ ❘ - விஶ்வரூப ｜  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦89  
 ஸீ௤ நாகே3ந்த்3ரஶயந ❘ நீ - நாமமாது4ர்யம்பு3  
@@ -17883,8 +17883,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ வீரி கெறுககு3 நீகத2ல் - விந்த லெல்ல  
 நருல கெறு கந்ந நெவரைந - நவ்விபோரெ?  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦9௦  
 ஸீ௤ அர்து2 லேமைந நி - ந்நடு3க3வச்செத3 ரஂசு  
@@ -17897,9 +17897,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 மஂசி யோது4ல காவ - லுஂசிநாவு  
 
 தே௤ லாவு க3லவாட3 வைதி வே - லாகு3 நேநு  
-நிந்நு ஜூதுநு நாதண்ட்3ரி ❘ - நீரஜாக்ஷ |  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+நிந்நு ஜூதுநு நாதண்ட்3ரி ❘ - நீரஜாக்ஷ ｜  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦91  
 ஸீ௤ நீகத2ல் செவுலலோ - ஸோகுட மொத3லுகா3  
@@ -17908,13 +17908,13 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 மக்3நுடை3 தே3ஹம்பு3 \- மறசுவாடு3  
 பா2லம்பு3தோ நீது3 \- பாத3யுக்3மமுநகு  
 ப்3ரேமதோ த3ண்ட3 ம - ர்பிஂசுவாடு3  
-ஹா புண்ட3ரீகாக்ஷ ❘ - ஹா ராம | ஹரி | யஂசு  
+ஹா புண்ட3ரீகாக்ஷ ❘ - ஹா ராம ｜ ஹரி ｜ யஂசு  
 வேட்3கதோ கே3கலு - வேயுவாடு3  
 
 தே௤ சித்தகமலம்பு3நநு நிந்நு - ஜேர்சுவாடு3  
 நீது3லோகம்பு3நம் து3ண்டு3 \- நீரஜாக்ஷ ❘  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦92  
 ஸீ௤ நிக3மகோ3சர ❘ நேநு - நீகு மெப்பகு3நட்லு  
@@ -17928,8 +17928,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நந்நி க3லவாட3 வகி2ல லோ - காதி4பதிவி ❘  
 நீகு ஸொம்முலு பெட்ட நே - நெந்தவாட3 ❘  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦93  
 ஸீ௤ நவஸரோஜதள3ாக்ஷ ❘ - நந்நு போ3ஷிஂசெடு3  
@@ -17943,8 +17943,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ப3ரமஸந்தோஷ மாயெ நா - ப்ராணமுலகு  
 நீ^^ருணமு தீ3ர்சுகொந நேர - நீரஜாக்ஷ ❘  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦94  
 ஸீ௤ ப2ணுலபுட்டலமீத3 \- ப3வ்வளிஂசிநயட்லு  
@@ -17958,23 +17958,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ ஸ்வாமி நீ ப4க்தவருலு து3 \- ர்ஜநுலதோட3  
 ஜெலிமி ஜேஸிநய ட்லைந - ஜேடு வச்சு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦95  
-ஸீ௤ த3நுஜஸம்ஹார ❘ சக்ர - த4ர | நீகு த3ண்ட3ம்பு3  
+ஸீ௤ த3நுஜஸம்ஹார ❘ சக்ர - த4ர ｜ நீகு த3ண்ட3ம்பு3  
 லிந்தி3ராதி4ப ❘ நீகு - வந்த3நம்பு3  
 பதிதபாவந ❘ நீகு - ப3ஹுநமஸ்காரமுல்  
 நீரஜாததள3ாக்ஷ ❘ - நீகு ஶரணு  
-வாஸவார்சித ❘ மேக4 \- வர்ண | நீகு ஶுப4ம்பு3  
+வாஸவார்சித ❘ மேக4 \- வர்ண ｜ நீகு ஶுப4ம்பு3  
 மந்த3ரத4ர ❘ நீகு - மங்கள3ம்பு3  
-கம்பு3கந்த4ர ❘ ஶார்ஜ்க3 \- கர | நீகு ப4த்3ரம்பு3  
+கம்பு3கந்த4ர ❘ ஶார்ஜ்க3 \- கர ｜ நீகு ப4த்3ரம்பு3  
 தீ3நரக்ஷக ❘ நீகு - தி3க்3விஜயமு  
 
 தே௤ ஸகலவைப4வமுலு நீகு - ஸார்வபௌ4ம ❘  
 நித்யகல்யாணமுலு நகு3 \- நீகு நெபுடு3௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦96  
 ஸீ௤ மத்ஸ்யாவதார மை - மடு3கு3லோபல ஜொச்சி  
@@ -17988,8 +17988,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ யுந்து3 ரரவிந்த3நயந ❘ நீ - யுநிகி தெ3லியு  
 வாரலகு வேக3 மோக்ஷம்பு3 \- வச்சு நநக4 ❘  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦97  
 ஸீ௤ கூர்மாவதாரமை - குத4ரம்பு3க்ரிந்த3நு  
@@ -18002,9 +18002,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 வர்தி நறம்பவா - வைர முடி3கி3?  
 
 தே௤ யிட்டி பநு லெல்ல ஜேயகா3 \- நெவரிகேநி  
-தகு3நெ நரஸிம்ஹ ❘ நீகிதி3 \- த3கு3நு கா3க |  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+தகு3நெ நரஸிம்ஹ ❘ நீகிதி3 \- த3கு3நு கா3க ｜  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦98  
 ஸீ௤ லக்ஷ்மீஶ ❘ நீதி3வ்ய - லக்ஷணகு3ணமுல  
@@ -18018,8 +18018,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நம்மியுந்நாநு நீபாத3 \- நளிநப4க்தி  
 வேக3 த3யசேஸி ரக்ஷிம்பு - வேத3வித்3ய ❘  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ௦99  
 ஸீ௤ அமரேந்த்3ரவிநுத ❘ நி - ந்நநுஸரிஂசிநவாரு  
@@ -18033,8 +18033,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நநுசு ப3லுமாறு வேடெ3த3 \- நப்3ஜநாப4 ❘  
 நாகு ப்3ரத்யக்ஷ மகு3மு நிந் - நம்மிநாநு௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 1௦௦  
 ஸீ௤ ஶேஷப்ப யநு கவி - செப்பிந பத்3யமுல்  
@@ -18048,27 +18048,27 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 தே௤ நித்3தி3 புண்யாகரம் ப3நி - யெபுடு3 ஜநுலு  
 க3ஷட மெந்நக படி2யிம்ப - க3லுகு3 முக்தி௤  
-பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ |  
-து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர |  
+பூ4ஷணவிகாஸ ❘ ஶ்ரீத4ர்ம - புரநிவாஸ ｜  
+து3ஷ்டஸம்ஹார ❘ நரஸிம்ஹ - து3ரிததூ3ர ｜  
 
 ## Telugu
 
 నారసింహ శతకమ్  
 
 001  
-సీ౤ శ్రీమనోహర ❘ సురా - ర్చిత సింధుగంభీర |  
-భక్తవత్సల ❘ కోటి - భానుతేజ |  
-కంజనేత్ర ❘ హిరణ్య - కశ్యపాంతక | శూర |  
-సాధురక్షణ ❘ శంఖ - చక్రహస్త |  
-ప్రహ్లాద వరద ❘ పా - పధ్వంస | సర్వేశ |  
-క్షీరసాగరశాయి ❘ - కృష్ణవర్ణ |  
-పక్షివాహన ❘ నీల - భ్రమరకుంతలజాల |  
+సీ౤ శ్రీమనోహర ❘ సురా - ర్చిత సింధుగంభీర ｜  
+భక్తవత్సల ❘ కోటి - భానుతేజ ｜  
+కంజనేత్ర ❘ హిరణ్య - కశ్యపాంతక ｜ శూర ｜  
+సాధురక్షణ ❘ శంఖ - చక్రహస్త ｜  
+ప్రహ్లాద వరద ❘ పా - పధ్వంస ｜ సర్వేశ ｜  
+క్షీరసాగరశాయి ❘ - కృష్ణవర్ణ ｜  
+పక్షివాహన ❘ నీల - భ్రమరకుంతలజాల ｜  
 పల్లవారుణపాద - పద్మయుగళ ❘  
 
 తే౤ చారుశ్రీచందనాగరు - చర్చితాంగ ❘  
-కుందకుట్మలదంత ❘ వై - కుంఠధామ |  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+కుందకుట్మలదంత ❘ వై - కుంఠధామ ｜  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 002  
 సీ౤ పద్మలోచన ❘ సీస - పద్యముల్ నీ మీద  
@@ -18082,8 +18082,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ దప్పుగలిగిన సద్భక్తి - తక్కువౌనె  
 చెఱకునకు వంకపోయిన - చెడునె తీపు?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 003  
 సీ౤ నరసింహ ❘ నీ దివ్య - నామమంత్రముచేత  
@@ -18097,8 +18097,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ భళిర ❘ నే నీ మహామంత్ర - బలముచేత  
 దివ్య వైకుంఠ పదవి సా - ధింపవచ్చు  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 004  
 సీ౤ ఆదినారాయణా ❘ - యనుచు నాలుకతోడ  
@@ -18112,8 +18112,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ పరమ సాత్వికులైన నీ - భక్తవరుల  
 దాసులకు దాసుడను జుమీ - ధాత్రిలోన  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 005  
 సీ౤ ఐశ్వర్యములకు ని - న్ననుసరింపగలేదు  
@@ -18127,8 +18127,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నేను గోరిన దొక్కటే - నీలవర్ణ  
 చయ్యనను మోక్షమిచ్చిన - జాలు నాకు  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 006  
 సీ౤ మందుండనని నన్ను - నింద చేసిననేమి?  
@@ -18142,8 +18142,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ కల్పవృక్షంబువలె నీవు - గల్గ నింక  
 బ్రజల లక్ష్యంబు నాకేల? - పద్మనాభ ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 007  
 సీ౤ చిత్తశుద్ధిగ నీకు - సేవజేసెదగాని  
@@ -18157,8 +18157,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ పారమార్థికమునకు నే బాటుపడితి  
 గీర్తికి నపేక్షపడలేదు - కృష్ణవర్ణ ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 008  
 సీ౤ శ్రవణ రంధ్రముల నీ - సత్కథల్ పొగడంగ  
@@ -18172,8 +18172,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ వసుధలోనెల్ల వ్యర్ధుండు - వాడె యగును  
 మఱియు జెడుగాక యెప్పుడు - మమతనొంది౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 009  
 సీ౤ గౌతమీస్నానాన - గడతేఱుద మటన్న  
@@ -18187,8 +18187,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ కష్టములకోర్వ నాచేత - గాదు నిన్ను  
 స్మరణచేసెద నా యధా - శక్తి కొలది౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 010  
 సీ౤ అర్థివాండ్రకు నీక - హాని జేయుట కంటె  
@@ -18202,8 +18202,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ జలజదళనేత్ర నీ భక్త - జనులతోడి  
 జగడమాడెడు పనికంటె - జావు మేలు  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 011  
 సీ౤ గార్దభంబున కేల - కస్తూరి తిలకంబు?  
@@ -18217,8 +18217,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ద్రోహచింతన జేసెడి - దుర్జనులకు  
 మధురమైనట్టి నీనామ - మంత్రమేల?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 012  
 సీ౤ పసరంబు వంజైన - బసులకాపరి తప్పు  
@@ -18232,8 +18232,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ఇట్టి తప్పులెఱుంగక - యిచ్చవచ్చి  
 నటుల మెలగుదు రిప్పు డీ - యవని జనులు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 013  
 సీ౤ కోతికి జలతారు - కుళ్లాయి యేటికి?  
@@ -18247,8 +18247,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ మాట నిలుకడ కుంకరి - మోటు కేల?  
 చెవిటివానికి సత్కథ - శ్రవణ మేల?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 014  
 సీ౤ మాన్యంబులీయ స - మర్ధుడొక్కడు లేడు  
@@ -18262,8 +18262,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ యిట్టి దుష్టుల కధికార - మిచ్చినట్టి  
 ప్రభువు తప్పు లటంచును - బలుకవలెను౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 015  
 సీ౤ తల్లిగర్భమునుండి - ధనము తే డెవ్వడు  
@@ -18277,8 +18277,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ తుదకు దొంగల కిత్తురో - దొరల కవునొ  
 తేనె జుంటీగ లియ్యవా - తెరువరులకు?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 016  
 సీ౤ లోకమం దెవడైన - లోభిమానవు డున్న  
@@ -18292,8 +18292,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ శ్రీరమానాథ ❘ యిటువంటి - క్రూరునకును  
 భిక్షుకుల శత్రువని - పేరు పెట్టవచ్చు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 017  
 సీ౤ తనువులో బ్రాణముల్ = తరళిపొయ్యెడివేళ  
@@ -18307,8 +18307,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ కమలనాభ నీ మహిమలు - గానలేని  
 తుచ్ఛులకు ముక్తిదొరకుట - దుర్లభంబు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 018  
 సీ౤ నీలమేఘశ్యామ ❘ - నీవె తండ్రివి మాకు  
@@ -18322,8 +18322,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ తోయజాతాక్ష నీ పాద - తులసిదళము  
 రోగముల కౌషధము బ్రహ్మ - రుద్రవినుత౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 019  
 సీ౤ బ్రతికినన్నాళ్లు నీ - భజన తప్పను గాని  
@@ -18337,8 +18337,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నాటి కిప్పుడె చేతు నీ - నామభజన  
 తలచెదను, జెవి నిడవయ్య ❘ - ధైర్యముగను౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 020  
 సీ౤ పాంచభౌతికము దు - ర్బలమైన కాయం బి  
@@ -18352,8 +18352,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ మరణమే నిశ్చయము బుద్ధి - మంతుడైన  
 దేహమున్నంతలో మిమ్ము - దెలియవలయు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 021  
 సీ౤ తల్లిదండ్రులు భార్య - తనయు లాప్తులు బావ  
@@ -18367,8 +18367,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ చుట్టములమీది భ్రమదీసి - చూర జెక్కి  
 సంతతము మిమ్ము నమ్ముట - సార్థకంబు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 022  
 సీ౤ ఇభరాజవరద ❘ ని - న్నెంత బిల్చినగాని  
@@ -18382,8 +18382,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ మోక్షదాయక ❘ యిటువంటి - మూర్ఖజనుని  
 కష్టపెట్టిన నీకేమి - కడుపునిండు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 023  
 సీ౤ నీమీద కీర్తనల్ - నిత్యగానము జేసి  
@@ -18397,8 +18397,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ సాధుడను మూర్ఖమతి మను - ష్యాధముడను  
 హీనుడను జుమ్మి నీవు - న న్నేలుకొనుము౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 024  
 సీ౤ అతిశయంబుగ గల్ల - లాడనేర్చితిగాని  
@@ -18412,8 +18412,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ బంకజాతాక్ష ❘ నే నతి - పాతకుడను  
 దప్పులన్నియు క్షమియింప - దండ్రి వీవె ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 025  
 సీ౤ ఉర్విలో నాయుష్య - మున్న పర్యంతంబు  
@@ -18427,8 +18427,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ దన్ను విడిపింప వచ్చెడి - ధన్యు డేడి  
 ముందు నీదాసుడై యున్న - ముక్తి గలుగు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 026  
 సీ౤ అధిక విద్యావంతు - లప్రయోజకులైరి  
@@ -18442,8 +18442,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ పక్షివాహన ❘ మావంటి - భిక్షుకులకు  
 శక్తిలేదాయె నిక నీవె - చాటు మాకు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 027  
 సీ౤ భుజబలంబున బెద్ద - పులుల జంపగవచ్చు  
@@ -18457,8 +18457,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ బుడమిలో దుష్టులకు జ్ఞాన - బోధ తెలిపి  
 సజ్జనుల జేయలే డెంత - చతురుదైన౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 028  
 సీ౤ అవనిలోగల యాత్ర - లన్ని చేయగవచ్చు  
@@ -18472,8 +18472,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ జిత్త మన్యస్థలంబున - జేరకుండ  
 నీ పదాంభోజములయందు - నిలపరాదు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 029  
 సీ౤ కర్ణయుగ్మమున నీ - కథలు సోకినజాలు  
@@ -18487,8 +18487,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ పూని నిను గొల్చుటే సర్వ - భూషణంబు  
 లితర భూషణముల నిచ్చ - గింపనేల౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 030  
 సీ౤ భువనరక్షక ❘ నిన్ను - బొగడనేరని నోరు  
@@ -18502,8 +18502,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ పద్మలోచన నీమీద - భక్తిలేని  
 మానవుడు రెండుపాదాల - మహిషమయ్య౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 031  
 సీ౤ అతివిద్యనేర్చుట - అన్నవస్త్రములకే  
@@ -18517,8 +18517,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ యితర కామంబు గోరక - సతతముగను  
 భక్తి నీయందు నిలుపుట - ముక్తి కొఱకె  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 032  
 సీ౤ ధరణిలో వేయేండ్లు - తనువు నిల్వగబోదు  
@@ -18532,8 +18532,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ వెర్రి కుక్కల భ్రమలన్ని - విడిచి నిన్ను  
 భజన జేసెడివారికి - బరమసుఖము౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 033  
 సీ౤ నరసింహ ❘ నాకు దు - ర్ణయములే మెండాయె  
@@ -18547,8 +18547,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ అబ్జదళనేత్ర ❘ నాతండ్రి - వైన ఫలము  
 నేరములు గాచి రక్షింపు - నీవె దిక్కు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 034  
 సీ౤ ధీరత బరుల నిం - దింప నేర్చితి గాని  
@@ -18562,23 +18562,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నవనిలో నేను జన్మించి - నందు కేమి  
 సార్థకము గానరాదాయె - స్వల్పమైన౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 035  
 సీ౤ అంత్యకాలమునందు - నాయాసమున నిన్ను  
 దలతునో తలపనో - తలతు నిపుడె  
-నరసింహ ❘ నరసింహ | - నరసింహ | లక్ష్మీశ |  
-దానవాంతక ❘ కోటి - భానుతేజ |  
-గోవింద ❘ గోవింద | - గోవింద | సర్వేశ |  
-పన్నగాధిపశాయి ❘ - పద్మనాభ |  
-మధువైరి ❘ మధువైరి | - మధువైరి | లోకేశ |  
-నీలమేఘశరీర ❘ నిగమవినుత |  
+నరసింహ ❘ నరసింహ ｜ - నరసింహ ｜ లక్ష్మీశ ｜  
+దానవాంతక ❘ కోటి - భానుతేజ ｜  
+గోవింద ❘ గోవింద ｜ - గోవింద ｜ సర్వేశ ｜  
+పన్నగాధిపశాయి ❘ - పద్మనాభ ｜  
+మధువైరి ❘ మధువైరి ｜ - మధువైరి ｜ లోకేశ ｜  
+నీలమేఘశరీర ❘ నిగమవినుత ｜  
 
 తే౤ ఈ విధంబున నీనామ - మిష్టముగను  
 భజనసేయుచు నుందు నా - భావమందు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 036  
 సీ౤ ఆయురారోగ్య పు - త్రార్థ సంపదలన్ని  
@@ -18592,8 +18592,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ అవనిలో మానవుల కన్ని - యాసలిచ్చి  
 వ్యర్థులను జేసి తెలిపెడి - వాడ వీవె౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 037  
 సీ౤ కాయ మెంత భయాన - గాపాడిననుగాని  
@@ -18607,8 +18607,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ జీవుని ప్రయాణకాలంబు - సిద్ధమైన  
 నిలుచునా దేహ మిందొక్క - నిమిషమైన?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 038  
 సీ౤ జందె మింపుగ వేసి - సంధ్య వార్చిన నేమి  
@@ -18622,8 +18622,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ఎన్ని లౌకికవేషాలు - గట్టుకొనిన  
 గురుని జెందక సన్ముక్తి - దొరకబోదు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 039  
 సీ౤ నరసింహ ❘ నే నిన్ను - నమ్మినందుకు జాల  
@@ -18637,8 +18637,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ఎచట నన్నుంచిననుగాని - యెపుడు నిన్ను  
 మఱచి పోకుండ నీనామ - స్మరణనొసగు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 040  
 సీ౤ దేహ మున్నవఱకు - మోహసాగరమందు  
@@ -18652,8 +18652,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ మత్తులైనట్టి దుర్జాతి - మనుజులెల్ల  
 నిన్ను గనలేరు మొదటికే - నీరజాక్ష౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 041  
 సీ౤ ఇలలోన నే జన్మ - మెత్తినప్పటినుండి  
@@ -18667,8 +18667,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ సూర్యశశినేత్ర ❘ నీచాటు - జొచ్చి నాను  
 కలుషములు ద్రుంచి నన్నేలు - కష్టమనక౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 042  
 సీ౤ తాపసార్చిత ❘ నేను - పాపకర్ముడనంచు  
@@ -18682,8 +18682,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ దండ్రివై నీవు పరపీడ - దగులజేయ  
 వాసిగల పేరు కపకీర్తి - వచ్చునయ్య౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 043  
 సీ౤ ధరణిలోపల నేను - తల్లిగర్భమునందు  
@@ -18697,8 +18697,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నళినదళనేత్ర ❘ నిన్ను నే - నమ్మినాను  
 జేరి రక్షింపవే నన్ను - శీఘ్రముగను౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 044  
 సీ౤ అడవిపక్షుల కెవ్వ - డాహార మిచ్చెను  
@@ -18712,8 +18712,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ జీవకోట్లను బోషింప - నీవెకాని  
 వేఱె యొక దాత లేడయ్య - వెదకిచూడ౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 045  
 సీ౤ దనుజారి ❘ నావంటి - దాసజాలము నీకు  
@@ -18727,8 +18727,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ భూజనులలోన నే నప్ర - యోజకుడను  
 గనుక నీ సత్కటాక్షంబు - గలుగజేయు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 046  
 సీ౤ కమలలోచన ❘ నన్ను - గన్నతండ్రివిగాన  
@@ -18742,8 +18742,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ కొసకు నీ శంఖ చక్రముల్ - కుదువబెట్టి  
 గ్రాసము నొసంగి పోషించు - కపటముడిగి౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 047  
 సీ౤ కువలయశ్యామ ❘ నీ - కొలువు చేసిన నాకు  
@@ -18757,8 +18757,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నేడు కరుణింపకుంటివా - నిశ్చయముగ  
 దెగబడితి చూడు నీతోడ - జగడమునకు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 048  
 సీ౤ హరి ❘ నీకు బర్యంక - మైన శేషుడు చాల  
@@ -18772,8 +18772,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ స్వస్థముగ నీకు గ్రాసము - జరుగుచుండు  
 గాసు నీ చేతి దొకటైన - గాదు వ్యయము౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 049  
 సీ౤ పుండరీకాక్ష ❘ నా - రెండు కన్నుల నిండ  
@@ -18787,8 +18787,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నేమిటికి విస్తరించె నీ - కింత కీర్తి  
 ద్రోహినైనను నా కీవు - దొరకరాదె?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 050  
 సీ౤ పచ్చి చర్మపు దిత్తి - పసలేదు దేహంబు  
@@ -18802,8 +18802,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ బొందిలో నుండు ప్రాణముల్ - పోయినంత  
 గాటికే గాని కొఱగాదు - గవ్వకైన౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 051  
 సీ౤ పలురోగములకు నీ - పాదతీరమె కాని  
@@ -18817,8 +18817,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ దొరికితివి నాకు దండి వై - ద్యుడవు నీవు  
 వేయికష్టాలు వచ్చినన్ - వెఱవనయ్య౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 052  
 సీ౤ కూటికోసరము నే - గొఱగాని జనులచే  
@@ -18832,8 +18832,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నిటుల సంసారవారిధి - నీదలేక  
 వేయివిధముల నిన్ను నే - వేడుకొంటి౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 053  
 సీ౤ సాధు సజ్జనులతో - జగడమాడిన గీడు  
@@ -18847,8 +18847,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ దుష్టకార్యము లొనరించు - దుర్జనులకు  
 ఘనతరంబైన నరకంబు - గట్టిముల్లె౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 054  
 సీ౤ పరులద్రవ్యముమీద - భ్రాంతి నొందినవాడు  
@@ -18862,8 +18862,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ప్రజల జంతుల హింసించు - పాతకుండు  
 కాలకింకర గదలచే - గష్టమొందు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 055  
 సీ౤ నరసింహ ❘ నా తండ్రి - నన్నేలు నన్నేలు  
@@ -18877,8 +18877,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ సురవినుత ❘ నేను నీచాటు - జొచ్చినాను  
 నా మొఱాలించి కడతేర్చు - నాగశయన ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 056  
 సీ౤ నీ భక్తులను గనుల్ - నిండ జూచియు రెండు  
@@ -18892,8 +18892,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ పరమభక్తుండు ధన్యుండు - భానుతేజ ❘  
 వాని గనుగొన్న బుణ్యంబు - వసుధలోన౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 057  
 సీ౤ పక్షివాహన ❘ నేను - బ్రతికినన్నిదినాలు  
@@ -18907,8 +18907,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ కొసకు నీ సన్నిధికి బిల్చు - కొనియు నీకు  
 సేవకుని జేసికొనవయ్య - శేషశయన ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 058  
 సీ౤ నిగమాదిశాస్త్రముల్ - నేర్చిన ద్విజుడైన  
@@ -18922,8 +18922,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ గర్వమున గష్టపడి నిన్ను - గానకున్న  
 మోక్షసామ్రాజ్య మొందడు - మోహనాంగ ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 059  
 సీ౤ పంజరంబున గాకి - బట్టి యుంచిన లెస్స  
@@ -18937,8 +18937,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ కుజనులను దెచ్చి నీ సేవ - కొఱకు బెట్ట  
 వాంఛతో జేతురే భక్త - వరులవలెను?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 060  
 సీ౤ నీకు దాసుడ నంటి - నిన్ను నమ్ముకయుంటి  
@@ -18952,8 +18952,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ శీఘ్రముగ గోర్కు లీడేర్చు - చింత దీర్చు  
 నిరతముగ నన్ను బోషించు - నెనరు నుంచు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 061  
 సీ౤ విద్య నేర్చితి నంచు - విర్రవీగగలేదు  
@@ -18967,8 +18967,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నలుగురికి మెప్పుగానైన - నడువలేదు  
 నళినదళనేత్ర ❘ నిన్ను నే - నమ్మినాను౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 062  
 సీ౤ అతిలోభులను భిక్ష - మడుగబోవుట రోత  
@@ -18980,10 +18980,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 ఆదాయములు లేక - యప్పుదీయుట రోత  
 జార చోరుల గూడి - చనుట రోత  
 
-తే౤ యాదిలక్ష్మీశ ❘ నీబంట - నైతినయ్య |  
+తే౤ యాదిలక్ష్మీశ ❘ నీబంట - నైతినయ్య ｜  
 యింక నెడబాసి జన్మంబు - లెత్త రోత౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 063  
 సీ౤ వెర్రివానికి నేల - వేదాక్షరంబులు?  
@@ -18997,8 +18997,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ క్రూరజనులకు నీమీద - గోరి కేల?  
 ద్రోహి పాపాత్మునకు దయా - దుఃఖ మేల?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 064  
 సీ౤ నా తండ్రి నాదాత - నాయిష్టదైవమా  
@@ -19012,8 +19012,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ దండిదొర వంచు నీవెంట - దగిలినాను  
 నేడు ప్రత్యక్షమై నన్ను - నిర్వహింపు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 065  
 సీ౤ వేమాఱు నీకథల్ - వినుచు నుండెడివాడు  
@@ -19027,8 +19027,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నిన్ను నమ్మిన భక్తుండు - నిశ్చయముగ  
 గోరి చిల్లర వేల్పుల - గొల్వబోడు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 066  
 సీ౤ నే నెంత వేడిన - నీ కేల దయరాదు?  
@@ -19042,8 +19042,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ దాత దైవంబు తల్లియు - దండ్రి వీవె  
 నమ్మియున్నాను నీపాద - నళినములను౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 067  
 సీ౤ వేదముల్ చదివెడు - విప్రవర్యుండైన  
@@ -19057,8 +19057,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నిన్ను గొనియాడుచుండెనా - నిశ్చయముగ  
 వాడు మోక్షాధికారి యీ - వసుధలోన౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 068  
 సీ౤ సకలవిద్యలు నేర్చి - సభ జయింపగవచ్చు  
@@ -19072,8 +19072,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ తామరసగర్భ హర పురం - దరులకైన  
 నిన్ను వర్ణింప దరమౌనె - నీరజాక్ష ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 069  
 సీ౤ నరసింహ ❘ నీవంటి - దొరను సంపాదించి  
@@ -19085,10 +19085,10 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 పెట్టజాలక యేల - భిక్షమెత్తించెదు  
 నన్ను బీదను జేసి - నా వదేమి?  
 
-తే౤ అమల ❘ కమలాక్ష | నే నిట్లు - శ్రమపడంగ  
+తే౤ అమల ❘ కమలాక్ష ｜ నే నిట్లు - శ్రమపడంగ  
 గన్నులకు బండువై నీకు - గానబడునె?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 070  
 సీ౤ వనరుహనాభ ❘ నీ - వంక జేరితి నేను  
@@ -19102,8 +19102,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ గోపగాడను నీవు నా - గుణము తెలిసి  
 యిప్పుడే నన్ను రక్షించి - యేలుకొమ్ము౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 071  
 సీ౤ ప్రహ్లాదు డేపాటి - పైడి కానుక లిచ్చె?  
@@ -19117,8 +19117,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నీకు వీరంద ఱయినట్లు - నేను గాన?  
 యెందు కని నన్ను రక్షింప - విందువదన ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 072  
 సీ౤ వాంఛతో బలిచక్ర - వర్తిదగ్గర జేరి  
@@ -19132,8 +19132,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ భక్తులకు నీవు పెట్టుట - భాగ్యమౌను  
 వారి కాశించితివి తిండి - వాడ వగుచు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 073  
 సీ౤ స్తంభమం దుదయించి - దానవేంద్రుని ద్రుంచి  
@@ -19147,8 +19147,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ వారివలె నన్ను బోషింప - వశముగాదె?  
 యంత వలపక్ష మేల శ్రీ - కాంత ❘ నీకు?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 074  
 సీ౤ వ్యాసు డే కులమందు - వాసిగా జన్మించె?  
@@ -19162,8 +19162,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నే కులంబున వీ రింద - ఱెచ్చినారు?  
 నీకృపాపాత్రులకు జాతి - నీతు లేల?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 075  
 సీ౤ వసుధాస్థలంబున - వర్ణహీనుడు గాని  
@@ -19177,8 +19177,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ప్రతిదినము నీదు భజనచే - బరగునట్టి  
 వాని కే వంక లేదయ్య - వచ్చు ముక్తి౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 076  
 సీ౤ ఇభకుంభములమీది - కెగిరెడి సింగంబు  
@@ -19192,8 +19192,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నిలను నీకీర్తనలు పాడ - నేర్చినతడు  
 పరులకీర్తన బాడునే - యరసి చూడ?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 077  
 సీ౤ సర్వేశ ❘ నీపాద - సరసిజద్వయమందు  
@@ -19207,8 +19207,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ప్రేమతో నన్ను బోషించి - పెంచుకొనుము  
 ఘనత కెక్కించు నీదాస - గణములోన౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 078  
 సీ౤ జీమూతవర్ణ ❘ నీ - మోముతో సరిరాక  
@@ -19222,8 +19222,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నిందిరాదేవి నిన్ను మో - హించి విడక  
 నీకు బట్టమహిషి యయ్యె - నిశ్చయముగ౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 079  
 సీ౤ హరిదాసులను నింద - లాడకుండిన జాలు  
@@ -19237,8 +19237,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ఒకరి వర్శాశనము ముంచ - కున్న జాలు  
 బేరుకీర్తిగ సత్రముల్ - పెట్టినట్లు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 080  
 సీ౤ ఇహలోకసౌఖ్యము - లిచ్చగించెద మన్న  
@@ -19252,8 +19252,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నమ్మరా దయ్య ❘ యిది మాయ - నాటకంబు  
 జన్మ మిక నొల్ల న న్నేలు - జలజనాభ ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 081  
 సీ౤ వదనంబు నీనామ - భజన గోరుచునుండు  
@@ -19267,8 +19267,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ స్వప్నమున నైన నేవేళ - సంతతమును  
 బుద్ధి నీ పాదములయందు - బూనియుండు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 082  
 సీ౤ పద్మాక్ష ❘ మమతచే - బరము నందెద మంచు  
@@ -19282,23 +19282,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నీ శరీరాలు పడిపోవు - టెఱుగ కేము  
 కాముకుల మైతి మిక మిమ్ము - గానలేము౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 083  
-సీ౤ గరుడవాహన ❘ దివ్య - కౌస్తుభాలంకార |  
-రవికోటితేజ ❘ సా - రంగవదన |  
-మణిగణాన్విత ❘ హేమ - మకుటాభరణ | చారు  
-మకరకుండల ❘ లస - న్మందహాస |  
-కాంచనాంబర ❘ రత్న - కాంచివిభూషిత |  
-సురవరార్చిత ❘ చంద్ర - సూర్యనయన |  
-కమలనాభ ❘ ముకుంద | - గంగాధరస్తుత |  
-రాక్షసాంతక ❘ నాగ - రాజశయన |  
+సీ౤ గరుడవాహన ❘ దివ్య - కౌస్తుభాలంకార ｜  
+రవికోటితేజ ❘ సా - రంగవదన ｜  
+మణిగణాన్విత ❘ హేమ - మకుటాభరణ ｜ చారు  
+మకరకుండల ❘ లస - న్మందహాస ｜  
+కాంచనాంబర ❘ రత్న - కాంచివిభూషిత ｜  
+సురవరార్చిత ❘ చంద్ర - సూర్యనయన ｜  
+కమలనాభ ❘ ముకుంద ｜ - గంగాధరస్తుత ｜  
+రాక్షసాంతక ❘ నాగ - రాజశయన ｜  
 
-తే౤ పతితపావన ❘ లక్షీశ | - బ్రహ్మజనక |  
-భక్తవత్సల ❘ సర్వేశ | - పరమపురుష |  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+తే౤ పతితపావన ❘ లక్షీశ ｜ - బ్రహ్మజనక ｜  
+భక్తవత్సల ❘ సర్వేశ ｜ - పరమపురుష ｜  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 084  
 సీ౤ పలుమాఱు దశరూప - ములు దరించితి వేల?  
@@ -19312,8 +19312,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ వనజలోచన ❘ యిటువంటి - వైభవములు  
 సొగసుగా నీకు దోచెనో - సుందరాంగ?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 085  
 సీ౤ తిరుపతి స్థలమందు - దిన్నగా నే నున్న  
@@ -19327,8 +19327,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ యెందు బోవక నేను నీ - మందిరమున  
 నిలిచితిని నీకు నామీద - నెనరు లేదు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 086  
 సీ౤ తార్క్ష్యవాహన ❘ నీవు - దండిదాత వటంచు  
@@ -19342,8 +19342,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నీకు నావిద్య హర్షంబు - గాక యున్న  
 తేపతేపకు వేషముల్ - దేను సుమ్మి౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 087  
 సీ౤ అమరేంద్రవినుత ❘ నే - నతిదురాత్ముడ నంచు  
@@ -19357,23 +19357,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నడుపుచును నిన్ను గొలిచెద - నమ్మి బుద్ధి  
 నీ ప్రపంచంబు గలుగు నా - కింతె చాలు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 088  
-సీ౤ భువనేశ ❘ గోవింద | - రవికోటిసంకాశ |  
-పక్షివాహన ❘ భక్త - పారిజాత |  
+సీ౤ భువనేశ ❘ గోవింద ｜ - రవికోటిసంకాశ ｜  
+పక్షివాహన ❘ భక్త - పారిజాత ｜  
 యంభోజభవ రుద్ర - జంభారిసన్నుత ❘  
-సామగానవిలోల ❘ - సారసాక్ష |  
-వనధిగంభీర ❘ శ్రీ - వత్సకౌస్తుభవక్ష |  
+సామగానవిలోల ❘ - సారసాక్ష ｜  
+వనధిగంభీర ❘ శ్రీ - వత్సకౌస్తుభవక్ష ｜  
 శంఖచక్రగదాసి - శార్జ్ఞహస్త ❘  
-దీనరక్షక ❘ వాసు - దేవ | దైత్యవినాశ |  
-నారదార్చిత ❘ దివ్య - నాగశయన |  
+దీనరక్షక ❘ వాసు - దేవ ｜ దైత్యవినాశ ｜  
+నారదార్చిత ❘ దివ్య - నాగశయన ｜  
 
 తే౤ చారు నవరత్నకుండల - శ్రవణయుగళ ❘  
-విబుధవందిత పాదబ్జ ❘ - విశ్వరూప |  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+విబుధవందిత పాదబ్జ ❘ - విశ్వరూప ｜  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 089  
 సీ౤ నాగేంద్రశయన ❘ నీ - నామమాధుర్యంబు  
@@ -19387,8 +19387,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ వీరి కెఱుకగు నీకథల్ - వింత లెల్ల  
 నరుల కెఱు కన్న నెవరైన - నవ్విపోరె?  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 090  
 సీ౤ అర్థు లేమైన ని - న్నడుగవచ్చెద రంచు  
@@ -19401,9 +19401,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 మంచి యోధుల కావ - లుంచినావు  
 
 తే౤ లావు గలవాడ వైతి వే - లాగు నేను  
-నిన్ను జూతును నాతండ్రి ❘ - నీరజాక్ష |  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+నిన్ను జూతును నాతండ్రి ❘ - నీరజాక్ష ｜  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 091  
 సీ౤ నీకథల్ చెవులలో - సోకుట మొదలుగా  
@@ -19412,13 +19412,13 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 మగ్నుడై దేహంబు - మఱచువాడు  
 ఫాలంబుతో నీదు - పాదయుగ్మమునకు  
 బ్రేమతో దండ మ - ర్పించువాడు  
-హా పుండరీకాక్ష ❘ - హా రామ | హరి | యంచు  
+హా పుండరీకాక్ష ❘ - హా రామ ｜ హరి ｜ యంచు  
 వేడ్కతో గేకలు - వేయువాడు  
 
 తే౤ చిత్తకమలంబునను నిన్ను - జేర్చువాడు  
 నీదులోకంబునం దుండు - నీరజాక్ష ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 092  
 సీ౤ నిగమగోచర ❘ నేను - నీకు మెప్పగునట్లు  
@@ -19432,8 +19432,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నన్ని గలవాడ వఖిల లో - కాధిపతివి ❘  
 నీకు సొమ్ములు పెట్ట నే - నెంతవాడ ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 093  
 సీ౤ నవసరోజదళాక్ష ❘ - నన్ను బోషించెడు  
@@ -19447,8 +19447,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ బరమసంతోష మాయె నా - ప్రాణములకు  
 నీ^^ఋణము దీర్చుకొన నేర - నీరజాక్ష ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 094  
 సీ౤ ఫణులపుట్టలమీద - బవ్వళించినయట్లు  
@@ -19462,23 +19462,23 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ స్వామి నీ భక్తవరులు దు - ర్జనులతోడ  
 జెలిమి జేసినయ ట్లైన - జేటు వచ్చు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 095  
-సీ౤ దనుజసంహార ❘ చక్ర - ధర | నీకు దండంబు  
+సీ౤ దనుజసంహార ❘ చక్ర - ధర ｜ నీకు దండంబు  
 లిందిరాధిప ❘ నీకు - వందనంబు  
 పతితపావన ❘ నీకు - బహునమస్కారముల్  
 నీరజాతదళాక్ష ❘ - నీకు శరణు  
-వాసవార్చిత ❘ మేఘ - వర్ణ | నీకు శుభంబు  
+వాసవార్చిత ❘ మేఘ - వర్ణ ｜ నీకు శుభంబు  
 మందరధర ❘ నీకు - మంగళంబు  
-కంబుకంధర ❘ శార్జ్గ - కర | నీకు భద్రంబు  
+కంబుకంధర ❘ శార్జ్గ - కర ｜ నీకు భద్రంబు  
 దీనరక్షక ❘ నీకు - దిగ్విజయము  
 
 తే౤ సకలవైభవములు నీకు - సార్వభౌమ ❘  
 నిత్యకల్యాణములు నగు - నీకు నెపుడు౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 096  
 సీ౤ మత్స్యావతార మై - మడుగులోపల జొచ్చి  
@@ -19492,8 +19492,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ యుందు రరవిందనయన ❘ నీ - యునికి దెలియు  
 వారలకు వేగ మోక్షంబు - వచ్చు ననఘ ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 097  
 సీ౤ కూర్మావతారమై - కుధరంబుక్రిందను  
@@ -19506,9 +19506,9 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 వర్తి నఱంపవా - వైర ముడిగి?  
 
 తే౤ యిట్టి పను లెల్ల జేయగా - నెవరికేని  
-తగునె నరసింహ ❘ నీకిది - దగును గాక |  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+తగునె నరసింహ ❘ నీకిది - దగును గాక ｜  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 098  
 సీ౤ లక్ష్మీశ ❘ నీదివ్య - లక్షణగుణముల  
@@ -19522,8 +19522,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నమ్మియున్నాను నీపాద - నళినభక్తి  
 వేగ దయచేసి రక్షింపు - వేదవిద్య ❘  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 099  
 సీ౤ అమరేంద్రవినుత ❘ ని - న్ననుసరించినవారు  
@@ -19537,8 +19537,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ ననుచు బలుమాఱు వేడెద - నబ్జనాభ ❘  
 నాకు బ్రత్యక్ష మగుము నిన్ - నమ్మినాను౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 100  
 సీ౤ శేషప్ప యను కవి - చెప్పిన పద్యముల్  
@@ -19552,8 +19552,8 @@ dushhTasaMhaara ❘ narasiMha - duritadoora |
 
 తే౤ నిద్ది పుణ్యాకరం బని - యెపుడు జనులు  
 గషట మెన్నక పఠియింప - గలుగు ముక్తి౤  
-భూషణవికాస ❘ శ్రీధర్మ - పురనివాస |  
-దుష్టసంహార ❘ నరసింహ - దురితదూర |  
+భూషణవికాస ❘ శ్రీధర్మ - పురనివాస ｜  
+దుష్టసంహార ❘ నరసింహ - దురితదూర ｜  
 
 ### English
 

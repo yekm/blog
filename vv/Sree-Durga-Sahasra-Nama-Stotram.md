@@ -51,8 +51,8 @@ Chandonuśhṭup japo devyāḥ prītaye kriyate sadā ‖ 13‖
 
 
 
-asya śrīdurgāstotramahāmantrasya ❘ himavān ṛśhiḥ | anuśhṭup Chandaḥ |  
-durgābhagavatī devatā ❘ śrīdurgāprasādasiddhyarthe jape viniyogaḥ | |  
+asya śrīdurgāstotramahāmantrasya ❘ himavān ṛśhiḥ ｜ anuśhṭup Chandaḥ ｜  
+durgābhagavatī devatā ❘ śrīdurgāprasādasiddhyarthe jape viniyogaḥ ｜ ｜  
 
 śrībhagavatyai durgāyai namaḥ ❘  
 
@@ -605,8 +605,8 @@ ChandonushhTup japo devyaaH preetaye kriyate sadaa ‖ 13‖
 
 
 
-asya shreedurgaastotramahaamantrasya ❘ himavaan RRishhiH | anushhTup ChandaH |  
-durgaabhagavatee devataa ❘ shreedurgaaprasaadasiddhyarthe jape viniyogaH | |  
+asya shreedurgaastotramahaamantrasya ❘ himavaan RRishhiH ｜ anushhTup ChandaH ｜  
+durgaabhagavatee devataa ❘ shreedurgaaprasaadasiddhyarthe jape viniyogaH ｜ ｜  
 
 shreebhagavatyai durgaayai namaH ❘  
 
@@ -1159,8 +1159,8 @@ iti shreeskaandapuraaNe skandanaaradasaMvaade durgaasahasranaamastotraM sampoorN
 
 
 
-অস্য শ্রীদুর্গাস্তোত্রমহামংত্রস্য ❘ হিমবান্ ঋষিঃ | অনুষ্টুপ্ ছংদঃ |  
-দুর্গাভগবতী দেবতা ❘ শ্রীদুর্গাপ্রসাদসিদ্ধ্যর্থে জপে বিনিযোগঃ | |  
+অস্য শ্রীদুর্গাস্তোত্রমহামংত্রস্য ❘ হিমবান্ ঋষিঃ ｜ অনুষ্টুপ্ ছংদঃ ｜  
+দুর্গাভগবতী দেবতা ❘ শ্রীদুর্গাপ্রসাদসিদ্ধ্যর্থে জপে বিনিযোগঃ ｜ ｜  
 
 শ্রীভগবত্যৈ দুর্গাযৈ নমঃ ❘  
 
@@ -1713,8 +1713,8 @@ iti shreeskaandapuraaNe skandanaaradasaMvaade durgaasahasranaamastotraM sampoorN
 
 
 
-अस्य श्रीदुर्गास्तोत्रमहामन्त्रस्य ❘ हिमवान् ऋषिः | अनुष्टुप् छन्दः |  
-दुर्गाभगवती देवता ❘ श्रीदुर्गाप्रसादसिद्ध्यर्थे जपे विनियोगः | |  
+अस्य श्रीदुर्गास्तोत्रमहामन्त्रस्य ❘ हिमवान् ऋषिः ｜ अनुष्टुप् छन्दः ｜  
+दुर्गाभगवती देवता ❘ श्रीदुर्गाप्रसादसिद्ध्यर्थे जपे विनियोगः ｜ ｜  
 
 श्रीभगवत्यै दुर्गायै नमः ❘  
 
@@ -2267,8 +2267,8 @@ iti shreeskaandapuraaNe skandanaaradasaMvaade durgaasahasranaamastotraM sampoorN
 
 
 
-અસ્ય શ્રીદુર્ગાસ્તોત્રમહામંત્રસ્ય ❘ હિમવાન્ ઋષિઃ | અનુષ્ટુપ્ છંદઃ |  
-દુર્ગાભગવતી દેવતા ❘ શ્રીદુર્ગાપ્રસાદસિદ્ધ્યર્થે જપે વિનિયોગઃ | |  
+અસ્ય શ્રીદુર્ગાસ્તોત્રમહામંત્રસ્ય ❘ હિમવાન્ ઋષિઃ ｜ અનુષ્ટુપ્ છંદઃ ｜  
+દુર્ગાભગવતી દેવતા ❘ શ્રીદુર્ગાપ્રસાદસિદ્ધ્યર્થે જપે વિનિયોગઃ ｜ ｜  
 
 શ્રીભગવત્યૈ દુર્ગાયૈ નમઃ ❘  
 
@@ -2821,8 +2821,8 @@ iti shreeskaandapuraaNe skandanaaradasaMvaade durgaasahasranaamastotraM sampoorN
 
 
 
-अस्य श्रीदुर्गास्तोत्रमहामंत्रस्य ❘ हिमवान् ऋषिः | अनुष्टुप् छंदः |  
-दुर्गाभगवती देवता ❘ श्रीदुर्गाप्रसादसिद्ध्यर्थे जपे विनियोगः | |  
+अस्य श्रीदुर्गास्तोत्रमहामंत्रस्य ❘ हिमवान् ऋषिः ｜ अनुष्टुप् छंदः ｜  
+दुर्गाभगवती देवता ❘ श्रीदुर्गाप्रसादसिद्ध्यर्थे जपे विनियोगः ｜ ｜  
 
 श्रीभगवत्यै दुर्गायै नमः ❘  
 
@@ -3375,8 +3375,8 @@ iti shreeskaandapuraaNe skandanaaradasaMvaade durgaasahasranaamastotraM sampoorN
 
 
 
-ಅಸ್ಯ ಶ್ರೀದುರ್ಗಾಸ್ತೋತ್ರಮಹಾಮಂತ್ರಸ್ಯ ❘ ಹಿಮವಾನ್ ಋಷಿಃ | ಅನುಷ್ಟುಪ್ ಛಂದಃ |  
-ದುರ್ಗಾಭಗವತೀ ದೇವತಾ ❘ ಶ್ರೀದುರ್ಗಾಪ್ರಸಾದಸಿದ್ಧ್ಯರ್ಥೇ ಜಪೇ ವಿನಿಯೋಗಃ | |  
+ಅಸ್ಯ ಶ್ರೀದುರ್ಗಾಸ್ತೋತ್ರಮಹಾಮಂತ್ರಸ್ಯ ❘ ಹಿಮವಾನ್ ಋಷಿಃ ｜ ಅನುಷ್ಟುಪ್ ಛಂದಃ ｜  
+ದುರ್ಗಾಭಗವತೀ ದೇವತಾ ❘ ಶ್ರೀದುರ್ಗಾಪ್ರಸಾದಸಿದ್ಧ್ಯರ್ಥೇ ಜಪೇ ವಿನಿಯೋಗಃ ｜ ｜  
 
 ಶ್ರೀಭಗವತ್ಯೈ ದುರ್ಗಾಯೈ ನಮಃ ❘  
 
@@ -3929,8 +3929,8 @@ iti shreeskaandapuraaNe skandanaaradasaMvaade durgaasahasranaamastotraM sampoorN
 
 
 
-അസ്യ ശ്രീദുര്ഗാസ്തോത്രമഹാമംത്രസ്യ ❘ ഹിമവാന് ഋഷിഃ | അനുഷ്ടുപ് ഛംദഃ |  
-ദുര്ഗാഭഗവതീ ദേവതാ ❘ ശ്രീദുര്ഗാപ്രസാദസിദ്ധ്യര്ഥേ ജപേ വിനിയോഗഃ | |  
+അസ്യ ശ്രീദുര്ഗാസ്തോത്രമഹാമംത്രസ്യ ❘ ഹിമവാന് ഋഷിഃ ｜ അനുഷ്ടുപ് ഛംദഃ ｜  
+ദുര്ഗാഭഗവതീ ദേവതാ ❘ ശ്രീദുര്ഗാപ്രസാദസിദ്ധ്യര്ഥേ ജപേ വിനിയോഗഃ ｜ ｜  
 
 ശ്രീഭഗവത്യൈ ദുര്ഗായൈ നമഃ ❘  
 
@@ -4485,8 +4485,8 @@ iti shreeskaandapuraaNe skandanaaradasaMvaade durgaasahasranaamastotraM sampoorN
 
 
 
-ଅସ୍ଯ ଶ୍ରୀଦୁର୍ଗାସ୍ତୋତ୍ରମହାମଂତ୍ରସ୍ଯ ❘ ହିମଵାନ୍ ଋଷିଃ | ଅନୁଷ୍ଟୁପ୍ ଛଂଦଃ |  
-ଦୁର୍ଗାଭଗଵତୀ ଦେଵତା ❘ ଶ୍ରୀଦୁର୍ଗାପ୍ରସାଦସିଦ୍ଧ୍ଯର୍ଥେ ଜପେ ଵିନିଯୋଗଃ | |  
+ଅସ୍ଯ ଶ୍ରୀଦୁର୍ଗାସ୍ତୋତ୍ରମହାମଂତ୍ରସ୍ଯ ❘ ହିମଵାନ୍ ଋଷିଃ ｜ ଅନୁଷ୍ଟୁପ୍ ଛଂଦଃ ｜  
+ଦୁର୍ଗାଭଗଵତୀ ଦେଵତା ❘ ଶ୍ରୀଦୁର୍ଗାପ୍ରସାଦସିଦ୍ଧ୍ଯର୍ଥେ ଜପେ ଵିନିଯୋଗଃ ｜ ｜  
 
 ଶ୍ରୀଭଗଵତ୍ଯୈ ଦୁର୍ଗାଯୈ ନମଃ ❘  
 
@@ -5039,8 +5039,8 @@ iti shreeskaandapuraaNe skandanaaradasaMvaade durgaasahasranaamastotraM sampoorN
 
 
 
-ಅಸ್ಯ ಶ್ರೀದುರ್ಗಾಸ್ತೋತ್ರಮಹಾಮನ್ತ್ರಸ್ಯ ❘ ಹಿಮವಾನ್ ಋಷಿಃ | ಅನುಷ್ಟುಪ್ ಛನ್ದಃ |  
-ದುರ್ಗಾಭಗವತೀ ದೇವತಾ ❘ ಶ್ರೀದುರ್ಗಾಪ್ರಸಾದಸಿದ್ಧ್ಯರ್ಥೇ ಜಪೇ ವಿನಿಯೋಗಃ | |  
+ಅಸ್ಯ ಶ್ರೀದುರ್ಗಾಸ್ತೋತ್ರಮಹಾಮನ್ತ್ರಸ್ಯ ❘ ಹಿಮವಾನ್ ಋಷಿಃ ｜ ಅನುಷ್ಟುಪ್ ಛನ್ದಃ ｜  
+ದುರ್ಗಾಭಗವತೀ ದೇವತಾ ❘ ಶ್ರೀದುರ್ಗಾಪ್ರಸಾದಸಿದ್ಧ್ಯರ್ಥೇ ಜಪೇ ವಿನಿಯೋಗಃ ｜ ｜  
 
 ಶ್ರೀಭಗವತ್ಯೈ ದುರ್ಗಾಯೈ ನಮಃ ❘  
 
@@ -5593,8 +5593,8 @@ iti shreeskaandapuraaNe skandanaaradasaMvaade durgaasahasranaamastotraM sampoorN
 
 
 
-అస్య శ్రీదుర్గాస్తోత్రమహామన్త్రస్య ❘ హిమవాన్ ఋషిః | అనుష్టుప్ ఛన్దః |  
-దుర్గాభగవతీ దేవతా ❘ శ్రీదుర్గాప్రసాదసిద్ధ్యర్థే జపే వినియోగః | |  
+అస్య శ్రీదుర్గాస్తోత్రమహామన్త్రస్య ❘ హిమవాన్ ఋషిః ｜ అనుష్టుప్ ఛన్దః ｜  
+దుర్గాభగవతీ దేవతా ❘ శ్రీదుర్గాప్రసాదసిద్ధ్యర్థే జపే వినియోగః ｜ ｜  
 
 శ్రీభగవత్యై దుర్గాయై నమః ❘  
 
@@ -6147,8 +6147,8 @@ iti shreeskaandapuraaNe skandanaaradasaMvaade durgaasahasranaamastotraM sampoorN
 
 
 
-அஸ்ய ஶ்ரீது3ர்கா3ஸ்தோத்ரமஹாமந்த்ரஸ்ய ❘ ஹிமவாந் ருஷிஃ | அநுஷ்டுப் ச2ந்தஃ3 |  
-து3ர்கா3ப4க3வதீ தே3வதா ❘ ஶ்ரீது3ர்கா3ப்ரஸாத3ஸித்3த்4யர்தே2 ஜபே விநியோகஃ3 | |  
+அஸ்ய ஶ்ரீது3ர்கா3ஸ்தோத்ரமஹாமந்த்ரஸ்ய ❘ ஹிமவாந் ருஷிஃ ｜ அநுஷ்டுப் ச2ந்தஃ3 ｜  
+து3ர்கா3ப4க3வதீ தே3வதா ❘ ஶ்ரீது3ர்கா3ப்ரஸாத3ஸித்3த்4யர்தே2 ஜபே விநியோகஃ3 ｜ ｜  
 
 ஶ்ரீப4க3வத்யை து3ர்கா3யை நமஃ ❘  
 
@@ -6701,8 +6701,8 @@ iti shreeskaandapuraaNe skandanaaradasaMvaade durgaasahasranaamastotraM sampoorN
 
 
 
-అస్య శ్రీదుర్గాస్తోత్రమహామంత్రస్య ❘ హిమవాన్ ఋషిః | అనుష్టుప్ ఛందః |  
-దుర్గాభగవతీ దేవతా ❘ శ్రీదుర్గాప్రసాదసిద్ధ్యర్థే జపే వినియోగః | |  
+అస్య శ్రీదుర్గాస్తోత్రమహామంత్రస్య ❘ హిమవాన్ ఋషిః ｜ అనుష్టుప్ ఛందః ｜  
+దుర్గాభగవతీ దేవతా ❘ శ్రీదుర్గాప్రసాదసిద్ధ్యర్థే జపే వినియోగః ｜ ｜  
 
 శ్రీభగవత్యై దుర్గాయై నమః ❘  
 

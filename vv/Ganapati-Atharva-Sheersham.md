@@ -8,77 +8,77 @@ gaṇapati atharva śhīrśham (gaṇapatyatharvaśhīrśhopaniśhat)
 ‖ gaṇapatyatharvaśīrśhopaniśhat (śrī gaṇeśhātharvaśhīrśham) ‖  
 
 oṃ _bha_ draṃ karṇe'bhiḥ śṛ _ṇu_ yāma' devāḥ ❘  
-_bha_ draṃ pa'śye _mā_ kśha _bhi_ ryaja'trāḥ |  
-_sthi_ rairaṅgai''stu _śhṭhu_ vāg^ṃ sa' _sta_ nūbhi'ḥ |  
-vyaśe'ma _de_ vahi' _ta_ ṃ yadāyu'ḥ |  
-_sva_ sti _na_ indro' _vṛ_ ddhaśra'vāḥ |  
-_sva_ sti na'ḥ _pū_ śhā _vi_ śvave'dāḥ |  
-_sva_ sti _na_ stā _rkśhyo_ ari'śhṭanemiḥ |  
+_bha_ draṃ pa'śye _mā_ kśha _bhi_ ryaja'trāḥ ｜  
+_sthi_ rairaṅgai''stu _śhṭhu_ vāg^ṃ sa' _sta_ nūbhi'ḥ ｜  
+vyaśe'ma _de_ vahi' _ta_ ṃ yadāyu'ḥ ｜  
+_sva_ sti _na_ indro' _vṛ_ ddhaśra'vāḥ ｜  
+_sva_ sti na'ḥ _pū_ śhā _vi_ śvave'dāḥ ｜  
+_sva_ sti _na_ stā _rkśhyo_ ari'śhṭanemiḥ ｜  
 _sva_ sti _no_ bṛ _ha_ spati'rdadhātu ‖  
 
 oṃ śā _nti_ ḥ śā _nti_ ḥ śānti'ḥ ‖  
 
 oṃ nama'ste _ga_ ṇapa'taye ❘  
-tva _me_ va _pra_ tya _kśha_ ṃ tattva'masi |  
-tva _me_ va _ke_ va _la_ ṃ kartā''si |  
-tva _me_ va _ke_ va _la_ ṃ dhartā''si |  
-tva _me_ va _ke_ va _la_ ṃ hartā''si |  
-tvameva sarvaṃ khalvida'ṃ bra _hmā_ si |  
+tva _me_ va _pra_ tya _kśha_ ṃ tattva'masi ｜  
+tva _me_ va _ke_ va _la_ ṃ kartā''si ｜  
+tva _me_ va _ke_ va _la_ ṃ dhartā''si ｜  
+tva _me_ va _ke_ va _la_ ṃ hartā''si ｜  
+tvameva sarvaṃ khalvida'ṃ bra _hmā_ si ｜  
 tvaṃ sākśhādātmā''si _ni_ tyam ‖ 1 ‖  
 ṛ'taṃ _va_ chmi ❘  
 sa'tyaṃ _va_ chmi ‖ 2 ‖ _  
 
 a_ va _tva_ ṃ mām ❘  
-ava' _va_ ktāram'' |  
-ava' _śro_ tāram'' |  
-ava' _dā_ tāram'' |  
-ava' _dhā_ tāram'' |  
-avānūchānama'va _śi_ śhyam |  
-ava' _pa_ śchāttā''t |  
-ava' _pu_ rastā''t |  
-avo _tta_ rāttā''t |  
-ava' _da_ kśhiṇāttā''t |  
-ava' _cho_ rdhvāttā''t |  
-avā _dha_ rāttā''t |  
+ava' _va_ ktāram'' ｜  
+ava' _śro_ tāram'' ｜  
+ava' _dā_ tāram'' ｜  
+ava' _dhā_ tāram'' ｜  
+avānūchānama'va _śi_ śhyam ｜  
+ava' _pa_ śchāttā''t ｜  
+ava' _pu_ rastā''t ｜  
+avo _tta_ rāttā''t ｜  
+ava' _da_ kśhiṇāttā''t ｜  
+ava' _cho_ rdhvāttā''t ｜  
+avā _dha_ rāttā''t ｜  
 sarvato māṃ pāhi pāhi' sa _ma_ ntāt ‖ 3 ‖  
 
 tvaṃ vāṅmaya'stvaṃ chi _nma_ yaḥ ❘  
-tvamānandamaya'stvaṃ bra _hma_ mayaḥ |  
-tvaṃ sachchidānandā'dvi'tī _yo_ 'si |  
-tvaṃ _pra_ tya _kśha_ ṃ brahmā'si |  
+tvamānandamaya'stvaṃ bra _hma_ mayaḥ ｜  
+tvaṃ sachchidānandā'dvi'tī _yo_ 'si ｜  
+tvaṃ _pra_ tya _kśha_ ṃ brahmā'si ｜  
 tvaṃ GYānamayo viGYāna'ma _yo_ 'si ‖ 4 ‖  
 
 sarvaṃ jagadidaṃ tva'tto _jā_ yate ❘  
-sarvaṃ jagadidaṃ tva'tta _sti_ śhṭhati |  
-sarvaṃ jagadidaṃ tvayi laya'me _śhya_ ti |  
-sarvaṃ jagadidaṃ tvayi' pra _tye_ ti |  
-tvaṃ bhūmirāpoanaloani'lo _na_ bhaḥ |  
+sarvaṃ jagadidaṃ tva'tta _sti_ śhṭhati ｜  
+sarvaṃ jagadidaṃ tvayi laya'me _śhya_ ti ｜  
+sarvaṃ jagadidaṃ tvayi' pra _tye_ ti ｜  
+tvaṃ bhūmirāpoanaloani'lo _na_ bhaḥ ｜  
 tvaṃ chatvāri vā''kpa _dā_ ni ‖ 5 ‖  
 
 tvaṃ _gu_ ṇatra'yā _tī_ taḥ ❘  
-tvaṃ avasthātra'yā _tī_ taḥ |  
-tvaṃ _de_ hatra'yā _tī_ taḥ |  
-tvaṃ _kā_ latra'yā _tī_ taḥ |  
-tvaṃ mūlādhārasthito''si _ni_ tyam |  
-tvaṃ śaktitra'yā _tma_ kaḥ |  
-tvāṃ yogino dhyāya'nti _ni_ tyam |  
+tvaṃ avasthātra'yā _tī_ taḥ ｜  
+tvaṃ _de_ hatra'yā _tī_ taḥ ｜  
+tvaṃ _kā_ latra'yā _tī_ taḥ ｜  
+tvaṃ mūlādhārasthito''si _ni_ tyam ｜  
+tvaṃ śaktitra'yā _tma_ kaḥ ｜  
+tvāṃ yogino dhyāya'nti _ni_ tyam ｜  
 tvaṃ brahmā tvaṃ viśhṇustvaṃ rudrastvamindrastvamagnistvaṃ vāyustvaṃ sūryastvaṃ chandramāstvaṃ bra _hma_ bhūrbhu _va_ ḥ svarom ‖ 6 _‖  
 
 ga_ṇādiṃ'' pūrva'mu _chchā_ _rya_ _va_ rṇādī''ṃ stada _na_ ntaram ❘  
-anusvāraḥ pa'ra _ta_ raḥ |  
-ardhe''ndu _la_ sitam |  
-tāre'ṇa _ṛ_ ddham |  
-etattava manu'sva _rū_ pam |  
-gakāraḥ pū''rva _rū_ pam |  
-akāro madhya'ma _rū_ pam |  
-anusvāraśchā''ntya _rū_ pam |  
-bindurutta'ra _rū_ pam |  
-nāda'ḥ sa _ndhā_ nam |  
-sagṃhi'tā _sa_ ndhiḥ |  
-saiśhā gaṇe'śa _vi_ dyā |  
-gaṇa'ka _ṛ_ śhiḥ |  
-nichṛdgāya'trī _cCha_ ndaḥ |  
-śrī mahāgaṇapati'rdevatā |  
+anusvāraḥ pa'ra _ta_ raḥ ｜  
+ardhe''ndu _la_ sitam ｜  
+tāre'ṇa _ṛ_ ddham ｜  
+etattava manu'sva _rū_ pam ｜  
+gakāraḥ pū''rva _rū_ pam ｜  
+akāro madhya'ma _rū_ pam ｜  
+anusvāraśchā''ntya _rū_ pam ｜  
+bindurutta'ra _rū_ pam ｜  
+nāda'ḥ sa _ndhā_ nam ｜  
+sagṃhi'tā _sa_ ndhiḥ ｜  
+saiśhā gaṇe'śa _vi_ dyā ｜  
+gaṇa'ka _ṛ_ śhiḥ ｜  
+nichṛdgāya'trī _cCha_ ndaḥ ｜  
+śrī mahāgaṇapati'rdevatā ｜  
 oṃ gaṃ _ga_ ṇapa'taye namaḥ ‖ 7 ‖  
 
 eka _da_ ntāya' _vi_ dmahe' vakra _tu_ ṇḍāya' dhīmahi ❘  
@@ -86,59 +86,59 @@ eka _da_ ntāya' _vi_ dmahe' vakra _tu_ ṇḍāya' dhīmahi ❘
 tanno' dantiḥ pra _cho_ dayā''t ‖ 8 ‖  
 
 ekada _n_ taṃ cha'tu _rha_ _sta_ ṃ _pā_ śama'ṅku _śa_ dhāri'ṇam ❘  
-rada'ṃ _cha_ vara'daṃ _ha_ _stai_ _rbi_ bhrāṇa'ṃ mū _śha_ kadhva'jam |  
-rakta'ṃ _la_ mboda'raṃ _śū_ _rpa_ karṇaka'ṃ ra _kta_ vāsa'sam |  
-rakta' _ga_ ndhānu'li _ptā_ _ṅga_ ṃ _ra_ ktapu'śhpaiḥ _su_ pūji'tam |  
-bhaktā' _nu_ kampi'naṃ _de_ _va_ ṃ _ja_ gatkā'ra _ṇa_ machyu'tam |  
-āvi' _rbhū_ taṃ cha' _sṛ_ _śhṭyā_ _dau_ _pra_ kṛte''ḥ pu _ru_ śhātpa'ram |  
+rada'ṃ _cha_ vara'daṃ _ha_ _stai_ _rbi_ bhrāṇa'ṃ mū _śha_ kadhva'jam ｜  
+rakta'ṃ _la_ mboda'raṃ _śū_ _rpa_ karṇaka'ṃ ra _kta_ vāsa'sam ｜  
+rakta' _ga_ ndhānu'li _ptā_ _ṅga_ ṃ _ra_ ktapu'śhpaiḥ _su_ pūji'tam ｜  
+bhaktā' _nu_ kampi'naṃ _de_ _va_ ṃ _ja_ gatkā'ra _ṇa_ machyu'tam ｜  
+āvi' _rbhū_ taṃ cha' _sṛ_ _śhṭyā_ _dau_ _pra_ kṛte''ḥ pu _ru_ śhātpa'ram ｜  
 eva'ṃ _dhyā_ yati' yo _ni_ _tya_ ṃ _sa_ yogī' yo _gi_ nāṃ va'raḥ ‖ 9 ‖  
 
 namo vrātapataye namo gaṇapataye namaḥ pramathapataye namasteastu lambodarāyaikadantāya vighnavināśine śivasutāya śrīvaradamūrta _ye_  
 namaḥ ‖ 10 ‖  
 
 etadatharvaśīrśhaṃ yoa _dhī_ te ❘  
-sa brahmabhūyā'ya _ka_ lpate |  
-sa sarvavighnai''rna _bā_ dhyate |  
-sa sarvataḥ sukha'me _dha_ te |  
-sa pañchamahāpāpā''t pra _mu_ chyate |  
-_sā_ yama'dhī _yā_ _no_ divasakṛtaṃ pāpa'ṃ nā _śa_ yati |  
-_prā_ tara'dhī _yā_ _no_ rātrikṛtaṃ pāpa'ṃ nā _śa_ yati |  
-sāyaṃ prātaḥ pra'yu _ñjā_ _no_ pāpoapā'po _bha_ vati |  
-dharmārthakāmamokśha'ṃ cha _vi_ ndati |  
-idamatharvaśīrśhamaśiśhyāya' na _de_ yam |  
-yo yadi mo'hād _dā_ syati sa pāpī'yān _bha_ vati |  
-sahasrāvartanādyaṃ yaṃ kāma'ma _dhī_ te |  
+sa brahmabhūyā'ya _ka_ lpate ｜  
+sa sarvavighnai''rna _bā_ dhyate ｜  
+sa sarvataḥ sukha'me _dha_ te ｜  
+sa pañchamahāpāpā''t pra _mu_ chyate ｜  
+_sā_ yama'dhī _yā_ _no_ divasakṛtaṃ pāpa'ṃ nā _śa_ yati ｜  
+_prā_ tara'dhī _yā_ _no_ rātrikṛtaṃ pāpa'ṃ nā _śa_ yati ｜  
+sāyaṃ prātaḥ pra'yu _ñjā_ _no_ pāpoapā'po _bha_ vati ｜  
+dharmārthakāmamokśha'ṃ cha _vi_ ndati ｜  
+idamatharvaśīrśhamaśiśhyāya' na _de_ yam ｜  
+yo yadi mo'hād _dā_ syati sa pāpī'yān _bha_ vati ｜  
+sahasrāvartanādyaṃ yaṃ kāma'ma _dhī_ te ｜  
 taṃ tamane'na _sā_ dhayet ‖ 11 ‖  
 
 anena gaṇapatima'bhi _śhi_ ñchati ❘  
-sa vā'gmī _bha_ vati |  
-chaturthyāmana'śnan _ja_ pati sa vidyā'vān _bha_ vati |  
-ityatharva'ṇa _vā_ kyam |  
+sa vā'gmī _bha_ vati ｜  
+chaturthyāmana'śnan _ja_ pati sa vidyā'vān _bha_ vati ｜  
+ityatharva'ṇa _vā_ kyam ｜  
 brahmā _dyā_ chara'ṇaṃ _vi_ dyānna bibheti kadā'cha _ne_ ti ‖ 12 ‖  
 
 yo dūrvāṅku'rai _rya_ jati sa vaiśravaṇopa'mo _bha_ vati ❘  
-yo lā'jai _rya_ jati sa yaśo'vān _bha_ vati |  
-sa medhā'vān _bha_ vati |  
-yo modakasahasre'ṇa _ya_ jati sa vāñChitaphalama'vā _pno_ ti |  
+yo lā'jai _rya_ jati sa yaśo'vān _bha_ vati ｜  
+sa medhā'vān _bha_ vati ｜  
+yo modakasahasre'ṇa _ya_ jati sa vāñChitaphalama'vā _pno_ ti ｜  
 yaḥ sājya sami'dbhi _rya_ jati sa sarvaṃ labhate sa sa'rvaṃ _la_ bhate ‖ 13 ‖  
 
 aśhṭau brāhmaṇān samyag grā'ha _yi_ tvā sūryavarcha'svī _bha_ vati ❘  
-sūryagrahe ma'hā _na_ dyāṃ pratimāsannidhau vā _ja_ ptvā siddhama'ntro _bha_ vati |  
-mahāvighnā''t pra _mu_ chyate |  
-mahādośhā''t pra _mu_ chyate |  
-mahāpāpā''t pra _mu_ chyate |  
-mahāpratyavāyā''t pra _mu_ chyate |  
-sa sarva'vidbhavati sa sarva'vi _dbha_ vati |  
-ya e'vaṃ _ve_ da |  
+sūryagrahe ma'hā _na_ dyāṃ pratimāsannidhau vā _ja_ ptvā siddhama'ntro _bha_ vati ｜  
+mahāvighnā''t pra _mu_ chyate ｜  
+mahādośhā''t pra _mu_ chyate ｜  
+mahāpāpā''t pra _mu_ chyate ｜  
+mahāpratyavāyā''t pra _mu_ chyate ｜  
+sa sarva'vidbhavati sa sarva'vi _dbha_ vati ｜  
+ya e'vaṃ _ve_ da ｜  
 ityu' _pa_ niśha't ‖ 14 ‖  
 
 oṃ _bha_ draṃ karṇe'bhiḥ śṛ _ṇu_ yāma' devāḥ ❘  
-_bha_ draṃ pa'śye _mā_ kśha _bhi_ ryaja'trāḥ |  
-_sthi_ rairaṅgai''stu _śhṭhu_ vāg^ṃ sa' _sta_ nūbhi'ḥ |  
-vyaśe'ma _de_ vahi' _ta_ ṃ yadāyu'ḥ |  
-_sva_ sti _na_ indro' _vṛ_ ddhaśra'vāḥ |  
-_sva_ sti na'ḥ _pū_ śhā _vi_ śvave'dāḥ |  
-_sva_ sti _na_ stā _rkśhyo_ ari'śhṭanemiḥ |  
+_bha_ draṃ pa'śye _mā_ kśha _bhi_ ryaja'trāḥ ｜  
+_sthi_ rairaṅgai''stu _śhṭhu_ vāg^ṃ sa' _sta_ nūbhi'ḥ ｜  
+vyaśe'ma _de_ vahi' _ta_ ṃ yadāyu'ḥ ｜  
+_sva_ sti _na_ indro' _vṛ_ ddhaśra'vāḥ ｜  
+_sva_ sti na'ḥ _pū_ śhā _vi_ śvave'dāḥ ｜  
+_sva_ sti _na_ stā _rkśhyo_ ari'śhṭanemiḥ ｜  
 _sva_ sti _no_ bṛ _ha_ spati'rdadhātu ‖  
 
 oṃ śā _nti_ ḥ śā _nti_ ḥ śānti'ḥ ‖  
@@ -151,77 +151,77 @@ gaNapati atharva shheershham (gaNapatyatharvashheershhopanishhat)
 ‖ gaNapatyatharvasheershhopanishhat (shree gaNeshhaatharvashheershham) ‖  
 
 oM _bha_ draM karNe'bhiH shRRi _Nu_ yaama' devaaH ❘  
-_bha_ draM pa'shye _maa_ kshha _bhi_ ryaja'traaH |  
-_sthi_ rairangai''stu _shhThu_ vaag^M sa' _sta_ noobhi'H |  
-vyashe'ma _de_ vahi' _ta_ M yadaayu'H |  
-_sva_ sti _na_ indro' _vRRi_ ddhashra'vaaH |  
-_sva_ sti na'H _poo_ shhaa _vi_ shvave'daaH |  
-_sva_ sti _na_ staa _rkshhyo_ ari'shhTanemiH |  
+_bha_ draM pa'shye _maa_ kshha _bhi_ ryaja'traaH ｜  
+_sthi_ rairangai''stu _shhThu_ vaag^M sa' _sta_ noobhi'H ｜  
+vyashe'ma _de_ vahi' _ta_ M yadaayu'H ｜  
+_sva_ sti _na_ indro' _vRRi_ ddhashra'vaaH ｜  
+_sva_ sti na'H _poo_ shhaa _vi_ shvave'daaH ｜  
+_sva_ sti _na_ staa _rkshhyo_ ari'shhTanemiH ｜  
 _sva_ sti _no_ bRRi _ha_ spati'rdadhaatu ‖  
 
 oM shaa _nti_ H shaa _nti_ H shaanti'H ‖  
 
 oM nama'ste _ga_ Napa'taye ❘  
-tva _me_ va _pra_ tya _kshha_ M tattva'masi |  
-tva _me_ va _ke_ va _la_ M kartaa'.asi |  
-tva _me_ va _ke_ va _la_ M dhartaa'.asi |  
-tva _me_ va _ke_ va _la_ M hartaa'.asi |  
-tvameva sarvaM khalvida'M bra _hmaa_ si |  
+tva _me_ va _pra_ tya _kshha_ M tattva'masi ｜  
+tva _me_ va _ke_ va _la_ M kartaa'.asi ｜  
+tva _me_ va _ke_ va _la_ M dhartaa'.asi ｜  
+tva _me_ va _ke_ va _la_ M hartaa'.asi ｜  
+tvameva sarvaM khalvida'M bra _hmaa_ si ｜  
 tvaM saakshhaadaatmaa'.asi _ni_ tyam ‖ 1 ‖  
 RRi'taM _va_ chmi ❘  
 sa'tyaM _va_ chmi ‖ 2 ‖ _  
 
 a_ va _tva_ M maam ❘  
-ava' _va_ ktaaram'' |  
-ava' _shro_ taaram'' |  
-ava' _daa_ taaram'' |  
-ava' _dhaa_ taaram'' |  
-avaanoochaanama'va _shi_ shhyam |  
-ava' _pa_ shchaattaa''t |  
-ava' _pu_ rastaa''t |  
-avo _tta_ raattaa''t |  
-ava' _da_ kshhiNaattaa''t |  
-ava' _cho_ rdhvaattaa''t |  
-avaa _dha_ raattaa''t |  
+ava' _va_ ktaaram'' ｜  
+ava' _shro_ taaram'' ｜  
+ava' _daa_ taaram'' ｜  
+ava' _dhaa_ taaram'' ｜  
+avaanoochaanama'va _shi_ shhyam ｜  
+ava' _pa_ shchaattaa''t ｜  
+ava' _pu_ rastaa''t ｜  
+avo _tta_ raattaa''t ｜  
+ava' _da_ kshhiNaattaa''t ｜  
+ava' _cho_ rdhvaattaa''t ｜  
+avaa _dha_ raattaa''t ｜  
 sarvato maaM paahi paahi' sa _ma_ ntaat ‖ 3 ‖  
 
 tvaM vaanmaya'stvaM chi _nma_ yaH ❘  
-tvamaanandamaya'stvaM bra _hma_ mayaH |  
-tvaM sachchidaanandaa.advi'tee _yo_.asi |  
-tvaM _pra_ tya _kshha_ M brahmaa'si |  
+tvamaanandamaya'stvaM bra _hma_ mayaH ｜  
+tvaM sachchidaanandaa.advi'tee _yo_.asi ｜  
+tvaM _pra_ tya _kshha_ M brahmaa'si ｜  
 tvaM gnyaanamayo vignyaana'ma _yo_.asi ‖ 4 ‖  
 
 sarvaM jagadidaM tva'tto _jaa_ yate ❘  
-sarvaM jagadidaM tva'tta _sti_ shhThati |  
-sarvaM jagadidaM tvayi laya'me _shhya_ ti |  
-sarvaM jagadidaM tvayi' pra _tye_ ti |  
-tvaM bhoomiraapo.analo.ani'lo _na_ bhaH |  
+sarvaM jagadidaM tva'tta _sti_ shhThati ｜  
+sarvaM jagadidaM tvayi laya'me _shhya_ ti ｜  
+sarvaM jagadidaM tvayi' pra _tye_ ti ｜  
+tvaM bhoomiraapo.analo.ani'lo _na_ bhaH ｜  
 tvaM chatvaari vaa''kpa _daa_ ni ‖ 5 ‖  
 
 tvaM _gu_ Natra'yaa _tee_ taH ❘  
-tvaM avasthaatra'yaa _tee_ taH |  
-tvaM _de_ hatra'yaa _tee_ taH |  
-tvaM _kaa_ latra'yaa _tee_ taH |  
-tvaM moolaadhaarasthito'.asi _ni_ tyam |  
-tvaM shaktitra'yaa _tma_ kaH |  
-tvaaM yogino dhyaaya'nti _ni_ tyam |  
+tvaM avasthaatra'yaa _tee_ taH ｜  
+tvaM _de_ hatra'yaa _tee_ taH ｜  
+tvaM _kaa_ latra'yaa _tee_ taH ｜  
+tvaM moolaadhaarasthito'.asi _ni_ tyam ｜  
+tvaM shaktitra'yaa _tma_ kaH ｜  
+tvaaM yogino dhyaaya'nti _ni_ tyam ｜  
 tvaM brahmaa tvaM vishhNustvaM rudrastvamindrastvamagnistvaM vaayustvaM sooryastvaM chandramaastvaM bra _hma_ bhoorbhu _va_ H svarom ‖ 6 _‖  
 
 ga_NaadiM'' poorva'mu _chchaa_ _rya_ _va_ rNaadee''M stada _na_ ntaram ❘  
-anusvaaraH pa'ra _ta_ raH |  
-ardhe''ndu _la_ sitam |  
-taare'Na _RRi_ ddham |  
-.etattava manu'sva _roo_ pam |  
-gakaaraH poo''rva _roo_ pam |  
-akaaro madhya'ma _roo_ pam |  
-anusvaarashchaa''ntya _roo_ pam |  
-bindurutta'ra _roo_ pam |  
-naada'H sa _ndhaa_ nam |  
-sagMhi'taa _sa_ ndhiH |  
-saishhaa gaNe'sha _vi_ dyaa |  
-gaNa'ka _RRi_ shhiH |  
-nichRRidgaaya'tree _cCha_ ndaH |  
-shree mahaagaNapati'rdevataa |  
+anusvaaraH pa'ra _ta_ raH ｜  
+ardhe''ndu _la_ sitam ｜  
+taare'Na _RRi_ ddham ｜  
+.etattava manu'sva _roo_ pam ｜  
+gakaaraH poo''rva _roo_ pam ｜  
+akaaro madhya'ma _roo_ pam ｜  
+anusvaarashchaa''ntya _roo_ pam ｜  
+bindurutta'ra _roo_ pam ｜  
+naada'H sa _ndhaa_ nam ｜  
+sagMhi'taa _sa_ ndhiH ｜  
+saishhaa gaNe'sha _vi_ dyaa ｜  
+gaNa'ka _RRi_ shhiH ｜  
+nichRRidgaaya'tree _cCha_ ndaH ｜  
+shree mahaagaNapati'rdevataa ｜  
 oM gaM _ga_ Napa'taye namaH ‖ 7 ‖  
 
 eka _da_ ntaaya' _vi_ dmahe' vakra _tu_ NDaaya' dheemahi ❘  
@@ -229,59 +229,59 @@ eka _da_ ntaaya' _vi_ dmahe' vakra _tu_ NDaaya' dheemahi ❘
 tanno' dantiH pra _cho_ dayaa''t ‖ 8 ‖  
 
 ekada _n_ taM cha'tu _rha_ _sta_ M _paa_ shama'Mku _sha_ dhaari'Nam ❘  
-rada'M _cha_ vara'daM _ha_ _stai_ _rbi_ bhraaNa'M moo _shha_ kadhva'jam |  
-rakta'M _la_ Mboda'raM _shoo_ _rpa_ karNaka'M ra _kta_ vaasa'sam |  
-rakta' _ga_ ndhaanu'li _ptaa_ _nga_ M _ra_ ktapu'shhpaiH _su_ pooji'tam |  
-bhaktaa' _nu_ kampi'naM _de_ _va_ M _ja_ gatkaa'ra _Na_ machyu'tam |  
-aavi' _rbhoo_ taM cha' _sRRi_ _shhTyaa_ _dau_ _pra_ kRRite''H pu _ru_ shhaatpa'ram |  
+rada'M _cha_ vara'daM _ha_ _stai_ _rbi_ bhraaNa'M moo _shha_ kadhva'jam ｜  
+rakta'M _la_ Mboda'raM _shoo_ _rpa_ karNaka'M ra _kta_ vaasa'sam ｜  
+rakta' _ga_ ndhaanu'li _ptaa_ _nga_ M _ra_ ktapu'shhpaiH _su_ pooji'tam ｜  
+bhaktaa' _nu_ kampi'naM _de_ _va_ M _ja_ gatkaa'ra _Na_ machyu'tam ｜  
+aavi' _rbhoo_ taM cha' _sRRi_ _shhTyaa_ _dau_ _pra_ kRRite''H pu _ru_ shhaatpa'ram ｜  
 eva'M _dhyaa_ yati' yo _ni_ _tya_ M _sa_ yogee' yo _gi_ naaM va'raH ‖ 9 ‖  
 
 namo vraatapataye namo gaNapataye namaH pramathapataye namaste.astu lambodaraayaikadantaaya vighnavinaashine shivasutaaya shreevaradamoorta _ye_  
 namaH ‖ 10 ‖  
 
 etadatharvasheershhaM yo.a _dhee_ te ❘  
-sa brahmabhooyaa'ya _ka_ lpate |  
-sa sarvavighnai''rna _baa_ dhyate |  
-sa sarvataH sukha'me _dha_ te |  
-sa panchamahaapaapaa''t pra _mu_ chyate |  
-_saa_ yama'dhee _yaa_ _no_ divasakRRitaM paapa'M naa _sha_ yati |  
-_praa_ tara'dhee _yaa_ _no_ raatrikRRitaM paapa'M naa _sha_ yati |  
-saayaM praataH pra'yu _njaa_ _no_ paapo.apaa'po _bha_ vati |  
-dharmaarthakaamamokshha'M cha _vi_ ndati |  
-idamatharvasheershhamashishhyaaya' na _de_ yam |  
-yo yadi mo'haad _daa_ syati sa paapee'yaan _bha_ vati |  
-sahasraavartanaadyaM yaM kaama'ma _dhee_ te |  
+sa brahmabhooyaa'ya _ka_ lpate ｜  
+sa sarvavighnai''rna _baa_ dhyate ｜  
+sa sarvataH sukha'me _dha_ te ｜  
+sa panchamahaapaapaa''t pra _mu_ chyate ｜  
+_saa_ yama'dhee _yaa_ _no_ divasakRRitaM paapa'M naa _sha_ yati ｜  
+_praa_ tara'dhee _yaa_ _no_ raatrikRRitaM paapa'M naa _sha_ yati ｜  
+saayaM praataH pra'yu _njaa_ _no_ paapo.apaa'po _bha_ vati ｜  
+dharmaarthakaamamokshha'M cha _vi_ ndati ｜  
+idamatharvasheershhamashishhyaaya' na _de_ yam ｜  
+yo yadi mo'haad _daa_ syati sa paapee'yaan _bha_ vati ｜  
+sahasraavartanaadyaM yaM kaama'ma _dhee_ te ｜  
 taM tamane'na _saa_ dhayet ‖ 11 ‖  
 
 anena gaNapatima'bhi _shhi_ nchati ❘  
-sa vaa'gmee _bha_ vati |  
-chaturthyaamana'shnan _ja_ pati sa vidyaa'vaan _bha_ vati |  
-ityatharva'Na _vaa_ kyam |  
+sa vaa'gmee _bha_ vati ｜  
+chaturthyaamana'shnan _ja_ pati sa vidyaa'vaan _bha_ vati ｜  
+ityatharva'Na _vaa_ kyam ｜  
 brahmaa _dyaa_ chara'NaM _vi_ dyaanna bibheti kadaa'cha _ne_ ti ‖ 12 ‖  
 
 yo doorvaanku'rai _rya_ jati sa vaishravaNopa'mo _bha_ vati ❘  
-yo laa'jai _rya_ jati sa yasho'vaan _bha_ vati |  
-sa medhaa'vaan _bha_ vati |  
-yo modakasahasre'Na _ya_ jati sa vaanChitaphalama'vaa _pno_ ti |  
+yo laa'jai _rya_ jati sa yasho'vaan _bha_ vati ｜  
+sa medhaa'vaan _bha_ vati ｜  
+yo modakasahasre'Na _ya_ jati sa vaanChitaphalama'vaa _pno_ ti ｜  
 yaH saajya sami'dbhi _rya_ jati sa sarvaM labhate sa sa'rvaM _la_ bhate ‖ 13 ‖  
 
 ashhTau braahmaNaan samyag graa'ha _yi_ tvaa sooryavarcha'svee _bha_ vati ❘  
-sooryagrahe ma'haa _na_ dyaaM pratimaasannidhau vaa _ja_ ptvaa siddhama'ntro _bha_ vati |  
-mahaavighnaa''t pra _mu_ chyate |  
-mahaadoshhaa''t pra _mu_ chyate |  
-mahaapaapaa''t pra _mu_ chyate |  
-mahaapratyavaayaa''t pra _mu_ chyate |  
-sa sarva'vidbhavati sa sarva'vi _dbha_ vati |  
-ya e'vaM _ve_ da |  
+sooryagrahe ma'haa _na_ dyaaM pratimaasannidhau vaa _ja_ ptvaa siddhama'ntro _bha_ vati ｜  
+mahaavighnaa''t pra _mu_ chyate ｜  
+mahaadoshhaa''t pra _mu_ chyate ｜  
+mahaapaapaa''t pra _mu_ chyate ｜  
+mahaapratyavaayaa''t pra _mu_ chyate ｜  
+sa sarva'vidbhavati sa sarva'vi _dbha_ vati ｜  
+ya e'vaM _ve_ da ｜  
 ityu' _pa_ nishha't ‖ 14 ‖  
 
 oM _bha_ draM karNe'bhiH shRRi _Nu_ yaama' devaaH ❘  
-_bha_ draM pa'shye _maa_ kshha _bhi_ ryaja'traaH |  
-_sthi_ rairangai''stu _shhThu_ vaag^M sa' _sta_ noobhi'H |  
-vyashe'ma _de_ vahi' _ta_ M yadaayu'H |  
-_sva_ sti _na_ indro' _vRRi_ ddhashra'vaaH |  
-_sva_ sti na'H _poo_ shhaa _vi_ shvave'daaH |  
-_sva_ sti _na_ staa _rkshhyo_ ari'shhTanemiH |  
+_bha_ draM pa'shye _maa_ kshha _bhi_ ryaja'traaH ｜  
+_sthi_ rairangai''stu _shhThu_ vaag^M sa' _sta_ noobhi'H ｜  
+vyashe'ma _de_ vahi' _ta_ M yadaayu'H ｜  
+_sva_ sti _na_ indro' _vRRi_ ddhashra'vaaH ｜  
+_sva_ sti na'H _poo_ shhaa _vi_ shvave'daaH ｜  
+_sva_ sti _na_ staa _rkshhyo_ ari'shhTanemiH ｜  
 _sva_ sti _no_ bRRi _ha_ spati'rdadhaatu ‖  
 
 oM shaa _nti_ H shaa _nti_ H shaanti'H ‖  
@@ -294,77 +294,77 @@ oM shaa _nti_ H shaa _nti_ H shaanti'H ‖
 ‖ গণপত্যথর্বশীর্ষোপনিষত্ (শ্রী গণেষাথর্বষীর্ষম্) ‖  
 
 ওং _ভ_ দ্রং কর্ণে'ভিঃ শৃ _ণু_ যাম' দেবাঃ ❘  
-_ভ_ দ্রং প'শ্যে _মা_ ক্ষ _ভি_ র্যজ'ত্রাঃ |  
-_স্থি_ রৈরংগৈ''স্তু _ষ্ঠু_ বাগ্^ং স' _স্ত_ নূভিঃ' |  
-ব্যশে'ম _দে_ বহি' _তং_ যদাযুঃ' |  
-_স্ব_ স্তি _ন_ ইংদ্রো' _বৃ_ দ্ধশ্র'বাঃ |  
-_স্ব_ স্তি নঃ' _পূ_ ষা _বি_ শ্ববে'দাঃ |  
-_স্ব_ স্তি _ন_ স্তা _র্ক্ষ্যো_ অরি'ষ্টনেমিঃ |  
+_ভ_ দ্রং প'শ্যে _মা_ ক্ষ _ভি_ র্যজ'ত্রাঃ ｜  
+_স্থি_ রৈরংগৈ''স্তু _ষ্ঠু_ বাগ্^ং স' _স্ত_ নূভিঃ' ｜  
+ব্যশে'ম _দে_ বহি' _তং_ যদাযুঃ' ｜  
+_স্ব_ স্তি _ন_ ইংদ্রো' _বৃ_ দ্ধশ্র'বাঃ ｜  
+_স্ব_ স্তি নঃ' _পূ_ ষা _বি_ শ্ববে'দাঃ ｜  
+_স্ব_ স্তি _ন_ স্তা _র্ক্ষ্যো_ অরি'ষ্টনেমিঃ ｜  
 _স্ব_ স্তি _নো_ বৃ _হ_ স্পতি'র্দধাতু ‖  
 
 ওং শা _ংতিঃ_ শা _ংতিঃ_ শাংতিঃ' ‖  
 
 ওং নম'স্তে _গ_ ণপ'তযে ❘  
-ত্ব _মে_ ব _প্র_ ত্য _ক্ষং_ তত্ত্ব'মসি |  
-ত্ব _মে_ ব _কে_ ব _লং_ কর্তা'ঽসি |  
-ত্ব _মে_ ব _কে_ ব _লং_ ধর্তা'ঽসি |  
-ত্ব _মে_ ব _কে_ ব _লং_ হর্তা'ঽসি |  
-ত্বমেব সর্বং খল্বিদং' ব্র _হ্মা_ সি |  
+ত্ব _মে_ ব _প্র_ ত্য _ক্ষং_ তত্ত্ব'মসি ｜  
+ত্ব _মে_ ব _কে_ ব _লং_ কর্তা'ঽসি ｜  
+ত্ব _মে_ ব _কে_ ব _লং_ ধর্তা'ঽসি ｜  
+ত্ব _মে_ ব _কে_ ব _লং_ হর্তা'ঽসি ｜  
+ত্বমেব সর্বং খল্বিদং' ব্র _হ্মা_ সি ｜  
 ত্বং সাক্ষাদাত্মা'ঽসি _নি_ ত্যম্ ‖ 1 ‖  
 ঋ'তং _ব_ চ্মি ❘  
 স'ত্যং _ব_ চ্মি ‖ 2 ‖ _  
 
 অ_ ব _ত্বং_ মাম্ ❘  
-অব' _ব_ ক্তারম্'' |  
-অব' _শ্রো_ তারম্'' |  
-অব' _দা_ তারম্'' |  
-অব' _ধা_ তারম্'' |  
-অবানূচানম'ব _শি_ ষ্যম্ |  
-অব' _প_ শ্চাত্তা''ত্ |  
-অব' _পু_ রস্তা''ত্ |  
-অবো _ত্ত_ রাত্তা''ত্ |  
-অব' _দ_ ক্ষিণাত্তা''ত্ |  
-অব' _চো_ র্ধ্বাত্তা''ত্ |  
-অবা _ধ_ রাত্তা''ত্ |  
+অব' _ব_ ক্তারম্'' ｜  
+অব' _শ্রো_ তারম্'' ｜  
+অব' _দা_ তারম্'' ｜  
+অব' _ধা_ তারম্'' ｜  
+অবানূচানম'ব _শি_ ষ্যম্ ｜  
+অব' _প_ শ্চাত্তা''ত্ ｜  
+অব' _পু_ রস্তা''ত্ ｜  
+অবো _ত্ত_ রাত্তা''ত্ ｜  
+অব' _দ_ ক্ষিণাত্তা''ত্ ｜  
+অব' _চো_ র্ধ্বাত্তা''ত্ ｜  
+অবা _ধ_ রাত্তা''ত্ ｜  
 সর্বতো মাং পাহি পাহি' স _ম_ ংতাত্ ‖ 3 ‖  
 
 ত্বং বাঙ্ময'স্ত্বং চি _ন্ম_ যঃ ❘  
-ত্বমানংদময'স্ত্বং ব্র _হ্ম_ মযঃ |  
-ত্বং সচ্চিদানংদাঽদ্বি'তী _যো_ ঽসি |  
-ত্বং _প্র_ ত্য _ক্ষং_ ব্রহ্মা'সি |  
+ত্বমানংদময'স্ত্বং ব্র _হ্ম_ মযঃ ｜  
+ত্বং সচ্চিদানংদাঽদ্বি'তী _যো_ ঽসি ｜  
+ত্বং _প্র_ ত্য _ক্ষং_ ব্রহ্মা'সি ｜  
 ত্বং জ্ঞানমযো বিজ্ঞান'ম _যো_ ঽসি ‖ 4 ‖  
 
 সর্বং জগদিদং ত্ব'ত্তো _জা_ যতে ❘  
-সর্বং জগদিদং ত্ব'ত্ত _স্তি_ ষ্ঠতি |  
-সর্বং জগদিদং ত্বযি লয'মে _ষ্য_ তি |  
-সর্বং জগদিদং ত্বযি' প্র _ত্যে_ তি |  
-ত্বং ভূমিরাপোঽনলোঽনি'লো _ন_ ভঃ |  
+সর্বং জগদিদং ত্ব'ত্ত _স্তি_ ষ্ঠতি ｜  
+সর্বং জগদিদং ত্বযি লয'মে _ষ্য_ তি ｜  
+সর্বং জগদিদং ত্বযি' প্র _ত্যে_ তি ｜  
+ত্বং ভূমিরাপোঽনলোঽনি'লো _ন_ ভঃ ｜  
 ত্বং চত্বারি বা''ক্প _দা_ নি ‖ 5 ‖  
 
 ত্বং _গু_ ণত্র'যা _তী_ তঃ ❘  
-ত্বং অবস্থাত্র'যা _তী_ তঃ |  
-ত্বং _দে_ হত্র'যা _তী_ তঃ |  
-ত্বং _কা_ লত্র'যা _তী_ তঃ |  
-ত্বং মূলাধারস্থিতো'ঽসি _নি_ ত্যম্ |  
-ত্বং শক্তিত্র'যা _ত্ম_ কঃ |  
-ত্বাং যোগিনো ধ্যায'ংতি _নি_ ত্যম্ |  
+ত্বং অবস্থাত্র'যা _তী_ তঃ ｜  
+ত্বং _দে_ হত্র'যা _তী_ তঃ ｜  
+ত্বং _কা_ লত্র'যা _তী_ তঃ ｜  
+ত্বং মূলাধারস্থিতো'ঽসি _নি_ ত্যম্ ｜  
+ত্বং শক্তিত্র'যা _ত্ম_ কঃ ｜  
+ত্বাং যোগিনো ধ্যায'ংতি _নি_ ত্যম্ ｜  
 ত্বং ব্রহ্মা ত্বং বিষ্ণুস্ত্বং রুদ্রস্ত্বমিংদ্রস্ত্বমগ্নিস্ত্বং বাযুস্ত্বং সূর্যস্ত্বং চংদ্রমাস্ত্বং ব্র _হ্ম_ ভূর্ভু _বঃ_ স্বরোম্ ‖ 6 _‖  
 
 গ_ণাদিং'' পূর্ব'মু _চ্চা_ _র্য_ _ব_ র্ণাদীং'' স্তদ _ন_ ংতরম্ ❘  
-অনুস্বারঃ প'র _ত_ রঃ |  
-অর্ধে''ংদু _ল_ সিতম্ |  
-তারে'ণ _ঋ_ দ্ধম্ |  
-঎তত্তব মনু'স্ব _রূ_ পম্ |  
-গকারঃ পূ''র্ব _রূ_ পম্ |  
-অকারো মধ্য'ম _রূ_ পম্ |  
-অনুস্বারশ্চা''ংত্য _রূ_ পম্ |  
-বিংদুরুত্ত'র _রূ_ পম্ |  
-নাদঃ' স _ংধা_ নম্ |  
-সগংহি'তা _স_ ংধিঃ |  
-সৈষা গণে'শ _বি_ দ্যা |  
-গণ'ক _ঋ_ ষিঃ |  
-নিচৃদ্গায'ত্রী _চ্ছ_ ংদঃ |  
-শ্রী মহাগণপতি'র্দেবতা |  
+অনুস্বারঃ প'র _ত_ রঃ ｜  
+অর্ধে''ংদু _ল_ সিতম্ ｜  
+তারে'ণ _ঋ_ দ্ধম্ ｜  
+঎তত্তব মনু'স্ব _রূ_ পম্ ｜  
+গকারঃ পূ''র্ব _রূ_ পম্ ｜  
+অকারো মধ্য'ম _রূ_ পম্ ｜  
+অনুস্বারশ্চা''ংত্য _রূ_ পম্ ｜  
+বিংদুরুত্ত'র _রূ_ পম্ ｜  
+নাদঃ' স _ংধা_ নম্ ｜  
+সগংহি'তা _স_ ংধিঃ ｜  
+সৈষা গণে'শ _বি_ দ্যা ｜  
+গণ'ক _ঋ_ ষিঃ ｜  
+নিচৃদ্গায'ত্রী _চ্ছ_ ংদঃ ｜  
+শ্রী মহাগণপতি'র্দেবতা ｜  
 ওং গং _গ_ ণপ'তযে নমঃ ‖ 7 ‖  
 
 এক _দ_ ংতায' _বি_ দ্মহে' বক্র _তু_ ংডায' ধীমহি ❘  
@@ -372,59 +372,59 @@ _স্ব_ স্তি _নো_ বৃ _হ_ স্পতি'র্দধা�
 তন্নো' দংতিঃ প্র _চো_ দযা''ত্ ‖ 8 ‖  
 
 একদ _ন্_ তং চ'তু _র্হ_ _স্তং_ _পা_ শমং'কু _শ_ ধারি'ণম্ ❘  
-রদং' _চ_ বর'দং _হ_ _স্তৈ_ _র্বি_ ভ্রাণং' মূ _ষ_ কধ্ব'জম্ |  
-রক্তং' _ল_ ংবোদ'রং _শূ_ _র্প_ কর্ণকং' র _ক্ত_ বাস'সম্ |  
-রক্ত' _গ_ ংধানু'লি _প্তা_ _ংগং_ _র_ ক্তপু'ষ্পৈঃ _সু_ পূজি'তম্ |  
-ভক্তা' _নু_ কংপি'নং _দে_ _বং_ _জ_ গত্কা'র _ণ_ মচ্যু'তম্ |  
-আবি' _র্ভূ_ তং চ' _সৃ_ _ষ্ট্যা_ _দৌ_ _প্র_ কৃতে''ঃ পু _রু_ ষাত্প'রম্ |  
+রদং' _চ_ বর'দং _হ_ _স্তৈ_ _র্বি_ ভ্রাণং' মূ _ষ_ কধ্ব'জম্ ｜  
+রক্তং' _ল_ ংবোদ'রং _শূ_ _র্প_ কর্ণকং' র _ক্ত_ বাস'সম্ ｜  
+রক্ত' _গ_ ংধানু'লি _প্তা_ _ংগং_ _র_ ক্তপু'ষ্পৈঃ _সু_ পূজি'তম্ ｜  
+ভক্তা' _নু_ কংপি'নং _দে_ _বং_ _জ_ গত্কা'র _ণ_ মচ্যু'তম্ ｜  
+আবি' _র্ভূ_ তং চ' _সৃ_ _ষ্ট্যা_ _দৌ_ _প্র_ কৃতে''ঃ পু _রু_ ষাত্প'রম্ ｜  
 এবং' _ধ্যা_ যতি' যো _নি_ _ত্যং_ _স_ যোগী' যো _গি_ নাং ব'রঃ ‖ 9 ‖  
 
 নমো ব্রাতপতযে নমো গণপতযে নমঃ প্রমথপতযে নমস্তেঽস্তু লংবোদরাযৈকদংতায বিঘ্নবিনাশিনে শিবসুতায শ্রীবরদমূর্ত _যে_  
 নমঃ ‖ 10 ‖  
 
 এতদথর্বশীর্ষং যোঽ _ধী_ তে ❘  
-স ব্রহ্মভূযা'য _ক_ ল্পতে |  
-স সর্ববিঘ্নৈ''র্ন _বা_ ধ্যতে |  
-স সর্বতঃ সুখ'মে _ধ_ তে |  
-স পংচমহাপাপা''ত্ প্র _মু_ চ্যতে |  
-_সা_ যম'ধী _যা_ _নো_ দিবসকৃতং পাপং' না _শ_ যতি |  
-_প্রা_ তর'ধী _যা_ _নো_ রাত্রিকৃতং পাপং' না _শ_ যতি |  
-সাযং প্রাতঃ প্র'যু _ংজা_ _নো_ পাপোঽপা'পো _ভ_ বতি |  
-ধর্মার্থকামমোক্ষং' চ _বি_ ংদতি |  
-ইদমথর্বশীর্ষমশিষ্যায' ন _দে_ যম্ |  
-যো যদি মো'হাদ্ _দা_ স্যতি স পাপী'যান্ _ভ_ বতি |  
-সহস্রাবর্তনাদ্যং যং কাম'ম _ধী_ তে |  
+স ব্রহ্মভূযা'য _ক_ ল্পতে ｜  
+স সর্ববিঘ্নৈ''র্ন _বা_ ধ্যতে ｜  
+স সর্বতঃ সুখ'মে _ধ_ তে ｜  
+স পংচমহাপাপা''ত্ প্র _মু_ চ্যতে ｜  
+_সা_ যম'ধী _যা_ _নো_ দিবসকৃতং পাপং' না _শ_ যতি ｜  
+_প্রা_ তর'ধী _যা_ _নো_ রাত্রিকৃতং পাপং' না _শ_ যতি ｜  
+সাযং প্রাতঃ প্র'যু _ংজা_ _নো_ পাপোঽপা'পো _ভ_ বতি ｜  
+ধর্মার্থকামমোক্ষং' চ _বি_ ংদতি ｜  
+ইদমথর্বশীর্ষমশিষ্যায' ন _দে_ যম্ ｜  
+যো যদি মো'হাদ্ _দা_ স্যতি স পাপী'যান্ _ভ_ বতি ｜  
+সহস্রাবর্তনাদ্যং যং কাম'ম _ধী_ তে ｜  
 তং তমনে'ন _সা_ ধযেত্ ‖ 11 ‖  
 
 অনেন গণপতিম'ভি _ষি_ ংচতি ❘  
-স বা'গ্মী _ভ_ বতি |  
-চতুর্থ্যামন'শ্নন্ _জ_ পতি স বিদ্যা'বান্ _ভ_ বতি |  
-ইত্যথর্ব'ণ _বা_ ক্যম্ |  
+স বা'গ্মী _ভ_ বতি ｜  
+চতুর্থ্যামন'শ্নন্ _জ_ পতি স বিদ্যা'বান্ _ভ_ বতি ｜  
+ইত্যথর্ব'ণ _বা_ ক্যম্ ｜  
 ব্রহ্মা _দ্যা_ চর'ণং _বি_ দ্যান্ন বিভেতি কদা'চ _নে_ তি ‖ 12 ‖  
 
 যো দূর্বাংকু'রৈ _র্য_ জতি স বৈশ্রবণোপ'মো _ভ_ বতি ❘  
-যো লা'জৈ _র্য_ জতি স যশো'বান্ _ভ_ বতি |  
-স মেধা'বান্ _ভ_ বতি |  
-যো মোদকসহস্রে'ণ _য_ জতি স বাংছিতফলম'বা _প্নো_ তি |  
+যো লা'জৈ _র্য_ জতি স যশো'বান্ _ভ_ বতি ｜  
+স মেধা'বান্ _ভ_ বতি ｜  
+যো মোদকসহস্রে'ণ _য_ জতি স বাংছিতফলম'বা _প্নো_ তি ｜  
 যঃ সাজ্য সমি'দ্ভি _র্য_ জতি স সর্বং লভতে স স'র্বং _ল_ ভতে ‖ 13 ‖  
 
 অষ্টৌ ব্রাহ্মণান্ সম্যগ্ গ্রা'হ _যি_ ত্বা সূর্যবর্চ'স্বী _ভ_ বতি ❘  
-সূর্যগ্রহে ম'হা _ন_ দ্যাং প্রতিমাসন্নিধৌ বা _জ_ প্ত্বা সিদ্ধম'ংত্রো _ভ_ বতি |  
-মহাবিঘ্না''ত্ প্র _মু_ চ্যতে |  
-মহাদোষা''ত্ প্র _মু_ চ্যতে |  
-মহাপাপা''ত্ প্র _মু_ চ্যতে |  
-মহাপ্রত্যবাযা''ত্ প্র _মু_ চ্যতে |  
-স সর্ব'বিদ্ভবতি স সর্ব'বি _দ্ভ_ বতি |  
-য এ'বং _বে_ দ |  
+সূর্যগ্রহে ম'হা _ন_ দ্যাং প্রতিমাসন্নিধৌ বা _জ_ প্ত্বা সিদ্ধম'ংত্রো _ভ_ বতি ｜  
+মহাবিঘ্না''ত্ প্র _মু_ চ্যতে ｜  
+মহাদোষা''ত্ প্র _মু_ চ্যতে ｜  
+মহাপাপা''ত্ প্র _মু_ চ্যতে ｜  
+মহাপ্রত্যবাযা''ত্ প্র _মু_ চ্যতে ｜  
+স সর্ব'বিদ্ভবতি স সর্ব'বি _দ্ভ_ বতি ｜  
+য এ'বং _বে_ দ ｜  
 ইত্যু' _প_ নিষ'ত্ ‖ 14 ‖  
 
 ওং _ভ_ দ্রং কর্ণে'ভিঃ শৃ _ণু_ যাম' দেবাঃ ❘  
-_ভ_ দ্রং প'শ্যে _মা_ ক্ষ _ভি_ র্যজ'ত্রাঃ |  
-_স্থি_ রৈরংগৈ''স্তু _ষ্ঠু_ বাগ্^ং স' _স্ত_ নূভিঃ' |  
-ব্যশে'ম _দে_ বহি' _তং_ যদাযুঃ' |  
-_স্ব_ স্তি _ন_ ইংদ্রো' _বৃ_ দ্ধশ্র'বাঃ |  
-_স্ব_ স্তি নঃ' _পূ_ ষা _বি_ শ্ববে'দাঃ |  
-_স্ব_ স্তি _ন_ স্তা _র্ক্ষ্যো_ অরি'ষ্টনেমিঃ |  
+_ভ_ দ্রং প'শ্যে _মা_ ক্ষ _ভি_ র্যজ'ত্রাঃ ｜  
+_স্থি_ রৈরংগৈ''স্তু _ষ্ঠু_ বাগ্^ং স' _স্ত_ নূভিঃ' ｜  
+ব্যশে'ম _দে_ বহি' _তং_ যদাযুঃ' ｜  
+_স্ব_ স্তি _ন_ ইংদ্রো' _বৃ_ দ্ধশ্র'বাঃ ｜  
+_স্ব_ স্তি নঃ' _পূ_ ষা _বি_ শ্ববে'দাঃ ｜  
+_স্ব_ স্তি _ন_ স্তা _র্ক্ষ্যো_ অরি'ষ্টনেমিঃ ｜  
 _স্ব_ স্তি _নো_ বৃ _হ_ স্পতি'র্দধাতু ‖  
 
 ওং শা _ংতিঃ_ শা _ংতিঃ_ শাংতিঃ' ‖  
@@ -437,77 +437,77 @@ _স্ব_ স্তি _নো_ বৃ _হ_ স্পতি'র্দধা�
 ‖ गणपत्यथर्वशीर्षोपनिषत् (श्री गणेषाथर्वषीर्षम्) ‖  
 
 ॐ _भ_ द्रं कर्णे'भिः शृ _णु_ याम' देवाः ❘  
-_भ_ द्रं प'श्ये _मा_ क्ष _भि_ र्यज'त्राः |  
-_स्थि_ रैरङ्गै''स्तु _ष्ठु_ वाग्^ं स' _स्त_ नूभिः' |  
-व्यशे'म _दे_ वहि' _तं_ यदायुः' |  
-_स्व_ स्ति _न_ इन्द्रो' _वृ_ द्धश्र'वाः |  
-_स्व_ स्ति नः' _पू_ षा _वि_ श्ववे'दाः |  
-_स्व_ स्ति _न_ स्ता _र्क्ष्यो_ अरि'ष्टनेमिः |  
+_भ_ द्रं प'श्ये _मा_ क्ष _भि_ र्यज'त्राः ｜  
+_स्थि_ रैरङ्गै''स्तु _ष्ठु_ वाग्^ं स' _स्त_ नूभिः' ｜  
+व्यशे'म _दे_ वहि' _तं_ यदायुः' ｜  
+_स्व_ स्ति _न_ इन्द्रो' _वृ_ द्धश्र'वाः ｜  
+_स्व_ स्ति नः' _पू_ षा _वि_ श्ववे'दाः ｜  
+_स्व_ स्ति _न_ स्ता _र्क्ष्यो_ अरि'ष्टनेमिः ｜  
 _स्व_ स्ति _नो_ बृ _ह_ स्पति'र्दधातु ‖  
 
 ॐ शा _न्तिः_ शा _न्तिः_ शान्तिः' ‖  
 
 ॐ नम'स्ते _ग_ णप'तये ❘  
-त्व _मे_ व _प्र_ त्य _क्षं_ तत्त्व'मसि |  
-त्व _मे_ व _के_ व _लं_ कर्ता'ऽसि |  
-त्व _मे_ व _के_ व _लं_ धर्ता'ऽसि |  
-त्व _मे_ व _के_ व _लं_ हर्ता'ऽसि |  
-त्वमेव सर्वं खल्विदं' ब्र _ह्मा_ सि |  
+त्व _मे_ व _प्र_ त्य _क्षं_ तत्त्व'मसि ｜  
+त्व _मे_ व _के_ व _लं_ कर्ता'ऽसि ｜  
+त्व _मे_ व _के_ व _लं_ धर्ता'ऽसि ｜  
+त्व _मे_ व _के_ व _लं_ हर्ता'ऽसि ｜  
+त्वमेव सर्वं खल्विदं' ब्र _ह्मा_ सि ｜  
 त्वं साक्षादात्मा'ऽसि _नि_ त्यम् ‖ 1 ‖  
 ऋ'तं _व_ च्मि ❘  
 स'त्यं _व_ च्मि ‖ 2 ‖ _  
 
 अ_ व _त्वं_ माम् ❘  
-अव' _व_ क्तारम्'' |  
-अव' _श्रो_ तारम्'' |  
-अव' _दा_ तारम्'' |  
-अव' _धा_ तारम्'' |  
-अवानूचानम'व _शि_ ष्यम् |  
-अव' _प_ श्चात्ता''त् |  
-अव' _पु_ रस्ता''त् |  
-अवो _त्त_ रात्ता''त् |  
-अव' _द_ क्षिणात्ता''त् |  
-अव' _चो_ र्ध्वात्ता''त् |  
-अवा _ध_ रात्ता''त् |  
+अव' _व_ क्तारम्'' ｜  
+अव' _श्रो_ तारम्'' ｜  
+अव' _दा_ तारम्'' ｜  
+अव' _धा_ तारम्'' ｜  
+अवानूचानम'व _शि_ ष्यम् ｜  
+अव' _प_ श्चात्ता''त् ｜  
+अव' _पु_ रस्ता''त् ｜  
+अवो _त्त_ रात्ता''त् ｜  
+अव' _द_ क्षिणात्ता''त् ｜  
+अव' _चो_ र्ध्वात्ता''त् ｜  
+अवा _ध_ रात्ता''त् ｜  
 सर्वतो मां पाहि पाहि' स _म_ न्तात् ‖ 3 ‖  
 
 त्वं वाङ्मय'स्त्वं चि _न्म_ यः ❘  
-त्वमानन्दमय'स्त्वं ब्र _ह्म_ मयः |  
-त्वं सच्चिदानन्दाऽद्वि'ती _यो_ ऽसि |  
-त्वं _प्र_ त्य _क्षं_ ब्रह्मा'सि |  
+त्वमानन्दमय'स्त्वं ब्र _ह्म_ मयः ｜  
+त्वं सच्चिदानन्दाऽद्वि'ती _यो_ ऽसि ｜  
+त्वं _प्र_ त्य _क्षं_ ब्रह्मा'सि ｜  
 त्वं ज्ञानमयो विज्ञान'म _यो_ ऽसि ‖ 4 ‖  
 
 सर्वं जगदिदं त्व'त्तो _जा_ यते ❘  
-सर्वं जगदिदं त्व'त्त _स्ति_ ष्ठति |  
-सर्वं जगदिदं त्वयि लय'मे _ष्य_ ति |  
-सर्वं जगदिदं त्वयि' प्र _त्ये_ ति |  
-त्वं भूमिरापोऽनलोऽनि'लो _न_ भः |  
+सर्वं जगदिदं त्व'त्त _स्ति_ ष्ठति ｜  
+सर्वं जगदिदं त्वयि लय'मे _ष्य_ ति ｜  
+सर्वं जगदिदं त्वयि' प्र _त्ये_ ति ｜  
+त्वं भूमिरापोऽनलोऽनि'लो _न_ भः ｜  
 त्वं चत्वारि वा''क्प _दा_ नि ‖ 5 ‖  
 
 त्वं _गु_ णत्र'या _ती_ तः ❘  
-त्वं अवस्थात्र'या _ती_ तः |  
-त्वं _दे_ हत्र'या _ती_ तः |  
-त्वं _का_ लत्र'या _ती_ तः |  
-त्वं मूलाधारस्थितो'ऽसि _नि_ त्यम् |  
-त्वं शक्तित्र'या _त्म_ कः |  
-त्वां योगिनो ध्याय'न्ति _नि_ त्यम् |  
+त्वं अवस्थात्र'या _ती_ तः ｜  
+त्वं _दे_ हत्र'या _ती_ तः ｜  
+त्वं _का_ लत्र'या _ती_ तः ｜  
+त्वं मूलाधारस्थितो'ऽसि _नि_ त्यम् ｜  
+त्वं शक्तित्र'या _त्म_ कः ｜  
+त्वां योगिनो ध्याय'न्ति _नि_ त्यम् ｜  
 त्वं ब्रह्मा त्वं विष्णुस्त्वं रुद्रस्त्वमिन्द्रस्त्वमग्निस्त्वं वायुस्त्वं सूर्यस्त्वं चन्द्रमास्त्वं ब्र _ह्म_ भूर्भु _वः_ स्वरोम् ‖ 6 _‖  
 
 ग_णादिं'' पूर्व'मु _च्चा_ _र्य_ _व_ र्णादीं'' स्तद _न_ न्तरम् ❘  
-अनुस्वारः प'र _त_ रः |  
-अर्धे''न्दु _ल_ सितम् |  
-तारे'ण _ऋ_ द्धम् |  
-ऎतत्तव मनु'स्व _रू_ पम् |  
-गकारः पू''र्व _रू_ पम् |  
-अकारो मध्य'म _रू_ पम् |  
-अनुस्वारश्चा''न्त्य _रू_ पम् |  
-बिन्दुरुत्त'र _रू_ पम् |  
-नादः' स _न्धा_ नम् |  
-सगंहि'ता _स_ न्धिः |  
-सैषा गणे'श _वि_ द्या |  
-गण'क _ऋ_ षिः |  
-निचृद्गाय'त्री _च्छ_ न्दः |  
-श्री महागणपति'र्देवता |  
+अनुस्वारः प'र _त_ रः ｜  
+अर्धे''न्दु _ल_ सितम् ｜  
+तारे'ण _ऋ_ द्धम् ｜  
+ऎतत्तव मनु'स्व _रू_ पम् ｜  
+गकारः पू''र्व _रू_ पम् ｜  
+अकारो मध्य'म _रू_ पम् ｜  
+अनुस्वारश्चा''न्त्य _रू_ पम् ｜  
+बिन्दुरुत्त'र _रू_ पम् ｜  
+नादः' स _न्धा_ नम् ｜  
+सगंहि'ता _स_ न्धिः ｜  
+सैषा गणे'श _वि_ द्या ｜  
+गण'क _ऋ_ षिः ｜  
+निचृद्गाय'त्री _च्छ_ न्दः ｜  
+श्री महागणपति'र्देवता ｜  
 ॐ गं _ग_ णप'तये नमः ‖ 7 ‖  
 
 एक _द_ न्ताय' _वि_ द्महे' वक्र _तु_ ण्डाय' धीमहि ❘  
@@ -515,59 +515,59 @@ _स्व_ स्ति _नो_ बृ _ह_ स्पति'र्दधा�
 तन्नो' दन्तिः प्र _चो_ दया''त् ‖ 8 ‖  
 
 एकद _न्_ तं च'तु _र्ह_ _स्तं_ _पा_ शमं'कु _श_ धारि'णम् ❘  
-रदं' _च_ वर'दं _ह_ _स्तै_ _र्बि_ भ्राणं' मू _ष_ कध्व'जम् |  
-रक्तं' _ल_ म्बोद'रं _शू_ _र्प_ कर्णकं' र _क्त_ वास'सम् |  
-रक्त' _ग_ न्धानु'लि _प्ता_ _ङ्गं_ _र_ क्तपु'ष्पैः _सु_ पूजि'तम् |  
-भक्ता' _नु_ कम्पि'नं _दे_ _वं_ _ज_ गत्का'र _ण_ मच्यु'तम् |  
-आवि' _र्भू_ तं च' _सृ_ _ष्ट्या_ _दौ_ _प्र_ कृते''ः पु _रु_ षात्प'रम् |  
+रदं' _च_ वर'दं _ह_ _स्तै_ _र्बि_ भ्राणं' मू _ष_ कध्व'जम् ｜  
+रक्तं' _ल_ म्बोद'रं _शू_ _र्प_ कर्णकं' र _क्त_ वास'सम् ｜  
+रक्त' _ग_ न्धानु'लि _प्ता_ _ङ्गं_ _र_ क्तपु'ष्पैः _सु_ पूजि'तम् ｜  
+भक्ता' _नु_ कम्पि'नं _दे_ _वं_ _ज_ गत्का'र _ण_ मच्यु'तम् ｜  
+आवि' _र्भू_ तं च' _सृ_ _ष्ट्या_ _दौ_ _प्र_ कृते''ः पु _रु_ षात्प'रम् ｜  
 एवं' _ध्या_ यति' यो _नि_ _त्यं_ _स_ योगी' यो _गि_ नां व'रः ‖ 9 ‖  
 
 नमो व्रातपतये नमो गणपतये नमः प्रमथपतये नमस्तेऽस्तु लम्बोदरायैकदन्ताय विघ्नविनाशिने शिवसुताय श्रीवरदमूर्त _ये_  
 नमः ‖ 10 ‖  
 
 एतदथर्वशीर्षं योऽ _धी_ ते ❘  
-स ब्रह्मभूया'य _क_ ल्पते |  
-स सर्वविघ्नै''र्न _बा_ ध्यते |  
-स सर्वतः सुख'मे _ध_ ते |  
-स पञ्चमहापापा''त् प्र _मु_ च्यते |  
-_सा_ यम'धी _या_ _नो_ दिवसकृतं पापं' ना _श_ यति |  
-_प्रा_ तर'धी _या_ _नो_ रात्रिकृतं पापं' ना _श_ यति |  
-सायं प्रातः प्र'यु _ञ्जा_ _नो_ पापोऽपा'पो _भ_ वति |  
-धर्मार्थकाममोक्षं' च _वि_ न्दति |  
-इदमथर्वशीर्षमशिष्याय' न _दे_ यम् |  
-यो यदि मो'हाद् _दा_ स्यति स पापी'यान् _भ_ वति |  
-सहस्रावर्तनाद्यं यं काम'म _धी_ ते |  
+स ब्रह्मभूया'य _क_ ल्पते ｜  
+स सर्वविघ्नै''र्न _बा_ ध्यते ｜  
+स सर्वतः सुख'मे _ध_ ते ｜  
+स पञ्चमहापापा''त् प्र _मु_ च्यते ｜  
+_सा_ यम'धी _या_ _नो_ दिवसकृतं पापं' ना _श_ यति ｜  
+_प्रा_ तर'धी _या_ _नो_ रात्रिकृतं पापं' ना _श_ यति ｜  
+सायं प्रातः प्र'यु _ञ्जा_ _नो_ पापोऽपा'पो _भ_ वति ｜  
+धर्मार्थकाममोक्षं' च _वि_ न्दति ｜  
+इदमथर्वशीर्षमशिष्याय' न _दे_ यम् ｜  
+यो यदि मो'हाद् _दा_ स्यति स पापी'यान् _भ_ वति ｜  
+सहस्रावर्तनाद्यं यं काम'म _धी_ ते ｜  
 तं तमने'न _सा_ धयेत् ‖ 11 ‖  
 
 अनेन गणपतिम'भि _षि_ ञ्चति ❘  
-स वा'ग्मी _भ_ वति |  
-चतुर्थ्यामन'श्नन् _ज_ पति स विद्या'वान् _भ_ वति |  
-इत्यथर्व'ण _वा_ क्यम् |  
+स वा'ग्मी _भ_ वति ｜  
+चतुर्थ्यामन'श्नन् _ज_ पति स विद्या'वान् _भ_ वति ｜  
+इत्यथर्व'ण _वा_ क्यम् ｜  
 ब्रह्मा _द्या_ चर'णं _वि_ द्यान्न बिभेति कदा'च _ने_ ति ‖ 12 ‖  
 
 यो दूर्वाङ्कु'रै _र्य_ जति स वैश्रवणोप'मो _भ_ वति ❘  
-यो ला'जै _र्य_ जति स यशो'वान् _भ_ वति |  
-स मेधा'वान् _भ_ वति |  
-यो मोदकसहस्रे'ण _य_ जति स वाञ्छितफलम'वा _प्नो_ ति |  
+यो ला'जै _र्य_ जति स यशो'वान् _भ_ वति ｜  
+स मेधा'वान् _भ_ वति ｜  
+यो मोदकसहस्रे'ण _य_ जति स वाञ्छितफलम'वा _प्नो_ ति ｜  
 यः साज्य समि'द्भि _र्य_ जति स सर्वं लभते स स'र्वं _ल_ भते ‖ 13 ‖  
 
 अष्टौ ब्राह्मणान् सम्यग् ग्रा'ह _यि_ त्वा सूर्यवर्च'स्वी _भ_ वति ❘  
-सूर्यग्रहे म'हा _न_ द्यां प्रतिमासन्निधौ वा _ज_ प्त्वा सिद्धम'न्त्रो _भ_ वति |  
-महाविघ्ना''त् प्र _मु_ च्यते |  
-महादोषा''त् प्र _मु_ च्यते |  
-महापापा''त् प्र _मु_ च्यते |  
-महाप्रत्यवाया''त् प्र _मु_ च्यते |  
-स सर्व'विद्भवति स सर्व'वि _द्भ_ वति |  
-य ए'वं _वे_ द |  
+सूर्यग्रहे म'हा _न_ द्यां प्रतिमासन्निधौ वा _ज_ प्त्वा सिद्धम'न्त्रो _भ_ वति ｜  
+महाविघ्ना''त् प्र _मु_ च्यते ｜  
+महादोषा''त् प्र _मु_ च्यते ｜  
+महापापा''त् प्र _मु_ च्यते ｜  
+महाप्रत्यवाया''त् प्र _मु_ च्यते ｜  
+स सर्व'विद्भवति स सर्व'वि _द्भ_ वति ｜  
+य ए'वं _वे_ द ｜  
 इत्यु' _प_ निष'त् ‖ 14 ‖  
 
 ॐ _भ_ द्रं कर्णे'भिः शृ _णु_ याम' देवाः ❘  
-_भ_ द्रं प'श्ये _मा_ क्ष _भि_ र्यज'त्राः |  
-_स्थि_ रैरङ्गै''स्तु _ष्ठु_ वाग्^ं स' _स्त_ नूभिः' |  
-व्यशे'म _दे_ वहि' _तं_ यदायुः' |  
-_स्व_ स्ति _न_ इन्द्रो' _वृ_ द्धश्र'वाः |  
-_स्व_ स्ति नः' _पू_ षा _वि_ श्ववे'दाः |  
-_स्व_ स्ति _न_ स्ता _र्क्ष्यो_ अरि'ष्टनेमिः |  
+_भ_ द्रं प'श्ये _मा_ क्ष _भि_ र्यज'त्राः ｜  
+_स्थि_ रैरङ्गै''स्तु _ष्ठु_ वाग्^ं स' _स्त_ नूभिः' ｜  
+व्यशे'म _दे_ वहि' _तं_ यदायुः' ｜  
+_स्व_ स्ति _न_ इन्द्रो' _वृ_ द्धश्र'वाः ｜  
+_स्व_ स्ति नः' _पू_ षा _वि_ श्ववे'दाः ｜  
+_स्व_ स्ति _न_ स्ता _र्क्ष्यो_ अरि'ष्टनेमिः ｜  
 _स्व_ स्ति _नो_ बृ _ह_ स्पति'र्दधातु ‖  
 
 ॐ शा _न्तिः_ शा _न्तिः_ शान्तिः' ‖  
@@ -580,77 +580,77 @@ _स्व_ स्ति _नो_ बृ _ह_ स्पति'र्दधा�
 ‖ ગણપત્યથર્વશીર્ષોપનિષત્ (શ્રી ગણેષાથર્વષીર્ષમ્) ‖  
 
 ઓં _ભ_ દ્રં કર્ણે'ભિઃ શૃ _ણુ_ યામ' દેવાઃ ❘  
-_ભ_ દ્રં પ'શ્યે _મા_ ક્ષ _ભિ_ ર્યજ'ત્રાઃ |  
-_સ્થિ_ રૈરંગૈ''સ્તુ _ષ્ઠુ_ વાગ્^ં સ' _સ્ત_ નૂભિઃ' |  
-વ્યશે'મ _દે_ વહિ' _તં_ યદાયુઃ' |  
-_સ્વ_ સ્તિ _ન_ ઇંદ્રો' _વૃ_ દ્ધશ્ર'વાઃ |  
-_સ્વ_ સ્તિ નઃ' _પૂ_ ષા _વિ_ શ્વવે'દાઃ |  
-_સ્વ_ સ્તિ _ન_ સ્તા _ર્ક્ષ્યો_ અરિ'ષ્ટનેમિઃ |  
+_ભ_ દ્રં પ'શ્યે _મા_ ક્ષ _ભિ_ ર્યજ'ત્રાઃ ｜  
+_સ્થિ_ રૈરંગૈ''સ્તુ _ષ્ઠુ_ વાગ્^ં સ' _સ્ત_ નૂભિઃ' ｜  
+વ્યશે'મ _દે_ વહિ' _તં_ યદાયુઃ' ｜  
+_સ્વ_ સ્તિ _ન_ ઇંદ્રો' _વૃ_ દ્ધશ્ર'વાઃ ｜  
+_સ્વ_ સ્તિ નઃ' _પૂ_ ષા _વિ_ શ્વવે'દાઃ ｜  
+_સ્વ_ સ્તિ _ન_ સ્તા _ર્ક્ષ્યો_ અરિ'ષ્ટનેમિઃ ｜  
 _સ્વ_ સ્તિ _નો_ બૃ _હ_ સ્પતિ'ર્દધાતુ ‖  
 
 ઓં શા _ંતિઃ_ શા _ંતિઃ_ શાંતિઃ' ‖  
 
 ઓં નમ'સ્તે _ગ_ ણપ'તયે ❘  
-ત્વ _મે_ વ _પ્ર_ ત્ય _ક્ષં_ તત્ત્વ'મસિ |  
-ત્વ _મે_ વ _કે_ વ _લં_ કર્તા'ઽસિ |  
-ત્વ _મે_ વ _કે_ વ _લં_ ધર્તા'ઽસિ |  
-ત્વ _મે_ વ _કે_ વ _લં_ હર્તા'ઽસિ |  
-ત્વમેવ સર્વં ખલ્વિદં' બ્ર _હ્મા_ સિ |  
+ત્વ _મે_ વ _પ્ર_ ત્ય _ક્ષં_ તત્ત્વ'મસિ ｜  
+ત્વ _મે_ વ _કે_ વ _લં_ કર્તા'ઽસિ ｜  
+ત્વ _મે_ વ _કે_ વ _લં_ ધર્તા'ઽસિ ｜  
+ત્વ _મે_ વ _કે_ વ _લં_ હર્તા'ઽસિ ｜  
+ત્વમેવ સર્વં ખલ્વિદં' બ્ર _હ્મા_ સિ ｜  
 ત્વં સાક્ષાદાત્મા'ઽસિ _નિ_ ત્યમ્ ‖ 1 ‖  
 ઋ'તં _વ_ ચ્મિ ❘  
 સ'ત્યં _વ_ ચ્મિ ‖ 2 ‖ _  
 
 અ_ વ _ત્વં_ મામ્ ❘  
-અવ' _વ_ ક્તારમ્'' |  
-અવ' _શ્રો_ તારમ્'' |  
-અવ' _દા_ તારમ્'' |  
-અવ' _ધા_ તારમ્'' |  
-અવાનૂચાનમ'વ _શિ_ ષ્યમ્ |  
-અવ' _પ_ શ્ચાત્તા''ત્ |  
-અવ' _પુ_ રસ્તા''ત્ |  
-અવો _ત્ત_ રાત્તા''ત્ |  
-અવ' _દ_ ક્ષિણાત્તા''ત્ |  
-અવ' _ચો_ ર્ધ્વાત્તા''ત્ |  
-અવા _ધ_ રાત્તા''ત્ |  
+અવ' _વ_ ક્તારમ્'' ｜  
+અવ' _શ્રો_ તારમ્'' ｜  
+અવ' _દા_ તારમ્'' ｜  
+અવ' _ધા_ તારમ્'' ｜  
+અવાનૂચાનમ'વ _શિ_ ષ્યમ્ ｜  
+અવ' _પ_ શ્ચાત્તા''ત્ ｜  
+અવ' _પુ_ રસ્તા''ત્ ｜  
+અવો _ત્ત_ રાત્તા''ત્ ｜  
+અવ' _દ_ ક્ષિણાત્તા''ત્ ｜  
+અવ' _ચો_ ર્ધ્વાત્તા''ત્ ｜  
+અવા _ધ_ રાત્તા''ત્ ｜  
 સર્વતો માં પાહિ પાહિ' સ _મ_ ંતાત્ ‖ 3 ‖  
 
 ત્વં વાઙ્મય'સ્ત્વં ચિ _ન્મ_ યઃ ❘  
-ત્વમાનંદમય'સ્ત્વં બ્ર _હ્મ_ મયઃ |  
-ત્વં સચ્ચિદાનંદાઽદ્વિ'તી _યો_ ઽસિ |  
-ત્વં _પ્ર_ ત્ય _ક્ષં_ બ્રહ્મા'સિ |  
+ત્વમાનંદમય'સ્ત્વં બ્ર _હ્મ_ મયઃ ｜  
+ત્વં સચ્ચિદાનંદાઽદ્વિ'તી _યો_ ઽસિ ｜  
+ત્વં _પ્ર_ ત્ય _ક્ષં_ બ્રહ્મા'સિ ｜  
 ત્વં જ્ઞાનમયો વિજ્ઞાન'મ _યો_ ઽસિ ‖ 4 ‖  
 
 સર્વં જગદિદં ત્વ'ત્તો _જા_ યતે ❘  
-સર્વં જગદિદં ત્વ'ત્ત _સ્તિ_ ષ્ઠતિ |  
-સર્વં જગદિદં ત્વયિ લય'મે _ષ્ય_ તિ |  
-સર્વં જગદિદં ત્વયિ' પ્ર _ત્યે_ તિ |  
-ત્વં ભૂમિરાપોઽનલોઽનિ'લો _ન_ ભઃ |  
+સર્વં જગદિદં ત્વ'ત્ત _સ્તિ_ ષ્ઠતિ ｜  
+સર્વં જગદિદં ત્વયિ લય'મે _ષ્ય_ તિ ｜  
+સર્વં જગદિદં ત્વયિ' પ્ર _ત્યે_ તિ ｜  
+ત્વં ભૂમિરાપોઽનલોઽનિ'લો _ન_ ભઃ ｜  
 ત્વં ચત્વારિ વા''ક્પ _દા_ નિ ‖ 5 ‖  
 
 ત્વં _ગુ_ ણત્ર'યા _તી_ તઃ ❘  
-ત્વં અવસ્થાત્ર'યા _તી_ તઃ |  
-ત્વં _દે_ હત્ર'યા _તી_ તઃ |  
-ત્વં _કા_ લત્ર'યા _તી_ તઃ |  
-ત્વં મૂલાધારસ્થિતો'ઽસિ _નિ_ ત્યમ્ |  
-ત્વં શક્તિત્ર'યા _ત્મ_ કઃ |  
-ત્વાં યોગિનો ધ્યાય'ંતિ _નિ_ ત્યમ્ |  
+ત્વં અવસ્થાત્ર'યા _તી_ તઃ ｜  
+ત્વં _દે_ હત્ર'યા _તી_ તઃ ｜  
+ત્વં _કા_ લત્ર'યા _તી_ તઃ ｜  
+ત્વં મૂલાધારસ્થિતો'ઽસિ _નિ_ ત્યમ્ ｜  
+ત્વં શક્તિત્ર'યા _ત્મ_ કઃ ｜  
+ત્વાં યોગિનો ધ્યાય'ંતિ _નિ_ ત્યમ્ ｜  
 ત્વં બ્રહ્મા ત્વં વિષ્ણુસ્ત્વં રુદ્રસ્ત્વમિંદ્રસ્ત્વમગ્નિસ્ત્વં વાયુસ્ત્વં સૂર્યસ્ત્વં ચંદ્રમાસ્ત્વં બ્ર _હ્મ_ ભૂર્ભુ _વઃ_ સ્વરોમ્ ‖ 6 _‖  
 
 ગ_ણાદિં'' પૂર્વ'મુ _ચ્ચા_ _ર્ય_ _વ_ ર્ણાદીં'' સ્તદ _ન_ ંતરમ્ ❘  
-અનુસ્વારઃ પ'ર _ત_ રઃ |  
-અર્ધે''ંદુ _લ_ સિતમ્ |  
-તારે'ણ _ઋ_ દ્ધમ્ |  
-઎તત્તવ મનુ'સ્વ _રૂ_ પમ્ |  
-ગકારઃ પૂ''ર્વ _રૂ_ પમ્ |  
-અકારો મધ્ય'મ _રૂ_ પમ્ |  
-અનુસ્વારશ્ચા''ંત્ય _રૂ_ પમ્ |  
-બિંદુરુત્ત'ર _રૂ_ પમ્ |  
-નાદઃ' સ _ંધા_ નમ્ |  
-સગંહિ'તા _સ_ ંધિઃ |  
-સૈષા ગણે'શ _વિ_ દ્યા |  
-ગણ'ક _ઋ_ ષિઃ |  
-નિચૃદ્ગાય'ત્રી _ચ્છ_ ંદઃ |  
-શ્રી મહાગણપતિ'ર્દેવતા |  
+અનુસ્વારઃ પ'ર _ત_ રઃ ｜  
+અર્ધે''ંદુ _લ_ સિતમ્ ｜  
+તારે'ણ _ઋ_ દ્ધમ્ ｜  
+઎તત્તવ મનુ'સ્વ _રૂ_ પમ્ ｜  
+ગકારઃ પૂ''ર્વ _રૂ_ પમ્ ｜  
+અકારો મધ્ય'મ _રૂ_ પમ્ ｜  
+અનુસ્વારશ્ચા''ંત્ય _રૂ_ પમ્ ｜  
+બિંદુરુત્ત'ર _રૂ_ પમ્ ｜  
+નાદઃ' સ _ંધા_ નમ્ ｜  
+સગંહિ'તા _સ_ ંધિઃ ｜  
+સૈષા ગણે'શ _વિ_ દ્યા ｜  
+ગણ'ક _ઋ_ ષિઃ ｜  
+નિચૃદ્ગાય'ત્રી _ચ્છ_ ંદઃ ｜  
+શ્રી મહાગણપતિ'ર્દેવતા ｜  
 ઓં ગં _ગ_ ણપ'તયે નમઃ ‖ 7 ‖  
 
 એક _દ_ ંતાય' _વિ_ દ્મહે' વક્ર _તુ_ ંડાય' ધીમહિ ❘  
@@ -658,59 +658,59 @@ _સ્વ_ સ્તિ _નો_ બૃ _હ_ સ્પતિ'ર્દધા�
 તન્નો' દંતિઃ પ્ર _ચો_ દયા''ત્ ‖ 8 ‖  
 
 એકદ _ન્_ તં ચ'તુ _ર્હ_ _સ્તં_ _પા_ શમં'કુ _શ_ ધારિ'ણમ્ ❘  
-રદં' _ચ_ વર'દં _હ_ _સ્તૈ_ _ર્બિ_ ભ્રાણં' મૂ _ષ_ કધ્વ'જમ્ |  
-રક્તં' _લ_ ંબોદ'રં _શૂ_ _ર્પ_ કર્ણકં' ર _ક્ત_ વાસ'સમ્ |  
-રક્ત' _ગ_ ંધાનુ'લિ _પ્તા_ _ંગં_ _ર_ ક્તપુ'ષ્પૈઃ _સુ_ પૂજિ'તમ્ |  
-ભક્તા' _નુ_ કંપિ'નં _દે_ _વં_ _જ_ ગત્કા'ર _ણ_ મચ્યુ'તમ્ |  
-આવિ' _ર્ભૂ_ તં ચ' _સૃ_ _ષ્ટ્યા_ _દૌ_ _પ્ર_ કૃતે''ઃ પુ _રુ_ ષાત્પ'રમ્ |  
+રદં' _ચ_ વર'દં _હ_ _સ્તૈ_ _ર્બિ_ ભ્રાણં' મૂ _ષ_ કધ્વ'જમ્ ｜  
+રક્તં' _લ_ ંબોદ'રં _શૂ_ _ર્પ_ કર્ણકં' ર _ક્ત_ વાસ'સમ્ ｜  
+રક્ત' _ગ_ ંધાનુ'લિ _પ્તા_ _ંગં_ _ર_ ક્તપુ'ષ્પૈઃ _સુ_ પૂજિ'તમ્ ｜  
+ભક્તા' _નુ_ કંપિ'નં _દે_ _વં_ _જ_ ગત્કા'ર _ણ_ મચ્યુ'તમ્ ｜  
+આવિ' _ર્ભૂ_ તં ચ' _સૃ_ _ષ્ટ્યા_ _દૌ_ _પ્ર_ કૃતે''ઃ પુ _રુ_ ષાત્પ'રમ્ ｜  
 એવં' _ધ્યા_ યતિ' યો _નિ_ _ત્યં_ _સ_ યોગી' યો _ગિ_ નાં વ'રઃ ‖ 9 ‖  
 
 નમો વ્રાતપતયે નમો ગણપતયે નમઃ પ્રમથપતયે નમસ્તેઽસ્તુ લંબોદરાયૈકદંતાય વિઘ્નવિનાશિને શિવસુતાય શ્રીવરદમૂર્ત _યે_  
 નમઃ ‖ 10 ‖  
 
 એતદથર્વશીર્ષં યોઽ _ધી_ તે ❘  
-સ બ્રહ્મભૂયા'ય _ક_ લ્પતે |  
-સ સર્વવિઘ્નૈ''ર્ન _બા_ ધ્યતે |  
-સ સર્વતઃ સુખ'મે _ધ_ તે |  
-સ પંચમહાપાપા''ત્ પ્ર _મુ_ ચ્યતે |  
-_સા_ યમ'ધી _યા_ _નો_ દિવસકૃતં પાપં' ના _શ_ યતિ |  
-_પ્રા_ તર'ધી _યા_ _નો_ રાત્રિકૃતં પાપં' ના _શ_ યતિ |  
-સાયં પ્રાતઃ પ્ર'યુ _ંજા_ _નો_ પાપોઽપા'પો _ભ_ વતિ |  
-ધર્માર્થકામમોક્ષં' ચ _વિ_ ંદતિ |  
-ઇદમથર્વશીર્ષમશિષ્યાય' ન _દે_ યમ્ |  
-યો યદિ મો'હાદ્ _દા_ સ્યતિ સ પાપી'યાન્ _ભ_ વતિ |  
-સહસ્રાવર્તનાદ્યં યં કામ'મ _ધી_ તે |  
+સ બ્રહ્મભૂયા'ય _ક_ લ્પતે ｜  
+સ સર્વવિઘ્નૈ''ર્ન _બા_ ધ્યતે ｜  
+સ સર્વતઃ સુખ'મે _ધ_ તે ｜  
+સ પંચમહાપાપા''ત્ પ્ર _મુ_ ચ્યતે ｜  
+_સા_ યમ'ધી _યા_ _નો_ દિવસકૃતં પાપં' ના _શ_ યતિ ｜  
+_પ્રા_ તર'ધી _યા_ _નો_ રાત્રિકૃતં પાપં' ના _શ_ યતિ ｜  
+સાયં પ્રાતઃ પ્ર'યુ _ંજા_ _નો_ પાપોઽપા'પો _ભ_ વતિ ｜  
+ધર્માર્થકામમોક્ષં' ચ _વિ_ ંદતિ ｜  
+ઇદમથર્વશીર્ષમશિષ્યાય' ન _દે_ યમ્ ｜  
+યો યદિ મો'હાદ્ _દા_ સ્યતિ સ પાપી'યાન્ _ભ_ વતિ ｜  
+સહસ્રાવર્તનાદ્યં યં કામ'મ _ધી_ તે ｜  
 તં તમને'ન _સા_ ધયેત્ ‖ 11 ‖  
 
 અનેન ગણપતિમ'ભિ _ષિ_ ંચતિ ❘  
-સ વા'ગ્મી _ભ_ વતિ |  
-ચતુર્થ્યામન'શ્નન્ _જ_ પતિ સ વિદ્યા'વાન્ _ભ_ વતિ |  
-ઇત્યથર્વ'ણ _વા_ ક્યમ્ |  
+સ વા'ગ્મી _ભ_ વતિ ｜  
+ચતુર્થ્યામન'શ્નન્ _જ_ પતિ સ વિદ્યા'વાન્ _ભ_ વતિ ｜  
+ઇત્યથર્વ'ણ _વા_ ક્યમ્ ｜  
 બ્રહ્મા _દ્યા_ ચર'ણં _વિ_ દ્યાન્ન બિભેતિ કદા'ચ _ને_ તિ ‖ 12 ‖  
 
 યો દૂર્વાંકુ'રૈ _ર્ય_ જતિ સ વૈશ્રવણોપ'મો _ભ_ વતિ ❘  
-યો લા'જૈ _ર્ય_ જતિ સ યશો'વાન્ _ભ_ વતિ |  
-સ મેધા'વાન્ _ભ_ વતિ |  
-યો મોદકસહસ્રે'ણ _ય_ જતિ સ વાંછિતફલમ'વા _પ્નો_ તિ |  
+યો લા'જૈ _ર્ય_ જતિ સ યશો'વાન્ _ભ_ વતિ ｜  
+સ મેધા'વાન્ _ભ_ વતિ ｜  
+યો મોદકસહસ્રે'ણ _ય_ જતિ સ વાંછિતફલમ'વા _પ્નો_ તિ ｜  
 યઃ સાજ્ય સમિ'દ્ભિ _ર્ય_ જતિ સ સર્વં લભતે સ સ'ર્વં _લ_ ભતે ‖ 13 ‖  
 
 અષ્ટૌ બ્રાહ્મણાન્ સમ્યગ્ ગ્રા'હ _યિ_ ત્વા સૂર્યવર્ચ'સ્વી _ભ_ વતિ ❘  
-સૂર્યગ્રહે મ'હા _ન_ દ્યાં પ્રતિમાસન્નિધૌ વા _જ_ પ્ત્વા સિદ્ધમ'ંત્રો _ભ_ વતિ |  
-મહાવિઘ્ના''ત્ પ્ર _મુ_ ચ્યતે |  
-મહાદોષા''ત્ પ્ર _મુ_ ચ્યતે |  
-મહાપાપા''ત્ પ્ર _મુ_ ચ્યતે |  
-મહાપ્રત્યવાયા''ત્ પ્ર _મુ_ ચ્યતે |  
-સ સર્વ'વિદ્ભવતિ સ સર્વ'વિ _દ્ભ_ વતિ |  
-ય એ'વં _વે_ દ |  
+સૂર્યગ્રહે મ'હા _ન_ દ્યાં પ્રતિમાસન્નિધૌ વા _જ_ પ્ત્વા સિદ્ધમ'ંત્રો _ભ_ વતિ ｜  
+મહાવિઘ્ના''ત્ પ્ર _મુ_ ચ્યતે ｜  
+મહાદોષા''ત્ પ્ર _મુ_ ચ્યતે ｜  
+મહાપાપા''ત્ પ્ર _મુ_ ચ્યતે ｜  
+મહાપ્રત્યવાયા''ત્ પ્ર _મુ_ ચ્યતે ｜  
+સ સર્વ'વિદ્ભવતિ સ સર્વ'વિ _દ્ભ_ વતિ ｜  
+ય એ'વં _વે_ દ ｜  
 ઇત્યુ' _પ_ નિષ'ત્ ‖ 14 ‖  
 
 ઓં _ભ_ દ્રં કર્ણે'ભિઃ શૃ _ણુ_ યામ' દેવાઃ ❘  
-_ભ_ દ્રં પ'શ્યે _મા_ ક્ષ _ભિ_ ર્યજ'ત્રાઃ |  
-_સ્થિ_ રૈરંગૈ''સ્તુ _ષ્ઠુ_ વાગ્^ં સ' _સ્ત_ નૂભિઃ' |  
-વ્યશે'મ _દે_ વહિ' _તં_ યદાયુઃ' |  
-_સ્વ_ સ્તિ _ન_ ઇંદ્રો' _વૃ_ દ્ધશ્ર'વાઃ |  
-_સ્વ_ સ્તિ નઃ' _પૂ_ ષા _વિ_ શ્વવે'દાઃ |  
-_સ્વ_ સ્તિ _ન_ સ્તા _ર્ક્ષ્યો_ અરિ'ષ્ટનેમિઃ |  
+_ભ_ દ્રં પ'શ્યે _મા_ ક્ષ _ભિ_ ર્યજ'ત્રાઃ ｜  
+_સ્થિ_ રૈરંગૈ''સ્તુ _ષ્ઠુ_ વાગ્^ં સ' _સ્ત_ નૂભિઃ' ｜  
+વ્યશે'મ _દે_ વહિ' _તં_ યદાયુઃ' ｜  
+_સ્વ_ સ્તિ _ન_ ઇંદ્રો' _વૃ_ દ્ધશ્ર'વાઃ ｜  
+_સ્વ_ સ્તિ નઃ' _પૂ_ ષા _વિ_ શ્વવે'દાઃ ｜  
+_સ્વ_ સ્તિ _ન_ સ્તા _ર્ક્ષ્યો_ અરિ'ષ્ટનેમિઃ ｜  
 _સ્વ_ સ્તિ _નો_ બૃ _હ_ સ્પતિ'ર્દધાતુ ‖  
 
 ઓં શા _ંતિઃ_ શા _ંતિઃ_ શાંતિઃ' ‖  
@@ -723,77 +723,77 @@ _સ્વ_ સ્તિ _નો_ બૃ _હ_ સ્પતિ'ર્દધા�
 ‖ गणपत्यथर्वशीर्षोपनिषत् (श्री गणेषाथर्वषीर्षम्) ‖  
 
 ॐ _भ_ द्रं कर्णे'भिः शृ _णु_ याम' देवाः ❘  
-_भ_ द्रं प'श्ये _मा_ क्ष _भि_ र्यज'त्राः |  
-_स्थि_ रैरंगै''स्तु _ष्ठु_ वाग्^ं स' _स्त_ नूभिः' |  
-व्यशे'म _दे_ वहि' _तं_ यदायुः' |  
-_स्व_ स्ति _न_ इंद्रो' _वृ_ द्धश्र'वाः |  
-_स्व_ स्ति नः' _पू_ षा _वि_ श्ववे'दाः |  
-_स्व_ स्ति _न_ स्ता _र्क्ष्यो_ अरि'ष्टनेमिः |  
+_भ_ द्रं प'श्ये _मा_ क्ष _भि_ र्यज'त्राः ｜  
+_स्थि_ रैरंगै''स्तु _ष्ठु_ वाग्^ं स' _स्त_ नूभिः' ｜  
+व्यशे'म _दे_ वहि' _तं_ यदायुः' ｜  
+_स्व_ स्ति _न_ इंद्रो' _वृ_ द्धश्र'वाः ｜  
+_स्व_ स्ति नः' _पू_ षा _वि_ श्ववे'दाः ｜  
+_स्व_ स्ति _न_ स्ता _र्क्ष्यो_ अरि'ष्टनेमिः ｜  
 _स्व_ स्ति _नो_ बृ _ह_ स्पति'र्दधातु ‖  
 
 ॐ शा _ंतिः_ शा _ंतिः_ शांतिः' ‖  
 
 ॐ नम'स्ते _ग_ णप'तये ❘  
-त्व _मे_ व _प्र_ त्य _क्षं_ तत्त्व'मसि |  
-त्व _मे_ व _के_ व _लं_ कर्ता'ऽसि |  
-त्व _मे_ व _के_ व _लं_ धर्ता'ऽसि |  
-त्व _मे_ व _के_ व _लं_ हर्ता'ऽसि |  
-त्वमेव सर्वं खल्विदं' ब्र _ह्मा_ सि |  
+त्व _मे_ व _प्र_ त्य _क्षं_ तत्त्व'मसि ｜  
+त्व _मे_ व _के_ व _लं_ कर्ता'ऽसि ｜  
+त्व _मे_ व _के_ व _लं_ धर्ता'ऽसि ｜  
+त्व _मे_ व _के_ व _लं_ हर्ता'ऽसि ｜  
+त्वमेव सर्वं खल्विदं' ब्र _ह्मा_ सि ｜  
 त्वं साक्षादात्मा'ऽसि _नि_ त्यम् ‖ 1 ‖  
 ऋ'तं _व_ च्मि ❘  
 स'त्यं _व_ च्मि ‖ 2 ‖ _  
 
 अ_ व _त्वं_ माम् ❘  
-अव' _व_ क्तारम्'' |  
-अव' _श्रो_ तारम्'' |  
-अव' _दा_ तारम्'' |  
-अव' _धा_ तारम्'' |  
-अवानूचानम'व _शि_ ष्यम् |  
-अव' _प_ श्चात्ता''त् |  
-अव' _पु_ रस्ता''त् |  
-अवो _त्त_ रात्ता''त् |  
-अव' _द_ क्षिणात्ता''त् |  
-अव' _चो_ र्ध्वात्ता''त् |  
-अवा _ध_ रात्ता''त् |  
+अव' _व_ क्तारम्'' ｜  
+अव' _श्रो_ तारम्'' ｜  
+अव' _दा_ तारम्'' ｜  
+अव' _धा_ तारम्'' ｜  
+अवानूचानम'व _शि_ ष्यम् ｜  
+अव' _प_ श्चात्ता''त् ｜  
+अव' _पु_ रस्ता''त् ｜  
+अवो _त्त_ रात्ता''त् ｜  
+अव' _द_ क्षिणात्ता''त् ｜  
+अव' _चो_ र्ध्वात्ता''त् ｜  
+अवा _ध_ रात्ता''त् ｜  
 सर्वतो मां पाहि पाहि' स _म_ ंतात् ‖ 3 ‖  
 
 त्वं वाङ्मय'स्त्वं चि _न्म_ यः ❘  
-त्वमानंदमय'स्त्वं ब्र _ह्म_ मयः |  
-त्वं सच्चिदानंदाऽद्वि'ती _यो_ ऽसि |  
-त्वं _प्र_ त्य _क्षं_ ब्रह्मा'सि |  
+त्वमानंदमय'स्त्वं ब्र _ह्म_ मयः ｜  
+त्वं सच्चिदानंदाऽद्वि'ती _यो_ ऽसि ｜  
+त्वं _प्र_ त्य _क्षं_ ब्रह्मा'सि ｜  
 त्वं ज्ञानमयो विज्ञान'म _यो_ ऽसि ‖ 4 ‖  
 
 सर्वं जगदिदं त्व'त्तो _जा_ यते ❘  
-सर्वं जगदिदं त्व'त्त _स्ति_ ष्ठति |  
-सर्वं जगदिदं त्वयि लय'मे _ष्य_ ति |  
-सर्वं जगदिदं त्वयि' प्र _त्ये_ ति |  
-त्वं भूमिरापोऽनलोऽनि'लो _न_ भः |  
+सर्वं जगदिदं त्व'त्त _स्ति_ ष्ठति ｜  
+सर्वं जगदिदं त्वयि लय'मे _ष्य_ ति ｜  
+सर्वं जगदिदं त्वयि' प्र _त्ये_ ति ｜  
+त्वं भूमिरापोऽनलोऽनि'लो _न_ भः ｜  
 त्वं चत्वारि वा''क्प _दा_ नि ‖ 5 ‖  
 
 त्वं _गु_ णत्र'या _ती_ तः ❘  
-त्वं अवस्थात्र'या _ती_ तः |  
-त्वं _दे_ हत्र'या _ती_ तः |  
-त्वं _का_ लत्र'या _ती_ तः |  
-त्वं मूलाधारस्थितो'ऽसि _नि_ त्यम् |  
-त्वं शक्तित्र'या _त्म_ कः |  
-त्वां योगिनो ध्याय'ंति _नि_ त्यम् |  
+त्वं अवस्थात्र'या _ती_ तः ｜  
+त्वं _दे_ हत्र'या _ती_ तः ｜  
+त्वं _का_ लत्र'या _ती_ तः ｜  
+त्वं मूलाधारस्थितो'ऽसि _नि_ त्यम् ｜  
+त्वं शक्तित्र'या _त्म_ कः ｜  
+त्वां योगिनो ध्याय'ंति _नि_ त्यम् ｜  
 त्वं ब्रह्मा त्वं विष्णुस्त्वं रुद्रस्त्वमिंद्रस्त्वमग्निस्त्वं वायुस्त्वं सूर्यस्त्वं चंद्रमास्त्वं ब्र _ह्म_ भूर्भु _वः_ स्वरोम् ‖ 6 _‖  
 
 ग_णादिं'' पूर्व'मु _च्चा_ _र्य_ _व_ र्णादीं'' स्तद _न_ ंतरम् ❘  
-अनुस्वारः प'र _त_ रः |  
-अर्धे''ंदु _ल_ सितम् |  
-तारे'ण _ऋ_ द्धम् |  
-ऎतत्तव मनु'स्व _रू_ पम् |  
-गकारः पू''र्व _रू_ पम् |  
-अकारो मध्य'म _रू_ पम् |  
-अनुस्वारश्चा''ंत्य _रू_ पम् |  
-बिंदुरुत्त'र _रू_ पम् |  
-नादः' स _ंधा_ नम् |  
-सगंहि'ता _स_ ंधिः |  
-सैषा गणे'श _वि_ द्या |  
-गण'क _ऋ_ षिः |  
-निचृद्गाय'त्री _च्छ_ ंदः |  
-श्री महागणपति'र्देवता |  
+अनुस्वारः प'र _त_ रः ｜  
+अर्धे''ंदु _ल_ सितम् ｜  
+तारे'ण _ऋ_ द्धम् ｜  
+ऎतत्तव मनु'स्व _रू_ पम् ｜  
+गकारः पू''र्व _रू_ पम् ｜  
+अकारो मध्य'म _रू_ पम् ｜  
+अनुस्वारश्चा''ंत्य _रू_ पम् ｜  
+बिंदुरुत्त'र _रू_ पम् ｜  
+नादः' स _ंधा_ नम् ｜  
+सगंहि'ता _स_ ंधिः ｜  
+सैषा गणे'श _वि_ द्या ｜  
+गण'क _ऋ_ षिः ｜  
+निचृद्गाय'त्री _च्छ_ ंदः ｜  
+श्री महागणपति'र्देवता ｜  
 ॐ गं _ग_ णप'तये नमः ‖ 7 ‖  
 
 एक _द_ ंताय' _वि_ द्महे' वक्र _तु_ ंडाय' धीमहि ❘  
@@ -801,59 +801,59 @@ _स्व_ स्ति _नो_ बृ _ह_ स्पति'र्दधा�
 तन्नो' दंतिः प्र _चो_ दया''त् ‖ 8 ‖  
 
 एकद _न्_ तं च'तु _र्ह_ _स्तं_ _पा_ शमं'कु _श_ धारि'णम् ❘  
-रदं' _च_ वर'दं _ह_ _स्तै_ _र्बि_ भ्राणं' मू _ष_ कध्व'जम् |  
-रक्तं' _ल_ ंबोद'रं _शू_ _र्प_ कर्णकं' र _क्त_ वास'सम् |  
-रक्त' _ग_ ंधानु'लि _प्ता_ _ंगं_ _र_ क्तपु'ष्पैः _सु_ पूजि'तम् |  
-भक्ता' _नु_ कंपि'नं _दे_ _वं_ _ज_ गत्का'र _ण_ मच्यु'तम् |  
-आवि' _र्भू_ तं च' _सृ_ _ष्ट्या_ _दौ_ _प्र_ कृते''ः पु _रु_ षात्प'रम् |  
+रदं' _च_ वर'दं _ह_ _स्तै_ _र्बि_ भ्राणं' मू _ष_ कध्व'जम् ｜  
+रक्तं' _ल_ ंबोद'रं _शू_ _र्प_ कर्णकं' र _क्त_ वास'सम् ｜  
+रक्त' _ग_ ंधानु'लि _प्ता_ _ंगं_ _र_ क्तपु'ष्पैः _सु_ पूजि'तम् ｜  
+भक्ता' _नु_ कंपि'नं _दे_ _वं_ _ज_ गत्का'र _ण_ मच्यु'तम् ｜  
+आवि' _र्भू_ तं च' _सृ_ _ष्ट्या_ _दौ_ _प्र_ कृते''ः पु _रु_ षात्प'रम् ｜  
 एवं' _ध्या_ यति' यो _नि_ _त्यं_ _स_ योगी' यो _गि_ नां व'रः ‖ 9 ‖  
 
 नमो व्रातपतये नमो गणपतये नमः प्रमथपतये नमस्तेऽस्तु लंबोदरायैकदंताय विघ्नविनाशिने शिवसुताय श्रीवरदमूर्त _ये_  
 नमः ‖ 10 ‖  
 
 एतदथर्वशीर्षं योऽ _धी_ ते ❘  
-स ब्रह्मभूया'य _क_ ल्पते |  
-स सर्वविघ्नै''र्न _बा_ ध्यते |  
-स सर्वतः सुख'मे _ध_ ते |  
-स पंचमहापापा''त् प्र _मु_ च्यते |  
-_सा_ यम'धी _या_ _नो_ दिवसकृतं पापं' ना _श_ यति |  
-_प्रा_ तर'धी _या_ _नो_ रात्रिकृतं पापं' ना _श_ यति |  
-सायं प्रातः प्र'यु _ंजा_ _नो_ पापोऽपा'पो _भ_ वति |  
-धर्मार्थकाममोक्षं' च _वि_ ंदति |  
-इदमथर्वशीर्षमशिष्याय' न _दे_ यम् |  
-यो यदि मो'हाद् _दा_ स्यति स पापी'यान् _भ_ वति |  
-सहस्रावर्तनाद्यं यं काम'म _धी_ ते |  
+स ब्रह्मभूया'य _क_ ल्पते ｜  
+स सर्वविघ्नै''र्न _बा_ ध्यते ｜  
+स सर्वतः सुख'मे _ध_ ते ｜  
+स पंचमहापापा''त् प्र _मु_ च्यते ｜  
+_सा_ यम'धी _या_ _नो_ दिवसकृतं पापं' ना _श_ यति ｜  
+_प्रा_ तर'धी _या_ _नो_ रात्रिकृतं पापं' ना _श_ यति ｜  
+सायं प्रातः प्र'यु _ंजा_ _नो_ पापोऽपा'पो _भ_ वति ｜  
+धर्मार्थकाममोक्षं' च _वि_ ंदति ｜  
+इदमथर्वशीर्षमशिष्याय' न _दे_ यम् ｜  
+यो यदि मो'हाद् _दा_ स्यति स पापी'यान् _भ_ वति ｜  
+सहस्रावर्तनाद्यं यं काम'म _धी_ ते ｜  
 तं तमने'न _सा_ धयेत् ‖ 11 ‖  
 
 अनेन गणपतिम'भि _षि_ ंचति ❘  
-स वा'ग्मी _भ_ वति |  
-चतुर्थ्यामन'श्नन् _ज_ पति स विद्या'वान् _भ_ वति |  
-इत्यथर्व'ण _वा_ क्यम् |  
+स वा'ग्मी _भ_ वति ｜  
+चतुर्थ्यामन'श्नन् _ज_ पति स विद्या'वान् _भ_ वति ｜  
+इत्यथर्व'ण _वा_ क्यम् ｜  
 ब्रह्मा _द्या_ चर'णं _वि_ द्यान्न बिभेति कदा'च _ने_ ति ‖ 12 ‖  
 
 यो दूर्वांकु'रै _र्य_ जति स वैश्रवणोप'मो _भ_ वति ❘  
-यो ला'जै _र्य_ जति स यशो'वान् _भ_ वति |  
-स मेधा'वान् _भ_ वति |  
-यो मोदकसहस्रे'ण _य_ जति स वांछितफलम'वा _प्नो_ ति |  
+यो ला'जै _र्य_ जति स यशो'वान् _भ_ वति ｜  
+स मेधा'वान् _भ_ वति ｜  
+यो मोदकसहस्रे'ण _य_ जति स वांछितफलम'वा _प्नो_ ति ｜  
 यः साज्य समि'द्भि _र्य_ जति स सर्वं लभते स स'र्वं _ल_ भते ‖ 13 ‖  
 
 अष्टौ ब्राह्मणान् सम्यग् ग्रा'ह _यि_ त्वा सूर्यवर्च'स्वी _भ_ वति ❘  
-सूर्यग्रहे म'हा _न_ द्यां प्रतिमासन्निधौ वा _ज_ प्त्वा सिद्धम'ंत्रो _भ_ वति |  
-महाविघ्ना''त् प्र _मु_ च्यते |  
-महादोषा''त् प्र _मु_ च्यते |  
-महापापा''त् प्र _मु_ च्यते |  
-महाप्रत्यवाया''त् प्र _मु_ च्यते |  
-स सर्व'विद्भवति स सर्व'वि _द्भ_ वति |  
-य ए'वं _वे_ द |  
+सूर्यग्रहे म'हा _न_ द्यां प्रतिमासन्निधौ वा _ज_ प्त्वा सिद्धम'ंत्रो _भ_ वति ｜  
+महाविघ्ना''त् प्र _मु_ च्यते ｜  
+महादोषा''त् प्र _मु_ च्यते ｜  
+महापापा''त् प्र _मु_ च्यते ｜  
+महाप्रत्यवाया''त् प्र _मु_ च्यते ｜  
+स सर्व'विद्भवति स सर्व'वि _द्भ_ वति ｜  
+य ए'वं _वे_ द ｜  
 इत्यु' _प_ निष'त् ‖ 14 ‖  
 
 ॐ _भ_ द्रं कर्णे'भिः शृ _णु_ याम' देवाः ❘  
-_भ_ द्रं प'श्ये _मा_ क्ष _भि_ र्यज'त्राः |  
-_स्थि_ रैरंगै''स्तु _ष्ठु_ वाग्^ं स' _स्त_ नूभिः' |  
-व्यशे'म _दे_ वहि' _तं_ यदायुः' |  
-_स्व_ स्ति _न_ इंद्रो' _वृ_ द्धश्र'वाः |  
-_स्व_ स्ति नः' _पू_ षा _वि_ श्ववे'दाः |  
-_स्व_ स्ति _न_ स्ता _र्क्ष्यो_ अरि'ष्टनेमिः |  
+_भ_ द्रं प'श्ये _मा_ क्ष _भि_ र्यज'त्राः ｜  
+_स्थि_ रैरंगै''स्तु _ष्ठु_ वाग्^ं स' _स्त_ नूभिः' ｜  
+व्यशे'म _दे_ वहि' _तं_ यदायुः' ｜  
+_स्व_ स्ति _न_ इंद्रो' _वृ_ द्धश्र'वाः ｜  
+_स्व_ स्ति नः' _पू_ षा _वि_ श्ववे'दाः ｜  
+_स्व_ स्ति _न_ स्ता _र्क्ष्यो_ अरि'ष्टनेमिः ｜  
 _स्व_ स्ति _नो_ बृ _ह_ स्पति'र्दधातु ‖  
 
 ॐ शा _ंतिः_ शा _ंतिः_ शांतिः' ‖  
@@ -866,77 +866,77 @@ _स्व_ स्ति _नो_ बृ _ह_ स्पति'र्दधा�
 ‖ ಗಣಪತ್ಯಥರ್ವಶೀರ್ಷೋಪನಿಷತ್ (ಶ್ರೀ ಗಣೇಷಾಥರ್ವಷೀರ್ಷಮ್) ‖  
 
 ಓಂ _ಭ_ ದ್ರಂ ಕರ್ಣೇ'ಭಿಃ ಶೃ _ಣು_ ಯಾಮ' ದೇವಾಃ ❘  
-_ಭ_ ದ್ರಂ ಪ'ಶ್ಯೇ _ಮಾ_ ಕ್ಷ _ಭಿ_ ರ್ಯಜ'ತ್ರಾಃ |  
-_ಸ್ಥಿ_ ರೈರಂಗೈ''ಸ್ತು _ಷ್ಠು_ ವಾಗ್^ಂ ಸ' _ಸ್ತ_ ನೂಭಿಃ' |  
-ವ್ಯಶೇ'ಮ _ದೇ_ ವಹಿ' _ತಂ_ ಯದಾಯುಃ' |  
-_ಸ್ವ_ ಸ್ತಿ _ನ_ ಇಂದ್ರೋ' _ವೃ_ ದ್ಧಶ್ರ'ವಾಃ |  
-_ಸ್ವ_ ಸ್ತಿ ನಃ' _ಪೂ_ ಷಾ _ವಿ_ ಶ್ವವೇ'ದಾಃ |  
-_ಸ್ವ_ ಸ್ತಿ _ನ_ ಸ್ತಾ _ರ್ಕ್ಷ್ಯೋ_ ಅರಿ'ಷ್ಟನೇಮಿಃ |  
+_ಭ_ ದ್ರಂ ಪ'ಶ್ಯೇ _ಮಾ_ ಕ್ಷ _ಭಿ_ ರ್ಯಜ'ತ್ರಾಃ ｜  
+_ಸ್ಥಿ_ ರೈರಂಗೈ''ಸ್ತು _ಷ್ಠು_ ವಾಗ್^ಂ ಸ' _ಸ್ತ_ ನೂಭಿಃ' ｜  
+ವ್ಯಶೇ'ಮ _ದೇ_ ವಹಿ' _ತಂ_ ಯದಾಯುಃ' ｜  
+_ಸ್ವ_ ಸ್ತಿ _ನ_ ಇಂದ್ರೋ' _ವೃ_ ದ್ಧಶ್ರ'ವಾಃ ｜  
+_ಸ್ವ_ ಸ್ತಿ ನಃ' _ಪೂ_ ಷಾ _ವಿ_ ಶ್ವವೇ'ದಾಃ ｜  
+_ಸ್ವ_ ಸ್ತಿ _ನ_ ಸ್ತಾ _ರ್ಕ್ಷ್ಯೋ_ ಅರಿ'ಷ್ಟನೇಮಿಃ ｜  
 _ಸ್ವ_ ಸ್ತಿ _ನೋ_ ಬೃ _ಹ_ ಸ್ಪತಿ'ರ್ದಧಾತು ‖  
 
 ಓಂ ಶಾ _ಂತಿಃ_ ಶಾ _ಂತಿಃ_ ಶಾಂತಿಃ' ‖  
 
 ಓಂ ನಮ'ಸ್ತೇ _ಗ_ ಣಪ'ತಯೇ ❘  
-ತ್ವ _ಮೇ_ ವ _ಪ್ರ_ ತ್ಯ _ಕ್ಷಂ_ ತತ್ತ್ವ'ಮಸಿ |  
-ತ್ವ _ಮೇ_ ವ _ಕೇ_ ವ _ಲಂ_ ಕರ್ತಾ'ಽಸಿ |  
-ತ್ವ _ಮೇ_ ವ _ಕೇ_ ವ _ಲಂ_ ಧರ್ತಾ'ಽಸಿ |  
-ತ್ವ _ಮೇ_ ವ _ಕೇ_ ವ _ಲಂ_ ಹರ್ತಾ'ಽಸಿ |  
-ತ್ವಮೇವ ಸರ್ವಂ ಖಲ್ವಿದಂ' ಬ್ರ _ಹ್ಮಾ_ ಸಿ |  
+ತ್ವ _ಮೇ_ ವ _ಪ್ರ_ ತ್ಯ _ಕ್ಷಂ_ ತತ್ತ್ವ'ಮಸಿ ｜  
+ತ್ವ _ಮೇ_ ವ _ಕೇ_ ವ _ಲಂ_ ಕರ್ತಾ'ಽಸಿ ｜  
+ತ್ವ _ಮೇ_ ವ _ಕೇ_ ವ _ಲಂ_ ಧರ್ತಾ'ಽಸಿ ｜  
+ತ್ವ _ಮೇ_ ವ _ಕೇ_ ವ _ಲಂ_ ಹರ್ತಾ'ಽಸಿ ｜  
+ತ್ವಮೇವ ಸರ್ವಂ ಖಲ್ವಿದಂ' ಬ್ರ _ಹ್ಮಾ_ ಸಿ ｜  
 ತ್ವಂ ಸಾಕ್ಷಾದಾತ್ಮಾ'ಽಸಿ _ನಿ_ ತ್ಯಮ್ ‖ 1 ‖  
 ಋ'ತಂ _ವ_ ಚ್ಮಿ ❘  
 ಸ'ತ್ಯಂ _ವ_ ಚ್ಮಿ ‖ 2 ‖ _  
 
 ಅ_ ವ _ತ್ವಂ_ ಮಾಮ್ ❘  
-ಅವ' _ವ_ ಕ್ತಾರಮ್'' |  
-ಅವ' _ಶ್ರೋ_ ತಾರಮ್'' |  
-ಅವ' _ದಾ_ ತಾರಮ್'' |  
-ಅವ' _ಧಾ_ ತಾರಮ್'' |  
-ಅವಾನೂಚಾನಮ'ವ _ಶಿ_ ಷ್ಯಮ್ |  
-ಅವ' _ಪ_ ಶ್ಚಾತ್ತಾ''ತ್ |  
-ಅವ' _ಪು_ ರಸ್ತಾ''ತ್ |  
-ಅವೋ _ತ್ತ_ ರಾತ್ತಾ''ತ್ |  
-ಅವ' _ದ_ ಕ್ಷಿಣಾತ್ತಾ''ತ್ |  
-ಅವ' _ಚೋ_ ರ್ಧ್ವಾತ್ತಾ''ತ್ |  
-ಅವಾ _ಧ_ ರಾತ್ತಾ''ತ್ |  
+ಅವ' _ವ_ ಕ್ತಾರಮ್'' ｜  
+ಅವ' _ಶ್ರೋ_ ತಾರಮ್'' ｜  
+ಅವ' _ದಾ_ ತಾರಮ್'' ｜  
+ಅವ' _ಧಾ_ ತಾರಮ್'' ｜  
+ಅವಾನೂಚಾನಮ'ವ _ಶಿ_ ಷ್ಯಮ್ ｜  
+ಅವ' _ಪ_ ಶ್ಚಾತ್ತಾ''ತ್ ｜  
+ಅವ' _ಪು_ ರಸ್ತಾ''ತ್ ｜  
+ಅವೋ _ತ್ತ_ ರಾತ್ತಾ''ತ್ ｜  
+ಅವ' _ದ_ ಕ್ಷಿಣಾತ್ತಾ''ತ್ ｜  
+ಅವ' _ಚೋ_ ರ್ಧ್ವಾತ್ತಾ''ತ್ ｜  
+ಅವಾ _ಧ_ ರಾತ್ತಾ''ತ್ ｜  
 ಸರ್ವತೋ ಮಾಂ ಪಾಹಿ ಪಾಹಿ' ಸ _ಮ_ ಂತಾತ್ ‖ 3 ‖  
 
 ತ್ವಂ ವಾಙ್ಮಯ'ಸ್ತ್ವಂ ಚಿ _ನ್ಮ_ ಯಃ ❘  
-ತ್ವಮಾನಂದಮಯ'ಸ್ತ್ವಂ ಬ್ರ _ಹ್ಮ_ ಮಯಃ |  
-ತ್ವಂ ಸಚ್ಚಿದಾನಂದಾಽದ್ವಿ'ತೀ _ಯೋ_ ಽಸಿ |  
-ತ್ವಂ _ಪ್ರ_ ತ್ಯ _ಕ್ಷಂ_ ಬ್ರಹ್ಮಾ'ಸಿ |  
+ತ್ವಮಾನಂದಮಯ'ಸ್ತ್ವಂ ಬ್ರ _ಹ್ಮ_ ಮಯಃ ｜  
+ತ್ವಂ ಸಚ್ಚಿದಾನಂದಾಽದ್ವಿ'ತೀ _ಯೋ_ ಽಸಿ ｜  
+ತ್ವಂ _ಪ್ರ_ ತ್ಯ _ಕ್ಷಂ_ ಬ್ರಹ್ಮಾ'ಸಿ ｜  
 ತ್ವಂ ಜ್ಞಾನಮಯೋ ವಿಜ್ಞಾನ'ಮ _ಯೋ_ ಽಸಿ ‖ 4 ‖  
 
 ಸರ್ವಂ ಜಗದಿದಂ ತ್ವ'ತ್ತೋ _ಜಾ_ ಯತೇ ❘  
-ಸರ್ವಂ ಜಗದಿದಂ ತ್ವ'ತ್ತ _ಸ್ತಿ_ ಷ್ಠತಿ |  
-ಸರ್ವಂ ಜಗದಿದಂ ತ್ವಯಿ ಲಯ'ಮೇ _ಷ್ಯ_ ತಿ |  
-ಸರ್ವಂ ಜಗದಿದಂ ತ್ವಯಿ' ಪ್ರ _ತ್ಯೇ_ ತಿ |  
-ತ್ವಂ ಭೂಮಿರಾಪೋಽನಲೋಽನಿ'ಲೋ _ನ_ ಭಃ |  
+ಸರ್ವಂ ಜಗದಿದಂ ತ್ವ'ತ್ತ _ಸ್ತಿ_ ಷ್ಠತಿ ｜  
+ಸರ್ವಂ ಜಗದಿದಂ ತ್ವಯಿ ಲಯ'ಮೇ _ಷ್ಯ_ ತಿ ｜  
+ಸರ್ವಂ ಜಗದಿದಂ ತ್ವಯಿ' ಪ್ರ _ತ್ಯೇ_ ತಿ ｜  
+ತ್ವಂ ಭೂಮಿರಾಪೋಽನಲೋಽನಿ'ಲೋ _ನ_ ಭಃ ｜  
 ತ್ವಂ ಚತ್ವಾರಿ ವಾ''ಕ್ಪ _ದಾ_ ನಿ ‖ 5 ‖  
 
 ತ್ವಂ _ಗು_ ಣತ್ರ'ಯಾ _ತೀ_ ತಃ ❘  
-ತ್ವಂ ಅವಸ್ಥಾತ್ರ'ಯಾ _ತೀ_ ತಃ |  
-ತ್ವಂ _ದೇ_ ಹತ್ರ'ಯಾ _ತೀ_ ತಃ |  
-ತ್ವಂ _ಕಾ_ ಲತ್ರ'ಯಾ _ತೀ_ ತಃ |  
-ತ್ವಂ ಮೂಲಾಧಾರಸ್ಥಿತೋ'ಽಸಿ _ನಿ_ ತ್ಯಮ್ |  
-ತ್ವಂ ಶಕ್ತಿತ್ರ'ಯಾ _ತ್ಮ_ ಕಃ |  
-ತ್ವಾಂ ಯೋಗಿನೋ ಧ್ಯಾಯ'ಂತಿ _ನಿ_ ತ್ಯಮ್ |  
+ತ್ವಂ ಅವಸ್ಥಾತ್ರ'ಯಾ _ತೀ_ ತಃ ｜  
+ತ್ವಂ _ದೇ_ ಹತ್ರ'ಯಾ _ತೀ_ ತಃ ｜  
+ತ್ವಂ _ಕಾ_ ಲತ್ರ'ಯಾ _ತೀ_ ತಃ ｜  
+ತ್ವಂ ಮೂಲಾಧಾರಸ್ಥಿತೋ'ಽಸಿ _ನಿ_ ತ್ಯಮ್ ｜  
+ತ್ವಂ ಶಕ್ತಿತ್ರ'ಯಾ _ತ್ಮ_ ಕಃ ｜  
+ತ್ವಾಂ ಯೋಗಿನೋ ಧ್ಯಾಯ'ಂತಿ _ನಿ_ ತ್ಯಮ್ ｜  
 ತ್ವಂ ಬ್ರಹ್ಮಾ ತ್ವಂ ವಿಷ್ಣುಸ್ತ್ವಂ ರುದ್ರಸ್ತ್ವಮಿಂದ್ರಸ್ತ್ವಮಗ್ನಿಸ್ತ್ವಂ ವಾಯುಸ್ತ್ವಂ ಸೂರ್ಯಸ್ತ್ವಂ ಚಂದ್ರಮಾಸ್ತ್ವಂ ಬ್ರ _ಹ್ಮ_ ಭೂರ್ಭು _ವಃ_ ಸ್ವರೋಮ್ ‖ 6 _‖  
 
 ಗ_ಣಾದಿಂ'' ಪೂರ್ವ'ಮು _ಚ್ಚಾ_ _ರ್ಯ_ _ವ_ ರ್ಣಾದೀಂ'' ಸ್ತದ _ನ_ ಂತರಮ್ ❘  
-ಅನುಸ್ವಾರಃ ಪ'ರ _ತ_ ರಃ |  
-ಅರ್ಧೇ''ಂದು _ಲ_ ಸಿತಮ್ |  
-ತಾರೇ'ಣ _ಋ_ ದ್ಧಮ್ |  
-ಎತತ್ತವ ಮನು'ಸ್ವ _ರೂ_ ಪಮ್ |  
-ಗಕಾರಃ ಪೂ''ರ್ವ _ರೂ_ ಪಮ್ |  
-ಅಕಾರೋ ಮಧ್ಯ'ಮ _ರೂ_ ಪಮ್ |  
-ಅನುಸ್ವಾರಶ್ಚಾ''ಂತ್ಯ _ರೂ_ ಪಮ್ |  
-ಬಿಂದುರುತ್ತ'ರ _ರೂ_ ಪಮ್ |  
-ನಾದಃ' ಸ _ಂಧಾ_ ನಮ್ |  
-ಸಗಂಹಿ'ತಾ _ಸ_ ಂಧಿಃ |  
-ಸೈಷಾ ಗಣೇ'ಶ _ವಿ_ ದ್ಯಾ |  
-ಗಣ'ಕ _ಋ_ ಷಿಃ |  
-ನಿಚೃದ್ಗಾಯ'ತ್ರೀ _ಚ್ಛ_ ಂದಃ |  
-ಶ್ರೀ ಮಹಾಗಣಪತಿ'ರ್ದೇವತಾ |  
+ಅನುಸ್ವಾರಃ ಪ'ರ _ತ_ ರಃ ｜  
+ಅರ್ಧೇ''ಂದು _ಲ_ ಸಿತಮ್ ｜  
+ತಾರೇ'ಣ _ಋ_ ದ್ಧಮ್ ｜  
+ಎತತ್ತವ ಮನು'ಸ್ವ _ರೂ_ ಪಮ್ ｜  
+ಗಕಾರಃ ಪೂ''ರ್ವ _ರೂ_ ಪಮ್ ｜  
+ಅಕಾರೋ ಮಧ್ಯ'ಮ _ರೂ_ ಪಮ್ ｜  
+ಅನುಸ್ವಾರಶ್ಚಾ''ಂತ್ಯ _ರೂ_ ಪಮ್ ｜  
+ಬಿಂದುರುತ್ತ'ರ _ರೂ_ ಪಮ್ ｜  
+ನಾದಃ' ಸ _ಂಧಾ_ ನಮ್ ｜  
+ಸಗಂಹಿ'ತಾ _ಸ_ ಂಧಿಃ ｜  
+ಸೈಷಾ ಗಣೇ'ಶ _ವಿ_ ದ್ಯಾ ｜  
+ಗಣ'ಕ _ಋ_ ಷಿಃ ｜  
+ನಿಚೃದ್ಗಾಯ'ತ್ರೀ _ಚ್ಛ_ ಂದಃ ｜  
+ಶ್ರೀ ಮಹಾಗಣಪತಿ'ರ್ದೇವತಾ ｜  
 ಓಂ ಗಂ _ಗ_ ಣಪ'ತಯೇ ನಮಃ ‖ 7 ‖  
 
 ಏಕ _ದ_ ಂತಾಯ' _ವಿ_ ದ್ಮಹೇ' ವಕ್ರ _ತು_ ಂಡಾಯ' ಧೀಮಹಿ ❘  
@@ -944,59 +944,59 @@ _ಸ್ವ_ ಸ್ತಿ _ನೋ_ ಬೃ _ಹ_ ಸ್ಪತಿ'ರ್ದಧಾ�
 ತನ್ನೋ' ದಂತಿಃ ಪ್ರ _ಚೋ_ ದಯಾ''ತ್ ‖ 8 ‖  
 
 ಏಕದ _ನ್_ ತಂ ಚ'ತು _ರ್ಹ_ _ಸ್ತಂ_ _ಪಾ_ ಶಮಂ'ಕು _ಶ_ ಧಾರಿ'ಣಮ್ ❘  
-ರದಂ' _ಚ_ ವರ'ದಂ _ಹ_ _ಸ್ತೈ_ _ರ್ಬಿ_ ಭ್ರಾಣಂ' ಮೂ _ಷ_ ಕಧ್ವ'ಜಮ್ |  
-ರಕ್ತಂ' _ಲ_ ಂಬೋದ'ರಂ _ಶೂ_ _ರ್ಪ_ ಕರ್ಣಕಂ' ರ _ಕ್ತ_ ವಾಸ'ಸಮ್ |  
-ರಕ್ತ' _ಗ_ ಂಧಾನು'ಲಿ _ಪ್ತಾ_ _ಂಗಂ_ _ರ_ ಕ್ತಪು'ಷ್ಪೈಃ _ಸು_ ಪೂಜಿ'ತಮ್ |  
-ಭಕ್ತಾ' _ನು_ ಕಂಪಿ'ನಂ _ದೇ_ _ವಂ_ _ಜ_ ಗತ್ಕಾ'ರ _ಣ_ ಮಚ್ಯು'ತಮ್ |  
-ಆವಿ' _ರ್ಭೂ_ ತಂ ಚ' _ಸೃ_ _ಷ್ಟ್ಯಾ_ _ದೌ_ _ಪ್ರ_ ಕೃತೇ''ಃ ಪು _ರು_ ಷಾತ್ಪ'ರಮ್ |  
+ರದಂ' _ಚ_ ವರ'ದಂ _ಹ_ _ಸ್ತೈ_ _ರ್ಬಿ_ ಭ್ರಾಣಂ' ಮೂ _ಷ_ ಕಧ್ವ'ಜಮ್ ｜  
+ರಕ್ತಂ' _ಲ_ ಂಬೋದ'ರಂ _ಶೂ_ _ರ್ಪ_ ಕರ್ಣಕಂ' ರ _ಕ್ತ_ ವಾಸ'ಸಮ್ ｜  
+ರಕ್ತ' _ಗ_ ಂಧಾನು'ಲಿ _ಪ್ತಾ_ _ಂಗಂ_ _ರ_ ಕ್ತಪು'ಷ್ಪೈಃ _ಸು_ ಪೂಜಿ'ತಮ್ ｜  
+ಭಕ್ತಾ' _ನು_ ಕಂಪಿ'ನಂ _ದೇ_ _ವಂ_ _ಜ_ ಗತ್ಕಾ'ರ _ಣ_ ಮಚ್ಯು'ತಮ್ ｜  
+ಆವಿ' _ರ್ಭೂ_ ತಂ ಚ' _ಸೃ_ _ಷ್ಟ್ಯಾ_ _ದೌ_ _ಪ್ರ_ ಕೃತೇ''ಃ ಪು _ರು_ ಷಾತ್ಪ'ರಮ್ ｜  
 ಏವಂ' _ಧ್ಯಾ_ ಯತಿ' ಯೋ _ನಿ_ _ತ್ಯಂ_ _ಸ_ ಯೋಗೀ' ಯೋ _ಗಿ_ ನಾಂ ವ'ರಃ ‖ 9 ‖  
 
 ನಮೋ ವ್ರಾತಪತಯೇ ನಮೋ ಗಣಪತಯೇ ನಮಃ ಪ್ರಮಥಪತಯೇ ನಮಸ್ತೇಽಸ್ತು ಲಂಬೋದರಾಯೈಕದಂತಾಯ ವಿಘ್ನವಿನಾಶಿನೇ ಶಿವಸುತಾಯ ಶ್ರೀವರದಮೂರ್ತ _ಯೇ_  
 ನಮಃ ‖ 10 ‖  
 
 ಏತದಥರ್ವಶೀರ್ಷಂ ಯೋಽ _ಧೀ_ ತೇ ❘  
-ಸ ಬ್ರಹ್ಮಭೂಯಾ'ಯ _ಕ_ ಲ್ಪತೇ |  
-ಸ ಸರ್ವವಿಘ್ನೈ''ರ್ನ _ಬಾ_ ಧ್ಯತೇ |  
-ಸ ಸರ್ವತಃ ಸುಖ'ಮೇ _ಧ_ ತೇ |  
-ಸ ಪಂಚಮಹಾಪಾಪಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ |  
-_ಸಾ_ ಯಮ'ಧೀ _ಯಾ_ _ನೋ_ ದಿವಸಕೃತಂ ಪಾಪಂ' ನಾ _ಶ_ ಯತಿ |  
-_ಪ್ರಾ_ ತರ'ಧೀ _ಯಾ_ _ನೋ_ ರಾತ್ರಿಕೃತಂ ಪಾಪಂ' ನಾ _ಶ_ ಯತಿ |  
-ಸಾಯಂ ಪ್ರಾತಃ ಪ್ರ'ಯು _ಂಜಾ_ _ನೋ_ ಪಾಪೋಽಪಾ'ಪೋ _ಭ_ ವತಿ |  
-ಧರ್ಮಾರ್ಥಕಾಮಮೋಕ್ಷಂ' ಚ _ವಿ_ ಂದತಿ |  
-ಇದಮಥರ್ವಶೀರ್ಷಮಶಿಷ್ಯಾಯ' ನ _ದೇ_ ಯಮ್ |  
-ಯೋ ಯದಿ ಮೋ'ಹಾದ್ _ದಾ_ ಸ್ಯತಿ ಸ ಪಾಪೀ'ಯಾನ್ _ಭ_ ವತಿ |  
-ಸಹಸ್ರಾವರ್ತನಾದ್ಯಂ ಯಂ ಕಾಮ'ಮ _ಧೀ_ ತೇ |  
+ಸ ಬ್ರಹ್ಮಭೂಯಾ'ಯ _ಕ_ ಲ್ಪತೇ ｜  
+ಸ ಸರ್ವವಿಘ್ನೈ''ರ್ನ _ಬಾ_ ಧ್ಯತೇ ｜  
+ಸ ಸರ್ವತಃ ಸುಖ'ಮೇ _ಧ_ ತೇ ｜  
+ಸ ಪಂಚಮಹಾಪಾಪಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ ｜  
+_ಸಾ_ ಯಮ'ಧೀ _ಯಾ_ _ನೋ_ ದಿವಸಕೃತಂ ಪಾಪಂ' ನಾ _ಶ_ ಯತಿ ｜  
+_ಪ್ರಾ_ ತರ'ಧೀ _ಯಾ_ _ನೋ_ ರಾತ್ರಿಕೃತಂ ಪಾಪಂ' ನಾ _ಶ_ ಯತಿ ｜  
+ಸಾಯಂ ಪ್ರಾತಃ ಪ್ರ'ಯು _ಂಜಾ_ _ನೋ_ ಪಾಪೋಽಪಾ'ಪೋ _ಭ_ ವತಿ ｜  
+ಧರ್ಮಾರ್ಥಕಾಮಮೋಕ್ಷಂ' ಚ _ವಿ_ ಂದತಿ ｜  
+ಇದಮಥರ್ವಶೀರ್ಷಮಶಿಷ್ಯಾಯ' ನ _ದೇ_ ಯಮ್ ｜  
+ಯೋ ಯದಿ ಮೋ'ಹಾದ್ _ದಾ_ ಸ್ಯತಿ ಸ ಪಾಪೀ'ಯಾನ್ _ಭ_ ವತಿ ｜  
+ಸಹಸ್ರಾವರ್ತನಾದ್ಯಂ ಯಂ ಕಾಮ'ಮ _ಧೀ_ ತೇ ｜  
 ತಂ ತಮನೇ'ನ _ಸಾ_ ಧಯೇತ್ ‖ 11 ‖  
 
 ಅನೇನ ಗಣಪತಿಮ'ಭಿ _ಷಿ_ ಂಚತಿ ❘  
-ಸ ವಾ'ಗ್ಮೀ _ಭ_ ವತಿ |  
-ಚತುರ್ಥ್ಯಾಮನ'ಶ್ನನ್ _ಜ_ ಪತಿ ಸ ವಿದ್ಯಾ'ವಾನ್ _ಭ_ ವತಿ |  
-ಇತ್ಯಥರ್ವ'ಣ _ವಾ_ ಕ್ಯಮ್ |  
+ಸ ವಾ'ಗ್ಮೀ _ಭ_ ವತಿ ｜  
+ಚತುರ್ಥ್ಯಾಮನ'ಶ್ನನ್ _ಜ_ ಪತಿ ಸ ವಿದ್ಯಾ'ವಾನ್ _ಭ_ ವತಿ ｜  
+ಇತ್ಯಥರ್ವ'ಣ _ವಾ_ ಕ್ಯಮ್ ｜  
 ಬ್ರಹ್ಮಾ _ದ್ಯಾ_ ಚರ'ಣಂ _ವಿ_ ದ್ಯಾನ್ನ ಬಿಭೇತಿ ಕದಾ'ಚ _ನೇ_ ತಿ ‖ 12 ‖  
 
 ಯೋ ದೂರ್ವಾಂಕು'ರೈ _ರ್ಯ_ ಜತಿ ಸ ವೈಶ್ರವಣೋಪ'ಮೋ _ಭ_ ವತಿ ❘  
-ಯೋ ಲಾ'ಜೈ _ರ್ಯ_ ಜತಿ ಸ ಯಶೋ'ವಾನ್ _ಭ_ ವತಿ |  
-ಸ ಮೇಧಾ'ವಾನ್ _ಭ_ ವತಿ |  
-ಯೋ ಮೋದಕಸಹಸ್ರೇ'ಣ _ಯ_ ಜತಿ ಸ ವಾಂಛಿತಫಲಮ'ವಾ _ಪ್ನೋ_ ತಿ |  
+ಯೋ ಲಾ'ಜೈ _ರ್ಯ_ ಜತಿ ಸ ಯಶೋ'ವಾನ್ _ಭ_ ವತಿ ｜  
+ಸ ಮೇಧಾ'ವಾನ್ _ಭ_ ವತಿ ｜  
+ಯೋ ಮೋದಕಸಹಸ್ರೇ'ಣ _ಯ_ ಜತಿ ಸ ವಾಂಛಿತಫಲಮ'ವಾ _ಪ್ನೋ_ ತಿ ｜  
 ಯಃ ಸಾಜ್ಯ ಸಮಿ'ದ್ಭಿ _ರ್ಯ_ ಜತಿ ಸ ಸರ್ವಂ ಲಭತೇ ಸ ಸ'ರ್ವಂ _ಲ_ ಭತೇ ‖ 13 ‖  
 
 ಅಷ್ಟೌ ಬ್ರಾಹ್ಮಣಾನ್ ಸಮ್ಯಗ್ ಗ್ರಾ'ಹ _ಯಿ_ ತ್ವಾ ಸೂರ್ಯವರ್ಚ'ಸ್ವೀ _ಭ_ ವತಿ ❘  
-ಸೂರ್ಯಗ್ರಹೇ ಮ'ಹಾ _ನ_ ದ್ಯಾಂ ಪ್ರತಿಮಾಸನ್ನಿಧೌ ವಾ _ಜ_ ಪ್ತ್ವಾ ಸಿದ್ಧಮ'ಂತ್ರೋ _ಭ_ ವತಿ |  
-ಮಹಾವಿಘ್ನಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ |  
-ಮಹಾದೋಷಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ |  
-ಮಹಾಪಾಪಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ |  
-ಮಹಾಪ್ರತ್ಯವಾಯಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ |  
-ಸ ಸರ್ವ'ವಿದ್ಭವತಿ ಸ ಸರ್ವ'ವಿ _ದ್ಭ_ ವತಿ |  
-ಯ ಏ'ವಂ _ವೇ_ ದ |  
+ಸೂರ್ಯಗ್ರಹೇ ಮ'ಹಾ _ನ_ ದ್ಯಾಂ ಪ್ರತಿಮಾಸನ್ನಿಧೌ ವಾ _ಜ_ ಪ್ತ್ವಾ ಸಿದ್ಧಮ'ಂತ್ರೋ _ಭ_ ವತಿ ｜  
+ಮಹಾವಿಘ್ನಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ ｜  
+ಮಹಾದೋಷಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ ｜  
+ಮಹಾಪಾಪಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ ｜  
+ಮಹಾಪ್ರತ್ಯವಾಯಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ ｜  
+ಸ ಸರ್ವ'ವಿದ್ಭವತಿ ಸ ಸರ್ವ'ವಿ _ದ್ಭ_ ವತಿ ｜  
+ಯ ಏ'ವಂ _ವೇ_ ದ ｜  
 ಇತ್ಯು' _ಪ_ ನಿಷ'ತ್ ‖ 14 ‖  
 
 ಓಂ _ಭ_ ದ್ರಂ ಕರ್ಣೇ'ಭಿಃ ಶೃ _ಣು_ ಯಾಮ' ದೇವಾಃ ❘  
-_ಭ_ ದ್ರಂ ಪ'ಶ್ಯೇ _ಮಾ_ ಕ್ಷ _ಭಿ_ ರ್ಯಜ'ತ್ರಾಃ |  
-_ಸ್ಥಿ_ ರೈರಂಗೈ''ಸ್ತು _ಷ್ಠು_ ವಾಗ್^ಂ ಸ' _ಸ್ತ_ ನೂಭಿಃ' |  
-ವ್ಯಶೇ'ಮ _ದೇ_ ವಹಿ' _ತಂ_ ಯದಾಯುಃ' |  
-_ಸ್ವ_ ಸ್ತಿ _ನ_ ಇಂದ್ರೋ' _ವೃ_ ದ್ಧಶ್ರ'ವಾಃ |  
-_ಸ್ವ_ ಸ್ತಿ ನಃ' _ಪೂ_ ಷಾ _ವಿ_ ಶ್ವವೇ'ದಾಃ |  
-_ಸ್ವ_ ಸ್ತಿ _ನ_ ಸ್ತಾ _ರ್ಕ್ಷ್ಯೋ_ ಅರಿ'ಷ್ಟನೇಮಿಃ |  
+_ಭ_ ದ್ರಂ ಪ'ಶ್ಯೇ _ಮಾ_ ಕ್ಷ _ಭಿ_ ರ್ಯಜ'ತ್ರಾಃ ｜  
+_ಸ್ಥಿ_ ರೈರಂಗೈ''ಸ್ತು _ಷ್ಠು_ ವಾಗ್^ಂ ಸ' _ಸ್ತ_ ನೂಭಿಃ' ｜  
+ವ್ಯಶೇ'ಮ _ದೇ_ ವಹಿ' _ತಂ_ ಯದಾಯುಃ' ｜  
+_ಸ್ವ_ ಸ್ತಿ _ನ_ ಇಂದ್ರೋ' _ವೃ_ ದ್ಧಶ್ರ'ವಾಃ ｜  
+_ಸ್ವ_ ಸ್ತಿ ನಃ' _ಪೂ_ ಷಾ _ವಿ_ ಶ್ವವೇ'ದಾಃ ｜  
+_ಸ್ವ_ ಸ್ತಿ _ನ_ ಸ್ತಾ _ರ್ಕ್ಷ್ಯೋ_ ಅರಿ'ಷ್ಟನೇಮಿಃ ｜  
 _ಸ್ವ_ ಸ್ತಿ _ನೋ_ ಬೃ _ಹ_ ಸ್ಪತಿ'ರ್ದಧಾತು ‖  
 
 ಓಂ ಶಾ _ಂತಿಃ_ ಶಾ _ಂತಿಃ_ ಶಾಂತಿಃ' ‖  
@@ -1009,77 +1009,77 @@ _ಸ್ವ_ ಸ್ತಿ _ನೋ_ ಬೃ _ಹ_ ಸ್ಪತಿ'ರ್ದಧಾ�
 ‖ ഗണപത്യഥര്വശീര്ഷോപനിഷത് (ശ്രീ ഗണേഷാഥര്വഷീര്ഷമ്) ‖  
 
 ഓം _ഭ_ ദ്രം കര്ണേ'ഭിഃ ശൃ _ണു_ യാമ' ദേവാഃ ❘  
-_ഭ_ ദ്രം പ'ശ്യേ _മാ_ ക്ഷ _ഭി_ ര്യജ'ത്രാഃ |  
-_സ്ഥി_ രൈരംഗൈ''സ്തു _ഷ്ഠു_ വാഗ്^ം സ' _സ്ത_ നൂഭിഃ' |  
-വ്യശേ'മ _ദേ_ വഹി' _തം_ യദായുഃ' |  
-_സ്വ_ സ്തി _ന_ ഇംദ്രോ' _വൃ_ ദ്ധശ്ര'വാഃ |  
-_സ്വ_ സ്തി നഃ' _പൂ_ ഷാ _വി_ ശ്വവേ'ദാഃ |  
-_സ്വ_ സ്തി _ന_ സ്താ _ര്ക്ഷ്യോ_ അരി'ഷ്ടനേമിഃ |  
+_ഭ_ ദ്രം പ'ശ്യേ _മാ_ ക്ഷ _ഭി_ ര്യജ'ത്രാഃ ｜  
+_സ്ഥി_ രൈരംഗൈ''സ്തു _ഷ്ഠു_ വാഗ്^ം സ' _സ്ത_ നൂഭിഃ' ｜  
+വ്യശേ'മ _ദേ_ വഹി' _തം_ യദായുഃ' ｜  
+_സ്വ_ സ്തി _ന_ ഇംദ്രോ' _വൃ_ ദ്ധശ്ര'വാഃ ｜  
+_സ്വ_ സ്തി നഃ' _പൂ_ ഷാ _വി_ ശ്വവേ'ദാഃ ｜  
+_സ്വ_ സ്തി _ന_ സ്താ _ര്ക്ഷ്യോ_ അരി'ഷ്ടനേമിഃ ｜  
 _സ്വ_ സ്തി _നോ_ ബൃ _ഹ_ സ്പതി'ര്ദധാതു ‖  
 
 ഓം ശാ _ംതിഃ_ ശാ _ംതിഃ_ ശാംതിഃ' ‖  
 
 ഓം നമ'സ്തേ _ഗ_ ണപ'തയേ ❘  
-ത്വ _മേ_ വ _പ്ര_ ത്യ _ക്ഷം_ തത്ത്വ'മസി |  
-ത്വ _മേ_ വ _കേ_ വ _ലം_ കര്താ'ഽസി |  
-ത്വ _മേ_ വ _കേ_ വ _ലം_ ധര്താ'ഽസി |  
-ത്വ _മേ_ വ _കേ_ വ _ലം_ ഹര്താ'ഽസി |  
-ത്വമേവ സര്വം ഖല്വിദം' ബ്ര _ഹ്മാ_ സി |  
+ത്വ _മേ_ വ _പ്ര_ ത്യ _ക്ഷം_ തത്ത്വ'മസി ｜  
+ത്വ _മേ_ വ _കേ_ വ _ലം_ കര്താ'ഽസി ｜  
+ത്വ _മേ_ വ _കേ_ വ _ലം_ ധര്താ'ഽസി ｜  
+ത്വ _മേ_ വ _കേ_ വ _ലം_ ഹര്താ'ഽസി ｜  
+ത്വമേവ സര്വം ഖല്വിദം' ബ്ര _ഹ്മാ_ സി ｜  
 ത്വം സാക്ഷാദാത്മാ'ഽസി _നി_ ത്യമ് ‖ 1 ‖  
 ഋ'തം _വ_ ച്മി ❘  
 സ'ത്യം _വ_ ച്മി ‖ 2 ‖ _  
 
 അ_ വ _ത്വം_ മാമ് ❘  
-അവ' _വ_ ക്താരമ്'' |  
-അവ' _ശ്രോ_ താരമ്'' |  
-അവ' _ദാ_ താരമ്'' |  
-അവ' _ധാ_ താരമ്'' |  
-അവാനൂചാനമ'വ _ശി_ ഷ്യമ് |  
-അവ' _പ_ ശ്ചാത്താ''ത് |  
-അവ' _പു_ രസ്താ''ത് |  
-അവോ _ത്ത_ രാത്താ''ത് |  
-അവ' _ദ_ ക്ഷിണാത്താ''ത് |  
-അവ' _ചോ_ ര്ധ്വാത്താ''ത് |  
-അവാ _ധ_ രാത്താ''ത് |  
+അവ' _വ_ ക്താരമ്'' ｜  
+അവ' _ശ്രോ_ താരമ്'' ｜  
+അവ' _ദാ_ താരമ്'' ｜  
+അവ' _ധാ_ താരമ്'' ｜  
+അവാനൂചാനമ'വ _ശി_ ഷ്യമ് ｜  
+അവ' _പ_ ശ്ചാത്താ''ത് ｜  
+അവ' _പു_ രസ്താ''ത് ｜  
+അവോ _ത്ത_ രാത്താ''ത് ｜  
+അവ' _ദ_ ക്ഷിണാത്താ''ത് ｜  
+അവ' _ചോ_ ര്ധ്വാത്താ''ത് ｜  
+അവാ _ധ_ രാത്താ''ത് ｜  
 സര്വതോ മാം പാഹി പാഹി' സ _മ_ ംതാത് ‖ 3 ‖  
 
 ത്വം വാങ്മയ'സ്ത്വം ചി _ന്മ_ യഃ ❘  
-ത്വമാനംദമയ'സ്ത്വം ബ്ര _ഹ്മ_ മയഃ |  
-ത്വം സച്ചിദാനംദാഽദ്വി'തീ _യോ_ ഽസി |  
-ത്വം _പ്ര_ ത്യ _ക്ഷം_ ബ്രഹ്മാ'സി |  
+ത്വമാനംദമയ'സ്ത്വം ബ്ര _ഹ്മ_ മയഃ ｜  
+ത്വം സച്ചിദാനംദാഽദ്വി'തീ _യോ_ ഽസി ｜  
+ത്വം _പ്ര_ ത്യ _ക്ഷം_ ബ്രഹ്മാ'സി ｜  
 ത്വം ജ്ഞാനമയോ വിജ്ഞാന'മ _യോ_ ഽസി ‖ 4 ‖  
 
 സര്വം ജഗദിദം ത്വ'ത്തോ _ജാ_ യതേ ❘  
-സര്വം ജഗദിദം ത്വ'ത്ത _സ്തി_ ഷ്ഠതി |  
-സര്വം ജഗദിദം ത്വയി ലയ'മേ _ഷ്യ_ തി |  
-സര്വം ജഗദിദം ത്വയി' പ്ര _ത്യേ_ തി |  
-ത്വം ഭൂമിരാപോഽനലോഽനി'ലോ _ന_ ഭഃ |  
+സര്വം ജഗദിദം ത്വ'ത്ത _സ്തി_ ഷ്ഠതി ｜  
+സര്വം ജഗദിദം ത്വയി ലയ'മേ _ഷ്യ_ തി ｜  
+സര്വം ജഗദിദം ത്വയി' പ്ര _ത്യേ_ തി ｜  
+ത്വം ഭൂമിരാപോഽനലോഽനി'ലോ _ന_ ഭഃ ｜  
 ത്വം ചത്വാരി വാ''ക്പ _ദാ_ നി ‖ 5 ‖  
 
 ത്വം _ഗു_ ണത്ര'യാ _തീ_ തഃ ❘  
-ത്വം അവസ്ഥാത്ര'യാ _തീ_ തഃ |  
-ത്വം _ദേ_ ഹത്ര'യാ _തീ_ തഃ |  
-ത്വം _കാ_ ലത്ര'യാ _തീ_ തഃ |  
-ത്വം മൂലാധാരസ്ഥിതോ'ഽസി _നി_ ത്യമ് |  
-ത്വം ശക്തിത്ര'യാ _ത്മ_ കഃ |  
-ത്വാം യോഗിനോ ധ്യായ'ംതി _നി_ ത്യമ് |  
+ത്വം അവസ്ഥാത്ര'യാ _തീ_ തഃ ｜  
+ത്വം _ദേ_ ഹത്ര'യാ _തീ_ തഃ ｜  
+ത്വം _കാ_ ലത്ര'യാ _തീ_ തഃ ｜  
+ത്വം മൂലാധാരസ്ഥിതോ'ഽസി _നി_ ത്യമ് ｜  
+ത്വം ശക്തിത്ര'യാ _ത്മ_ കഃ ｜  
+ത്വാം യോഗിനോ ധ്യായ'ംതി _നി_ ത്യമ് ｜  
 ത്വം ബ്രഹ്മാ ത്വം വിഷ്ണുസ്ത്വം രുദ്രസ്ത്വമിംദ്രസ്ത്വമഗ്നിസ്ത്വം വായുസ്ത്വം സൂര്യസ്ത്വം ചംദ്രമാസ്ത്വം ബ്ര _ഹ്മ_ ഭൂര്ഭു _വഃ_ സ്വരോമ് ‖ 6 _‖  
 
 ഗ_ണാദിം'' പൂര്വ'മു _ച്ചാ_ _ര്യ_ _വ_ ര്ണാദീം'' സ്തദ _ന_ ംതരമ് ❘  
-അനുസ്വാരഃ പ'ര _ത_ രഃ |  
-അര്ധേ''ംദു _ല_ സിതമ് |  
-താരേ'ണ _ഋ_ ദ്ധമ് |  
-എതത്തവ മനു'സ്വ _രൂ_ പമ് |  
-ഗകാരഃ പൂ''ര്വ _രൂ_ പമ് |  
-അകാരോ മധ്യ'മ _രൂ_ പമ് |  
-അനുസ്വാരശ്ചാ''ംത്യ _രൂ_ പമ് |  
-ബിംദുരുത്ത'ര _രൂ_ പമ് |  
-നാദഃ' സ _ംധാ_ നമ് |  
-സഗംഹി'താ _സ_ ംധിഃ |  
-സൈഷാ ഗണേ'ശ _വി_ ദ്യാ |  
-ഗണ'ക _ഋ_ ഷിഃ |  
-നിചൃദ്ഗായ'ത്രീ _ച്ഛ_ ംദഃ |  
-ശ്രീ മഹാഗണപതി'ര്ദേവതാ |  
+അനുസ്വാരഃ പ'ര _ത_ രഃ ｜  
+അര്ധേ''ംദു _ല_ സിതമ് ｜  
+താരേ'ണ _ഋ_ ദ്ധമ് ｜  
+എതത്തവ മനു'സ്വ _രൂ_ പമ് ｜  
+ഗകാരഃ പൂ''ര്വ _രൂ_ പമ് ｜  
+അകാരോ മധ്യ'മ _രൂ_ പമ് ｜  
+അനുസ്വാരശ്ചാ''ംത്യ _രൂ_ പമ് ｜  
+ബിംദുരുത്ത'ര _രൂ_ പമ് ｜  
+നാദഃ' സ _ംധാ_ നമ് ｜  
+സഗംഹി'താ _സ_ ംധിഃ ｜  
+സൈഷാ ഗണേ'ശ _വി_ ദ്യാ ｜  
+ഗണ'ക _ഋ_ ഷിഃ ｜  
+നിചൃദ്ഗായ'ത്രീ _ച്ഛ_ ംദഃ ｜  
+ശ്രീ മഹാഗണപതി'ര്ദേവതാ ｜  
 ഓം ഗം _ഗ_ ണപ'തയേ നമഃ ‖ 7 ‖  
 
 ഏക _ദ_ ംതായ' _വി_ ദ്മഹേ' വക്ര _തു_ ംഡായ' ധീമഹി ❘  
@@ -1087,59 +1087,59 @@ _സ്വ_ സ്തി _നോ_ ബൃ _ഹ_ സ്പതി'ര്ദധാ�
 തന്നോ' ദംതിഃ പ്ര _ചോ_ ദയാ''ത് ‖ 8 ‖  
 
 ഏകദ _ന്_ തം ച'തു _ര്ഹ_ _സ്തം_ _പാ_ ശമം'കു _ശ_ ധാരി'ണമ് ❘  
-രദം' _ച_ വര'ദം _ഹ_ _സ്തൈ_ _ര്ബി_ ഭ്രാണം' മൂ _ഷ_ കധ്വ'ജമ് |  
-രക്തം' _ല_ ംബോദ'രം _ശൂ_ _ര്പ_ കര്ണകം' ര _ക്ത_ വാസ'സമ് |  
-രക്ത' _ഗ_ ംധാനു'ലി _പ്താ_ _ംഗം_ _ര_ ക്തപു'ഷ്പൈഃ _സു_ പൂജി'തമ് |  
-ഭക്താ' _നു_ കംപി'നം _ദേ_ _വം_ _ജ_ ഗത്കാ'ര _ണ_ മച്യു'തമ് |  
-ആവി' _ര്ഭൂ_ തം ച' _സൃ_ _ഷ്ട്യാ_ _ദൌ_ _പ്ര_ കൃതേ''ഃ പു _രു_ ഷാത്പ'രമ് |  
+രദം' _ച_ വര'ദം _ഹ_ _സ്തൈ_ _ര്ബി_ ഭ്രാണം' മൂ _ഷ_ കധ്വ'ജമ് ｜  
+രക്തം' _ല_ ംബോദ'രം _ശൂ_ _ര്പ_ കര്ണകം' ര _ക്ത_ വാസ'സമ് ｜  
+രക്ത' _ഗ_ ംധാനു'ലി _പ്താ_ _ംഗം_ _ര_ ക്തപു'ഷ്പൈഃ _സു_ പൂജി'തമ് ｜  
+ഭക്താ' _നു_ കംപി'നം _ദേ_ _വം_ _ജ_ ഗത്കാ'ര _ണ_ മച്യു'തമ് ｜  
+ആവി' _ര്ഭൂ_ തം ച' _സൃ_ _ഷ്ട്യാ_ _ദൌ_ _പ്ര_ കൃതേ''ഃ പു _രു_ ഷാത്പ'രമ് ｜  
 ഏവം' _ധ്യാ_ യതി' യോ _നി_ _ത്യം_ _സ_ യോഗീ' യോ _ഗി_ നാം വ'രഃ ‖ 9 ‖  
 
 നമോ വ്രാതപതയേ നമോ ഗണപതയേ നമഃ പ്രമഥപതയേ നമസ്തേഽസ്തു ലംബോദരായൈകദംതായ വിഘ്നവിനാശിനേ ശിവസുതായ ശ്രീവരദമൂര്ത _യേ_  
 നമഃ ‖ 10 ‖  
 
 ഏതദഥര്വശീര്ഷം യോഽ _ധീ_ തേ ❘  
-സ ബ്രഹ്മഭൂയാ'യ _ക_ ല്പതേ |  
-സ സര്വവിഘ്നൈ''ര്ന _ബാ_ ധ്യതേ |  
-സ സര്വതഃ സുഖ'മേ _ധ_ തേ |  
-സ പംചമഹാപാപാ''ത് പ്ര _മു_ ച്യതേ |  
-_സാ_ യമ'ധീ _യാ_ _നോ_ ദിവസകൃതം പാപം' നാ _ശ_ യതി |  
-_പ്രാ_ തര'ധീ _യാ_ _നോ_ രാത്രികൃതം പാപം' നാ _ശ_ യതി |  
-സായം പ്രാതഃ പ്ര'യു _ംജാ_ _നോ_ പാപോഽപാ'പോ _ഭ_ വതി |  
-ധര്മാര്ഥകാമമോക്ഷം' ച _വി_ ംദതി |  
-ഇദമഥര്വശീര്ഷമശിഷ്യായ' ന _ദേ_ യമ് |  
-യോ യദി മോ'ഹാദ് _ദാ_ സ്യതി സ പാപീ'യാന് _ഭ_ വതി |  
-സഹസ്രാവര്തനാദ്യം യം കാമ'മ _ധീ_ തേ |  
+സ ബ്രഹ്മഭൂയാ'യ _ക_ ല്പതേ ｜  
+സ സര്വവിഘ്നൈ''ര്ന _ബാ_ ധ്യതേ ｜  
+സ സര്വതഃ സുഖ'മേ _ധ_ തേ ｜  
+സ പംചമഹാപാപാ''ത് പ്ര _മു_ ച്യതേ ｜  
+_സാ_ യമ'ധീ _യാ_ _നോ_ ദിവസകൃതം പാപം' നാ _ശ_ യതി ｜  
+_പ്രാ_ തര'ധീ _യാ_ _നോ_ രാത്രികൃതം പാപം' നാ _ശ_ യതി ｜  
+സായം പ്രാതഃ പ്ര'യു _ംജാ_ _നോ_ പാപോഽപാ'പോ _ഭ_ വതി ｜  
+ധര്മാര്ഥകാമമോക്ഷം' ച _വി_ ംദതി ｜  
+ഇദമഥര്വശീര്ഷമശിഷ്യായ' ന _ദേ_ യമ് ｜  
+യോ യദി മോ'ഹാദ് _ദാ_ സ്യതി സ പാപീ'യാന് _ഭ_ വതി ｜  
+സഹസ്രാവര്തനാദ്യം യം കാമ'മ _ധീ_ തേ ｜  
 തം തമനേ'ന _സാ_ ധയേത് ‖ 11 ‖  
 
 അനേന ഗണപതിമ'ഭി _ഷി_ ംചതി ❘  
-സ വാ'ഗ്മീ _ഭ_ വതി |  
-ചതുര്ഥ്യാമന'ശ്നന് _ജ_ പതി സ വിദ്യാ'വാന് _ഭ_ വതി |  
-ഇത്യഥര്വ'ണ _വാ_ ക്യമ് |  
+സ വാ'ഗ്മീ _ഭ_ വതി ｜  
+ചതുര്ഥ്യാമന'ശ്നന് _ജ_ പതി സ വിദ്യാ'വാന് _ഭ_ വതി ｜  
+ഇത്യഥര്വ'ണ _വാ_ ക്യമ് ｜  
 ബ്രഹ്മാ _ദ്യാ_ ചര'ണം _വി_ ദ്യാന്ന ബിഭേതി കദാ'ച _നേ_ തി ‖ 12 ‖  
 
 യോ ദൂര്വാംകു'രൈ _ര്യ_ ജതി സ വൈശ്രവണോപ'മോ _ഭ_ വതി ❘  
-യോ ലാ'ജൈ _ര്യ_ ജതി സ യശോ'വാന് _ഭ_ വതി |  
-സ മേധാ'വാന് _ഭ_ വതി |  
-യോ മോദകസഹസ്രേ'ണ _യ_ ജതി സ വാംഛിതഫലമ'വാ _പ്നോ_ തി |  
+യോ ലാ'ജൈ _ര്യ_ ജതി സ യശോ'വാന് _ഭ_ വതി ｜  
+സ മേധാ'വാന് _ഭ_ വതി ｜  
+യോ മോദകസഹസ്രേ'ണ _യ_ ജതി സ വാംഛിതഫലമ'വാ _പ്നോ_ തി ｜  
 യഃ സാജ്യ സമി'ദ്ഭി _ര്യ_ ജതി സ സര്വം ലഭതേ സ സ'ര്വം _ല_ ഭതേ ‖ 13 ‖  
 
 അഷ്ടൌ ബ്രാഹ്മണാന് സമ്യഗ് ഗ്രാ'ഹ _യി_ ത്വാ സൂര്യവര്ച'സ്വീ _ഭ_ വതി ❘  
-സൂര്യഗ്രഹേ മ'ഹാ _ന_ ദ്യാം പ്രതിമാസന്നിധൌ വാ _ജ_ പ്ത്വാ സിദ്ധമ'ംത്രോ _ഭ_ വതി |  
-മഹാവിഘ്നാ''ത് പ്ര _മു_ ച്യതേ |  
-മഹാദോഷാ''ത് പ്ര _മു_ ച്യതേ |  
-മഹാപാപാ''ത് പ്ര _മു_ ച്യതേ |  
-മഹാപ്രത്യവായാ''ത് പ്ര _മു_ ച്യതേ |  
-സ സര്വ'വിദ്ഭവതി സ സര്വ'വി _ദ്ഭ_ വതി |  
-യ ഏ'വം _വേ_ ദ |  
+സൂര്യഗ്രഹേ മ'ഹാ _ന_ ദ്യാം പ്രതിമാസന്നിധൌ വാ _ജ_ പ്ത്വാ സിദ്ധമ'ംത്രോ _ഭ_ വതി ｜  
+മഹാവിഘ്നാ''ത് പ്ര _മു_ ച്യതേ ｜  
+മഹാദോഷാ''ത് പ്ര _മു_ ച്യതേ ｜  
+മഹാപാപാ''ത് പ്ര _മു_ ച്യതേ ｜  
+മഹാപ്രത്യവായാ''ത് പ്ര _മു_ ച്യതേ ｜  
+സ സര്വ'വിദ്ഭവതി സ സര്വ'വി _ദ്ഭ_ വതി ｜  
+യ ഏ'വം _വേ_ ദ ｜  
 ഇത്യു' _പ_ നിഷ'ത് ‖ 14 ‖  
 
 ഓം _ഭ_ ദ്രം കര്ണേ'ഭിഃ ശൃ _ണു_ യാമ' ദേവാഃ ❘  
-_ഭ_ ദ്രം പ'ശ്യേ _മാ_ ക്ഷ _ഭി_ ര്യജ'ത്രാഃ |  
-_സ്ഥി_ രൈരംഗൈ''സ്തു _ഷ്ഠു_ വാഗ്^ം സ' _സ്ത_ നൂഭിഃ' |  
-വ്യശേ'മ _ദേ_ വഹി' _തം_ യദായുഃ' |  
-_സ്വ_ സ്തി _ന_ ഇംദ്രോ' _വൃ_ ദ്ധശ്ര'വാഃ |  
-_സ്വ_ സ്തി നഃ' _പൂ_ ഷാ _വി_ ശ്വവേ'ദാഃ |  
-_സ്വ_ സ്തി _ന_ സ്താ _ര്ക്ഷ്യോ_ അരി'ഷ്ടനേമിഃ |  
+_ഭ_ ദ്രം പ'ശ്യേ _മാ_ ക്ഷ _ഭി_ ര്യജ'ത്രാഃ ｜  
+_സ്ഥി_ രൈരംഗൈ''സ്തു _ഷ്ഠു_ വാഗ്^ം സ' _സ്ത_ നൂഭിഃ' ｜  
+വ്യശേ'മ _ദേ_ വഹി' _തം_ യദായുഃ' ｜  
+_സ്വ_ സ്തി _ന_ ഇംദ്രോ' _വൃ_ ദ്ധശ്ര'വാഃ ｜  
+_സ്വ_ സ്തി നഃ' _പൂ_ ഷാ _വി_ ശ്വവേ'ദാഃ ｜  
+_സ്വ_ സ്തി _ന_ സ്താ _ര്ക്ഷ്യോ_ അരി'ഷ്ടനേമിഃ ｜  
 _സ്വ_ സ്തി _നോ_ ബൃ _ഹ_ സ്പതി'ര്ദധാതു ‖  
 
 ഓം ശാ _ംതിഃ_ ശാ _ംതിഃ_ ശാംതിഃ' ‖  
@@ -1154,77 +1154,77 @@ _സ്വ_ സ്തി _നോ_ ബൃ _ഹ_ സ്പതി'ര്ദധാ�
 ‖ ଗଣପତ୍ଯଥର୍ଵଶୀର୍ଷୋପନିଷତ୍ (ଶ୍ରୀ ଗଣେଷାଥର୍ଵଷୀର୍ଷମ୍) ‖  
 
 ଓଂ _ଭ_ ଦ୍ରଂ କର୍ଣେ'ଭିଃ ଶୃ _ଣୁ_ ଯାମ' ଦେଵାଃ ❘  
-_ଭ_ ଦ୍ରଂ ପ'ଶ୍ଯେ _ମା_ କ୍ଷ _ଭି_ ର୍ଯଜ'ତ୍ରାଃ |  
-_ସ୍ଥି_ ରୈରଂଗୈ''ସ୍ତୁ _ଷ୍ଠୁ_ ଵାଗ୍^ଂ ସ' _ସ୍ତ_ ନୂଭିଃ' |  
-ଵ୍ଯଶେ'ମ _ଦେ_ ଵହି' _ତଂ_ ଯଦାଯୁଃ' |  
-_ସ୍ଵ_ ସ୍ତି _ନ_ ଇଂଦ୍ରୋ' _ଵୃ_ ଦ୍ଧଶ୍ର'ଵାଃ |  
-_ସ୍ଵ_ ସ୍ତି ନଃ' _ପୂ_ ଷା _ଵି_ ଶ୍ଵଵେ'ଦାଃ |  
-_ସ୍ଵ_ ସ୍ତି _ନ_ ସ୍ତା _ର୍କ୍ଷ୍ଯୋ_ ଅରି'ଷ୍ଟନେମିଃ |  
+_ଭ_ ଦ୍ରଂ ପ'ଶ୍ଯେ _ମା_ କ୍ଷ _ଭି_ ର୍ଯଜ'ତ୍ରାଃ ｜  
+_ସ୍ଥି_ ରୈରଂଗୈ''ସ୍ତୁ _ଷ୍ଠୁ_ ଵାଗ୍^ଂ ସ' _ସ୍ତ_ ନୂଭିଃ' ｜  
+ଵ୍ଯଶେ'ମ _ଦେ_ ଵହି' _ତଂ_ ଯଦାଯୁଃ' ｜  
+_ସ୍ଵ_ ସ୍ତି _ନ_ ଇଂଦ୍ରୋ' _ଵୃ_ ଦ୍ଧଶ୍ର'ଵାଃ ｜  
+_ସ୍ଵ_ ସ୍ତି ନଃ' _ପୂ_ ଷା _ଵି_ ଶ୍ଵଵେ'ଦାଃ ｜  
+_ସ୍ଵ_ ସ୍ତି _ନ_ ସ୍ତା _ର୍କ୍ଷ୍ଯୋ_ ଅରି'ଷ୍ଟନେମିଃ ｜  
 _ସ୍ଵ_ ସ୍ତି _ନୋ_ ବୃ _ହ_ ସ୍ପତି'ର୍ଦଧାତୁ ‖  
 
 ଓଂ ଶା _ଂତିଃ_ ଶା _ଂତିଃ_ ଶାଂତିଃ' ‖  
 
 ଓଂ ନମ'ସ୍ତେ _ଗ_ ଣପ'ତଯେ ❘  
-ତ୍ଵ _ମେ_ ଵ _ପ୍ର_ ତ୍ଯ _କ୍ଷଂ_ ତତ୍ତ୍ଵ'ମସି |  
-ତ୍ଵ _ମେ_ ଵ _କେ_ ଵ _ଲଂ_ କର୍ତା'ଽସି |  
-ତ୍ଵ _ମେ_ ଵ _କେ_ ଵ _ଲଂ_ ଧର୍ତା'ଽସି |  
-ତ୍ଵ _ମେ_ ଵ _କେ_ ଵ _ଲଂ_ ହର୍ତା'ଽସି |  
-ତ୍ଵମେଵ ସର୍ଵଂ ଖଲ୍ଵିଦଂ' ବ୍ର _ହ୍ମା_ ସି |  
+ତ୍ଵ _ମେ_ ଵ _ପ୍ର_ ତ୍ଯ _କ୍ଷଂ_ ତତ୍ତ୍ଵ'ମସି ｜  
+ତ୍ଵ _ମେ_ ଵ _କେ_ ଵ _ଲଂ_ କର୍ତା'ଽସି ｜  
+ତ୍ଵ _ମେ_ ଵ _କେ_ ଵ _ଲଂ_ ଧର୍ତା'ଽସି ｜  
+ତ୍ଵ _ମେ_ ଵ _କେ_ ଵ _ଲଂ_ ହର୍ତା'ଽସି ｜  
+ତ୍ଵମେଵ ସର୍ଵଂ ଖଲ୍ଵିଦଂ' ବ୍ର _ହ୍ମା_ ସି ｜  
 ତ୍ଵଂ ସାକ୍ଷାଦାତ୍ମା'ଽସି _ନି_ ତ୍ଯମ୍ ‖ 1 ‖  
 ଋ'ତଂ _ଵ_ ଚ୍ମି ❘  
 ସ'ତ୍ଯଂ _ଵ_ ଚ୍ମି ‖ 2 ‖ _  
 
 ଅ_ ଵ _ତ୍ଵଂ_ ମାମ୍ ❘  
-ଅଵ' _ଵ_ କ୍ତାରମ୍'' |  
-ଅଵ' _ଶ୍ରୋ_ ତାରମ୍'' |  
-ଅଵ' _ଦା_ ତାରମ୍'' |  
-ଅଵ' _ଧା_ ତାରମ୍'' |  
-ଅଵାନୂଚାନମ'ଵ _ଶି_ ଷ୍ଯମ୍ |  
-ଅଵ' _ପ_ ଶ୍ଚାତ୍ତା''ତ୍ |  
-ଅଵ' _ପୁ_ ରସ୍ତା''ତ୍ |  
-ଅଵୋ _ତ୍ତ_ ରାତ୍ତା''ତ୍ |  
-ଅଵ' _ଦ_ କ୍ଷିଣାତ୍ତା''ତ୍ |  
-ଅଵ' _ଚୋ_ ର୍ଧ୍ଵାତ୍ତା''ତ୍ |  
-ଅଵା _ଧ_ ରାତ୍ତା''ତ୍ |  
+ଅଵ' _ଵ_ କ୍ତାରମ୍'' ｜  
+ଅଵ' _ଶ୍ରୋ_ ତାରମ୍'' ｜  
+ଅଵ' _ଦା_ ତାରମ୍'' ｜  
+ଅଵ' _ଧା_ ତାରମ୍'' ｜  
+ଅଵାନୂଚାନମ'ଵ _ଶି_ ଷ୍ଯମ୍ ｜  
+ଅଵ' _ପ_ ଶ୍ଚାତ୍ତା''ତ୍ ｜  
+ଅଵ' _ପୁ_ ରସ୍ତା''ତ୍ ｜  
+ଅଵୋ _ତ୍ତ_ ରାତ୍ତା''ତ୍ ｜  
+ଅଵ' _ଦ_ କ୍ଷିଣାତ୍ତା''ତ୍ ｜  
+ଅଵ' _ଚୋ_ ର୍ଧ୍ଵାତ୍ତା''ତ୍ ｜  
+ଅଵା _ଧ_ ରାତ୍ତା''ତ୍ ｜  
 ସର୍ଵତୋ ମାଂ ପାହି ପାହି' ସ _ମ_ ଂତାତ୍ ‖ 3 ‖  
 
 ତ୍ଵଂ ଵାଙ୍ମଯ'ସ୍ତ୍ଵଂ ଚି _ନ୍ମ_ ଯଃ ❘  
-ତ୍ଵମାନଂଦମଯ'ସ୍ତ୍ଵଂ ବ୍ର _ହ୍ମ_ ମଯଃ |  
-ତ୍ଵଂ ସଚ୍ଚିଦାନଂଦାଽଦ୍ଵି'ତୀ _ଯୋ_ ଽସି |  
-ତ୍ଵଂ _ପ୍ର_ ତ୍ଯ _କ୍ଷଂ_ ବ୍ରହ୍ମା'ସି |  
+ତ୍ଵମାନଂଦମଯ'ସ୍ତ୍ଵଂ ବ୍ର _ହ୍ମ_ ମଯଃ ｜  
+ତ୍ଵଂ ସଚ୍ଚିଦାନଂଦାଽଦ୍ଵି'ତୀ _ଯୋ_ ଽସି ｜  
+ତ୍ଵଂ _ପ୍ର_ ତ୍ଯ _କ୍ଷଂ_ ବ୍ରହ୍ମା'ସି ｜  
 ତ୍ଵଂ ଜ୍ଞାନମଯୋ ଵିଜ୍ଞାନ'ମ _ଯୋ_ ଽସି ‖ 4 ‖  
 
 ସର୍ଵଂ ଜଗଦିଦଂ ତ୍ଵ'ତ୍ତୋ _ଜା_ ଯତେ ❘  
-ସର୍ଵଂ ଜଗଦିଦଂ ତ୍ଵ'ତ୍ତ _ସ୍ତି_ ଷ୍ଠତି |  
-ସର୍ଵଂ ଜଗଦିଦଂ ତ୍ଵଯି ଲଯ'ମେ _ଷ୍ଯ_ ତି |  
-ସର୍ଵଂ ଜଗଦିଦଂ ତ୍ଵଯି' ପ୍ର _ତ୍ଯେ_ ତି |  
-ତ୍ଵଂ ଭୂମିରାପୋଽନଲୋଽନି'ଲୋ _ନ_ ଭଃ |  
+ସର୍ଵଂ ଜଗଦିଦଂ ତ୍ଵ'ତ୍ତ _ସ୍ତି_ ଷ୍ଠତି ｜  
+ସର୍ଵଂ ଜଗଦିଦଂ ତ୍ଵଯି ଲଯ'ମେ _ଷ୍ଯ_ ତି ｜  
+ସର୍ଵଂ ଜଗଦିଦଂ ତ୍ଵଯି' ପ୍ର _ତ୍ଯେ_ ତି ｜  
+ତ୍ଵଂ ଭୂମିରାପୋଽନଲୋଽନି'ଲୋ _ନ_ ଭଃ ｜  
 ତ୍ଵଂ ଚତ୍ଵାରି ଵା''କ୍ପ _ଦା_ ନି ‖ 5 ‖  
 
 ତ୍ଵଂ _ଗୁ_ ଣତ୍ର'ଯା _ତୀ_ ତଃ ❘  
-ତ୍ଵଂ ଅଵସ୍ଥାତ୍ର'ଯା _ତୀ_ ତଃ |  
-ତ୍ଵଂ _ଦେ_ ହତ୍ର'ଯା _ତୀ_ ତଃ |  
-ତ୍ଵଂ _କା_ ଲତ୍ର'ଯା _ତୀ_ ତଃ |  
-ତ୍ଵଂ ମୂଲାଧାରସ୍ଥିତୋ'ଽସି _ନି_ ତ୍ଯମ୍ |  
-ତ୍ଵଂ ଶକ୍ତିତ୍ର'ଯା _ତ୍ମ_ କଃ |  
-ତ୍ଵାଂ ଯୋଗିନୋ ଧ୍ଯାଯ'ଂତି _ନି_ ତ୍ଯମ୍ |  
+ତ୍ଵଂ ଅଵସ୍ଥାତ୍ର'ଯା _ତୀ_ ତଃ ｜  
+ତ୍ଵଂ _ଦେ_ ହତ୍ର'ଯା _ତୀ_ ତଃ ｜  
+ତ୍ଵଂ _କା_ ଲତ୍ର'ଯା _ତୀ_ ତଃ ｜  
+ତ୍ଵଂ ମୂଲାଧାରସ୍ଥିତୋ'ଽସି _ନି_ ତ୍ଯମ୍ ｜  
+ତ୍ଵଂ ଶକ୍ତିତ୍ର'ଯା _ତ୍ମ_ କଃ ｜  
+ତ୍ଵାଂ ଯୋଗିନୋ ଧ୍ଯାଯ'ଂତି _ନି_ ତ୍ଯମ୍ ｜  
 ତ୍ଵଂ ବ୍ରହ୍ମା ତ୍ଵଂ ଵିଷ୍ଣୁସ୍ତ୍ଵଂ ରୁଦ୍ରସ୍ତ୍ଵମିଂଦ୍ରସ୍ତ୍ଵମଗ୍ନିସ୍ତ୍ଵଂ ଵାଯୁସ୍ତ୍ଵଂ ସୂର୍ଯସ୍ତ୍ଵଂ ଚଂଦ୍ରମାସ୍ତ୍ଵଂ ବ୍ର _ହ୍ମ_ ଭୂର୍ଭୁ _ଵଃ_ ସ୍ଵରୋମ୍ ‖ 6 _‖  
 
 ଗ_ଣାଦିଂ'' ପୂର୍ଵ'ମୁ _ଚ୍ଚା_ _ର୍ଯ_ _ଵ_ ର୍ଣାଦୀଂ'' ସ୍ତଦ _ନ_ ଂତରମ୍ ❘  
-ଅନୁସ୍ଵାରଃ ପ'ର _ତ_ ରଃ |  
-ଅର୍ଧେ''ଂଦୁ _ଲ_ ସିତମ୍ |  
-ତାରେ'ଣ _ଋ_ ଦ୍ଧମ୍ |  
-଎ତତ୍ତଵ ମନୁ'ସ୍ଵ _ରୂ_ ପମ୍ |  
-ଗକାରଃ ପୂ''ର୍ଵ _ରୂ_ ପମ୍ |  
-ଅକାରୋ ମଧ୍ଯ'ମ _ରୂ_ ପମ୍ |  
-ଅନୁସ୍ଵାରଶ୍ଚା''ଂତ୍ଯ _ରୂ_ ପମ୍ |  
-ବିଂଦୁରୁତ୍ତ'ର _ରୂ_ ପମ୍ |  
-ନାଦଃ' ସ _ଂଧା_ ନମ୍ |  
-ସଗଂହି'ତା _ସ_ ଂଧିଃ |  
-ସୈଷା ଗଣେ'ଶ _ଵି_ ଦ୍ଯା |  
-ଗଣ'କ _ଋ_ ଷିଃ |  
-ନିଚୃଦ୍ଗାଯ'ତ୍ରୀ _ଚ୍ଛ_ ଂଦଃ |  
-ଶ୍ରୀ ମହାଗଣପତି'ର୍ଦେଵତା |  
+ଅନୁସ୍ଵାରଃ ପ'ର _ତ_ ରଃ ｜  
+ଅର୍ଧେ''ଂଦୁ _ଲ_ ସିତମ୍ ｜  
+ତାରେ'ଣ _ଋ_ ଦ୍ଧମ୍ ｜  
+଎ତତ୍ତଵ ମନୁ'ସ୍ଵ _ରୂ_ ପମ୍ ｜  
+ଗକାରଃ ପୂ''ର୍ଵ _ରୂ_ ପମ୍ ｜  
+ଅକାରୋ ମଧ୍ଯ'ମ _ରୂ_ ପମ୍ ｜  
+ଅନୁସ୍ଵାରଶ୍ଚା''ଂତ୍ଯ _ରୂ_ ପମ୍ ｜  
+ବିଂଦୁରୁତ୍ତ'ର _ରୂ_ ପମ୍ ｜  
+ନାଦଃ' ସ _ଂଧା_ ନମ୍ ｜  
+ସଗଂହି'ତା _ସ_ ଂଧିଃ ｜  
+ସୈଷା ଗଣେ'ଶ _ଵି_ ଦ୍ଯା ｜  
+ଗଣ'କ _ଋ_ ଷିଃ ｜  
+ନିଚୃଦ୍ଗାଯ'ତ୍ରୀ _ଚ୍ଛ_ ଂଦଃ ｜  
+ଶ୍ରୀ ମହାଗଣପତି'ର୍ଦେଵତା ｜  
 ଓଂ ଗଂ _ଗ_ ଣପ'ତଯେ ନମଃ ‖ 7 ‖  
 
 ଏକ _ଦ_ ଂତାଯ' _ଵି_ ଦ୍ମହେ' ଵକ୍ର _ତୁ_ ଂଡାଯ' ଧୀମହି ❘  
@@ -1232,59 +1232,59 @@ _ସ୍ଵ_ ସ୍ତି _ନୋ_ ବୃ _ହ_ ସ୍ପତି'ର୍ଦଧା�
 ତନ୍ନୋ' ଦଂତିଃ ପ୍ର _ଚୋ_ ଦଯା''ତ୍ ‖ 8 ‖  
 
 ଏକଦ _ନ୍_ ତଂ ଚ'ତୁ _ର୍ହ_ _ସ୍ତଂ_ _ପା_ ଶମଂ'କୁ _ଶ_ ଧାରି'ଣମ୍ ❘  
-ରଦଂ' _ଚ_ ଵର'ଦଂ _ହ_ _ସ୍ତୈ_ _ର୍ବି_ ଭ୍ରାଣଂ' ମୂ _ଷ_ କଧ୍ଵ'ଜମ୍ |  
-ରକ୍ତଂ' _ଲ_ ଂବୋଦ'ରଂ _ଶୂ_ _ର୍ପ_ କର୍ଣକଂ' ର _କ୍ତ_ ଵାସ'ସମ୍ |  
-ରକ୍ତ' _ଗ_ ଂଧାନୁ'ଲି _ପ୍ତା_ _ଂଗଂ_ _ର_ କ୍ତପୁ'ଷ୍ପୈଃ _ସୁ_ ପୂଜି'ତମ୍ |  
-ଭକ୍ତା' _ନୁ_ କଂପି'ନଂ _ଦେ_ _ଵଂ_ _ଜ_ ଗତ୍କା'ର _ଣ_ ମଚ୍ଯୁ'ତମ୍ |  
-ଆଵି' _ର୍ଭୂ_ ତଂ ଚ' _ସୃ_ _ଷ୍ଟ୍ଯା_ _ଦୌ_ _ପ୍ର_ କୃତେ''ଃ ପୁ _ରୁ_ ଷାତ୍ପ'ରମ୍ |  
+ରଦଂ' _ଚ_ ଵର'ଦଂ _ହ_ _ସ୍ତୈ_ _ର୍ବି_ ଭ୍ରାଣଂ' ମୂ _ଷ_ କଧ୍ଵ'ଜମ୍ ｜  
+ରକ୍ତଂ' _ଲ_ ଂବୋଦ'ରଂ _ଶୂ_ _ର୍ପ_ କର୍ଣକଂ' ର _କ୍ତ_ ଵାସ'ସମ୍ ｜  
+ରକ୍ତ' _ଗ_ ଂଧାନୁ'ଲି _ପ୍ତା_ _ଂଗଂ_ _ର_ କ୍ତପୁ'ଷ୍ପୈଃ _ସୁ_ ପୂଜି'ତମ୍ ｜  
+ଭକ୍ତା' _ନୁ_ କଂପି'ନଂ _ଦେ_ _ଵଂ_ _ଜ_ ଗତ୍କା'ର _ଣ_ ମଚ୍ଯୁ'ତମ୍ ｜  
+ଆଵି' _ର୍ଭୂ_ ତଂ ଚ' _ସୃ_ _ଷ୍ଟ୍ଯା_ _ଦୌ_ _ପ୍ର_ କୃତେ''ଃ ପୁ _ରୁ_ ଷାତ୍ପ'ରମ୍ ｜  
 ଏଵଂ' _ଧ୍ଯା_ ଯତି' ଯୋ _ନି_ _ତ୍ଯଂ_ _ସ_ ଯୋଗୀ' ଯୋ _ଗି_ ନାଂ ଵ'ରଃ ‖ 9 ‖  
 
 ନମୋ ଵ୍ରାତପତଯେ ନମୋ ଗଣପତଯେ ନମଃ ପ୍ରମଥପତଯେ ନମସ୍ତେଽସ୍ତୁ ଲଂବୋଦରାଯୈକଦଂତାଯ ଵିଘ୍ନଵିନାଶିନେ ଶିଵସୁତାଯ ଶ୍ରୀଵରଦମୂର୍ତ _ଯେ_  
 ନମଃ ‖ 10 ‖  
 
 ଏତଦଥର୍ଵଶୀର୍ଷଂ ଯୋଽ _ଧୀ_ ତେ ❘  
-ସ ବ୍ରହ୍ମଭୂଯା'ଯ _କ_ ଲ୍ପତେ |  
-ସ ସର୍ଵଵିଘ୍ନୈ''ର୍ନ _ବା_ ଧ୍ଯତେ |  
-ସ ସର୍ଵତଃ ସୁଖ'ମେ _ଧ_ ତେ |  
-ସ ପଂଚମହାପାପା''ତ୍ ପ୍ର _ମୁ_ ଚ୍ଯତେ |  
-_ସା_ ଯମ'ଧୀ _ଯା_ _ନୋ_ ଦିଵସକୃତଂ ପାପଂ' ନା _ଶ_ ଯତି |  
-_ପ୍ରା_ ତର'ଧୀ _ଯା_ _ନୋ_ ରାତ୍ରିକୃତଂ ପାପଂ' ନା _ଶ_ ଯତି |  
-ସାଯଂ ପ୍ରାତଃ ପ୍ର'ଯୁ _ଂଜା_ _ନୋ_ ପାପୋଽପା'ପୋ _ଭ_ ଵତି |  
-ଧର୍ମାର୍ଥକାମମୋକ୍ଷଂ' ଚ _ଵି_ ଂଦତି |  
-ଇଦମଥର୍ଵଶୀର୍ଷମଶିଷ୍ଯାଯ' ନ _ଦେ_ ଯମ୍ |  
-ଯୋ ଯଦି ମୋ'ହାଦ୍ _ଦା_ ସ୍ଯତି ସ ପାପୀ'ଯାନ୍ _ଭ_ ଵତି |  
-ସହସ୍ରାଵର୍ତନାଦ୍ଯଂ ଯଂ କାମ'ମ _ଧୀ_ ତେ |  
+ସ ବ୍ରହ୍ମଭୂଯା'ଯ _କ_ ଲ୍ପତେ ｜  
+ସ ସର୍ଵଵିଘ୍ନୈ''ର୍ନ _ବା_ ଧ୍ଯତେ ｜  
+ସ ସର୍ଵତଃ ସୁଖ'ମେ _ଧ_ ତେ ｜  
+ସ ପଂଚମହାପାପା''ତ୍ ପ୍ର _ମୁ_ ଚ୍ଯତେ ｜  
+_ସା_ ଯମ'ଧୀ _ଯା_ _ନୋ_ ଦିଵସକୃତଂ ପାପଂ' ନା _ଶ_ ଯତି ｜  
+_ପ୍ରା_ ତର'ଧୀ _ଯା_ _ନୋ_ ରାତ୍ରିକୃତଂ ପାପଂ' ନା _ଶ_ ଯତି ｜  
+ସାଯଂ ପ୍ରାତଃ ପ୍ର'ଯୁ _ଂଜା_ _ନୋ_ ପାପୋଽପା'ପୋ _ଭ_ ଵତି ｜  
+ଧର୍ମାର୍ଥକାମମୋକ୍ଷଂ' ଚ _ଵି_ ଂଦତି ｜  
+ଇଦମଥର୍ଵଶୀର୍ଷମଶିଷ୍ଯାଯ' ନ _ଦେ_ ଯମ୍ ｜  
+ଯୋ ଯଦି ମୋ'ହାଦ୍ _ଦା_ ସ୍ଯତି ସ ପାପୀ'ଯାନ୍ _ଭ_ ଵତି ｜  
+ସହସ୍ରାଵର୍ତନାଦ୍ଯଂ ଯଂ କାମ'ମ _ଧୀ_ ତେ ｜  
 ତଂ ତମନେ'ନ _ସା_ ଧଯେତ୍ ‖ 11 ‖  
 
 ଅନେନ ଗଣପତିମ'ଭି _ଷି_ ଂଚତି ❘  
-ସ ଵା'ଗ୍ମୀ _ଭ_ ଵତି |  
-ଚତୁର୍ଥ୍ଯାମନ'ଶ୍ନନ୍ _ଜ_ ପତି ସ ଵିଦ୍ଯା'ଵାନ୍ _ଭ_ ଵତି |  
-ଇତ୍ଯଥର୍ଵ'ଣ _ଵା_ କ୍ଯମ୍ |  
+ସ ଵା'ଗ୍ମୀ _ଭ_ ଵତି ｜  
+ଚତୁର୍ଥ୍ଯାମନ'ଶ୍ନନ୍ _ଜ_ ପତି ସ ଵିଦ୍ଯା'ଵାନ୍ _ଭ_ ଵତି ｜  
+ଇତ୍ଯଥର୍ଵ'ଣ _ଵା_ କ୍ଯମ୍ ｜  
 ବ୍ରହ୍ମା _ଦ୍ଯା_ ଚର'ଣଂ _ଵି_ ଦ୍ଯାନ୍ନ ବିଭେତି କଦା'ଚ _ନେ_ ତି ‖ 12 ‖  
 
 ଯୋ ଦୂର୍ଵାଂକୁ'ରୈ _ର୍ଯ_ ଜତି ସ ଵୈଶ୍ରଵଣୋପ'ମୋ _ଭ_ ଵତି ❘  
-ଯୋ ଲା'ଜୈ _ର୍ଯ_ ଜତି ସ ଯଶୋ'ଵାନ୍ _ଭ_ ଵତି |  
-ସ ମେଧା'ଵାନ୍ _ଭ_ ଵତି |  
-ଯୋ ମୋଦକସହସ୍ରେ'ଣ _ଯ_ ଜତି ସ ଵାଂଛିତଫଲମ'ଵା _ପ୍ନୋ_ ତି |  
+ଯୋ ଲା'ଜୈ _ର୍ଯ_ ଜତି ସ ଯଶୋ'ଵାନ୍ _ଭ_ ଵତି ｜  
+ସ ମେଧା'ଵାନ୍ _ଭ_ ଵତି ｜  
+ଯୋ ମୋଦକସହସ୍ରେ'ଣ _ଯ_ ଜତି ସ ଵାଂଛିତଫଲମ'ଵା _ପ୍ନୋ_ ତି ｜  
 ଯଃ ସାଜ୍ଯ ସମି'ଦ୍ଭି _ର୍ଯ_ ଜତି ସ ସର୍ଵଂ ଲଭତେ ସ ସ'ର୍ଵଂ _ଲ_ ଭତେ ‖ 13 ‖  
 
 ଅଷ୍ଟୌ ବ୍ରାହ୍ମଣାନ୍ ସମ୍ଯଗ୍ ଗ୍ରା'ହ _ଯି_ ତ୍ଵା ସୂର୍ଯଵର୍ଚ'ସ୍ଵୀ _ଭ_ ଵତି ❘  
-ସୂର୍ଯଗ୍ରହେ ମ'ହା _ନ_ ଦ୍ଯାଂ ପ୍ରତିମାସନ୍ନିଧୌ ଵା _ଜ_ ପ୍ତ୍ଵା ସିଦ୍ଧମ'ଂତ୍ରୋ _ଭ_ ଵତି |  
-ମହାଵିଘ୍ନା''ତ୍ ପ୍ର _ମୁ_ ଚ୍ଯତେ |  
-ମହାଦୋଷା''ତ୍ ପ୍ର _ମୁ_ ଚ୍ଯତେ |  
-ମହାପାପା''ତ୍ ପ୍ର _ମୁ_ ଚ୍ଯତେ |  
-ମହାପ୍ରତ୍ଯଵାଯା''ତ୍ ପ୍ର _ମୁ_ ଚ୍ଯତେ |  
-ସ ସର୍ଵ'ଵିଦ୍ଭଵତି ସ ସର୍ଵ'ଵି _ଦ୍ଭ_ ଵତି |  
-ଯ ଏ'ଵଂ _ଵେ_ ଦ |  
+ସୂର୍ଯଗ୍ରହେ ମ'ହା _ନ_ ଦ୍ଯାଂ ପ୍ରତିମାସନ୍ନିଧୌ ଵା _ଜ_ ପ୍ତ୍ଵା ସିଦ୍ଧମ'ଂତ୍ରୋ _ଭ_ ଵତି ｜  
+ମହାଵିଘ୍ନା''ତ୍ ପ୍ର _ମୁ_ ଚ୍ଯତେ ｜  
+ମହାଦୋଷା''ତ୍ ପ୍ର _ମୁ_ ଚ୍ଯତେ ｜  
+ମହାପାପା''ତ୍ ପ୍ର _ମୁ_ ଚ୍ଯତେ ｜  
+ମହାପ୍ରତ୍ଯଵାଯା''ତ୍ ପ୍ର _ମୁ_ ଚ୍ଯତେ ｜  
+ସ ସର୍ଵ'ଵିଦ୍ଭଵତି ସ ସର୍ଵ'ଵି _ଦ୍ଭ_ ଵତି ｜  
+ଯ ଏ'ଵଂ _ଵେ_ ଦ ｜  
 ଇତ୍ଯୁ' _ପ_ ନିଷ'ତ୍ ‖ 14 ‖  
 
 ଓଂ _ଭ_ ଦ୍ରଂ କର୍ଣେ'ଭିଃ ଶୃ _ଣୁ_ ଯାମ' ଦେଵାଃ ❘  
-_ଭ_ ଦ୍ରଂ ପ'ଶ୍ଯେ _ମା_ କ୍ଷ _ଭି_ ର୍ଯଜ'ତ୍ରାଃ |  
-_ସ୍ଥି_ ରୈରଂଗୈ''ସ୍ତୁ _ଷ୍ଠୁ_ ଵାଗ୍^ଂ ସ' _ସ୍ତ_ ନୂଭିଃ' |  
-ଵ୍ଯଶେ'ମ _ଦେ_ ଵହି' _ତଂ_ ଯଦାଯୁଃ' |  
-_ସ୍ଵ_ ସ୍ତି _ନ_ ଇଂଦ୍ରୋ' _ଵୃ_ ଦ୍ଧଶ୍ର'ଵାଃ |  
-_ସ୍ଵ_ ସ୍ତି ନଃ' _ପୂ_ ଷା _ଵି_ ଶ୍ଵଵେ'ଦାଃ |  
-_ସ୍ଵ_ ସ୍ତି _ନ_ ସ୍ତା _ର୍କ୍ଷ୍ଯୋ_ ଅରି'ଷ୍ଟନେମିଃ |  
+_ଭ_ ଦ୍ରଂ ପ'ଶ୍ଯେ _ମା_ କ୍ଷ _ଭି_ ର୍ଯଜ'ତ୍ରାଃ ｜  
+_ସ୍ଥି_ ରୈରଂଗୈ''ସ୍ତୁ _ଷ୍ଠୁ_ ଵାଗ୍^ଂ ସ' _ସ୍ତ_ ନୂଭିଃ' ｜  
+ଵ୍ଯଶେ'ମ _ଦେ_ ଵହି' _ତଂ_ ଯଦାଯୁଃ' ｜  
+_ସ୍ଵ_ ସ୍ତି _ନ_ ଇଂଦ୍ରୋ' _ଵୃ_ ଦ୍ଧଶ୍ର'ଵାଃ ｜  
+_ସ୍ଵ_ ସ୍ତି ନଃ' _ପୂ_ ଷା _ଵି_ ଶ୍ଵଵେ'ଦାଃ ｜  
+_ସ୍ଵ_ ସ୍ତି _ନ_ ସ୍ତା _ର୍କ୍ଷ୍ଯୋ_ ଅରି'ଷ୍ଟନେମିଃ ｜  
 _ସ୍ଵ_ ସ୍ତି _ନୋ_ ବୃ _ହ_ ସ୍ପତି'ର୍ଦଧାତୁ ‖  
 
 ଓଂ ଶା _ଂତିଃ_ ଶା _ଂତିଃ_ ଶାଂତିଃ' ‖  
@@ -1297,77 +1297,77 @@ _ସ୍ଵ_ ସ୍ତି _ନୋ_ ବୃ _ହ_ ସ୍ପତି'ର୍ଦଧା�
 ‖ ಗಣಪತ್ಯಥರ್ವಶೀರ್ಷೋಪನಿಷತ್ (ಶ್ರೀ ಗಣೇಷಾಥರ್ವಷೀರ್ಷಮ್) ‖  
 
 ಓಂ _ಭ_ ದ್ರಂ ಕರ್ಣೇ'ಭಿಃ ಶೃ _ಣು_ ಯಾಮ' ದೇವಾಃ ❘  
-_ಭ_ ದ್ರಂ ಪ'ಶ್ಯೇ _ಮಾ_ ಕ್ಷ _ಭಿ_ ರ್ಯಜ'ತ್ರಾಃ |  
-_ಸ್ಥಿ_ ರೈರಙ್ಗೈ''ಸ್ತು _ಷ್ಠು_ ವಾಗ್^ಂ ಸ' _ಸ್ತ_ ನೂಭಿಃ' |  
-ವ್ಯಶೇ'ಮ _ದೇ_ ವಹಿ' _ತಂ_ ಯದಾಯುಃ' |  
-_ಸ್ವ_ ಸ್ತಿ _ನ_ ಇನ್ದ್ರೋ' _ವೃ_ ದ್ಧಶ್ರ'ವಾಃ |  
-_ಸ್ವ_ ಸ್ತಿ ನಃ' _ಪೂ_ ಷಾ _ವಿ_ ಶ್ವವೇ'ದಾಃ |  
-_ಸ್ವ_ ಸ್ತಿ _ನ_ ಸ್ತಾ _ರ್ಕ್ಷ್ಯೋ_ ಅರಿ'ಷ್ಟನೇಮಿಃ |  
+_ಭ_ ದ್ರಂ ಪ'ಶ್ಯೇ _ಮಾ_ ಕ್ಷ _ಭಿ_ ರ್ಯಜ'ತ್ರಾಃ ｜  
+_ಸ್ಥಿ_ ರೈರಙ್ಗೈ''ಸ್ತು _ಷ್ಠು_ ವಾಗ್^ಂ ಸ' _ಸ್ತ_ ನೂಭಿಃ' ｜  
+ವ್ಯಶೇ'ಮ _ದೇ_ ವಹಿ' _ತಂ_ ಯದಾಯುಃ' ｜  
+_ಸ್ವ_ ಸ್ತಿ _ನ_ ಇನ್ದ್ರೋ' _ವೃ_ ದ್ಧಶ್ರ'ವಾಃ ｜  
+_ಸ್ವ_ ಸ್ತಿ ನಃ' _ಪೂ_ ಷಾ _ವಿ_ ಶ್ವವೇ'ದಾಃ ｜  
+_ಸ್ವ_ ಸ್ತಿ _ನ_ ಸ್ತಾ _ರ್ಕ್ಷ್ಯೋ_ ಅರಿ'ಷ್ಟನೇಮಿಃ ｜  
 _ಸ್ವ_ ಸ್ತಿ _ನೋ_ ಬೃ _ಹ_ ಸ್ಪತಿ'ರ್ದಧಾತು ‖  
 
 ಓಂ ಶಾ _ನ್ತಿಃ_ ಶಾ _ನ್ತಿಃ_ ಶಾನ್ತಿಃ' ‖  
 
 ಓಂ ನಮ'ಸ್ತೇ _ಗ_ ಣಪ'ತಯೇ ❘  
-ತ್ವ _ಮೇ_ ವ _ಪ್ರ_ ತ್ಯ _ಕ್ಷಂ_ ತತ್ತ್ವ'ಮಸಿ |  
-ತ್ವ _ಮೇ_ ವ _ಕೇ_ ವ _ಲಂ_ ಕರ್ತಾ'ಽಸಿ |  
-ತ್ವ _ಮೇ_ ವ _ಕೇ_ ವ _ಲಂ_ ಧರ್ತಾ'ಽಸಿ |  
-ತ್ವ _ಮೇ_ ವ _ಕೇ_ ವ _ಲಂ_ ಹರ್ತಾ'ಽಸಿ |  
-ತ್ವಮೇವ ಸರ್ವಂ ಖಲ್ವಿದಂ' ಬ್ರ _ಹ್ಮಾ_ ಸಿ |  
+ತ್ವ _ಮೇ_ ವ _ಪ್ರ_ ತ್ಯ _ಕ್ಷಂ_ ತತ್ತ್ವ'ಮಸಿ ｜  
+ತ್ವ _ಮೇ_ ವ _ಕೇ_ ವ _ಲಂ_ ಕರ್ತಾ'ಽಸಿ ｜  
+ತ್ವ _ಮೇ_ ವ _ಕೇ_ ವ _ಲಂ_ ಧರ್ತಾ'ಽಸಿ ｜  
+ತ್ವ _ಮೇ_ ವ _ಕೇ_ ವ _ಲಂ_ ಹರ್ತಾ'ಽಸಿ ｜  
+ತ್ವಮೇವ ಸರ್ವಂ ಖಲ್ವಿದಂ' ಬ್ರ _ಹ್ಮಾ_ ಸಿ ｜  
 ತ್ವಂ ಸಾಕ್ಷಾದಾತ್ಮಾ'ಽಸಿ _ನಿ_ ತ್ಯಮ್ ‖ 1 ‖  
 ಋ'ತಂ _ವ_ ಚ್ಮಿ ❘  
 ಸ'ತ್ಯಂ _ವ_ ಚ್ಮಿ ‖ 2 ‖ _  
 
 ಅ_ ವ _ತ್ವಂ_ ಮಾಮ್ ❘  
-ಅವ' _ವ_ ಕ್ತಾರಮ್'' |  
-ಅವ' _ಶ್ರೋ_ ತಾರಮ್'' |  
-ಅವ' _ದಾ_ ತಾರಮ್'' |  
-ಅವ' _ಧಾ_ ತಾರಮ್'' |  
-ಅವಾನೂಚಾನಮ'ವ _ಶಿ_ ಷ್ಯಮ್ |  
-ಅವ' _ಪ_ ಶ್ಚಾತ್ತಾ''ತ್ |  
-ಅವ' _ಪು_ ರಸ್ತಾ''ತ್ |  
-ಅವೋ _ತ್ತ_ ರಾತ್ತಾ''ತ್ |  
-ಅವ' _ದ_ ಕ್ಷಿಣಾತ್ತಾ''ತ್ |  
-ಅವ' _ಚೋ_ ರ್ಧ್ವಾತ್ತಾ''ತ್ |  
-ಅವಾ _ಧ_ ರಾತ್ತಾ''ತ್ |  
+ಅವ' _ವ_ ಕ್ತಾರಮ್'' ｜  
+ಅವ' _ಶ್ರೋ_ ತಾರಮ್'' ｜  
+ಅವ' _ದಾ_ ತಾರಮ್'' ｜  
+ಅವ' _ಧಾ_ ತಾರಮ್'' ｜  
+ಅವಾನೂಚಾನಮ'ವ _ಶಿ_ ಷ್ಯಮ್ ｜  
+ಅವ' _ಪ_ ಶ್ಚಾತ್ತಾ''ತ್ ｜  
+ಅವ' _ಪು_ ರಸ್ತಾ''ತ್ ｜  
+ಅವೋ _ತ್ತ_ ರಾತ್ತಾ''ತ್ ｜  
+ಅವ' _ದ_ ಕ್ಷಿಣಾತ್ತಾ''ತ್ ｜  
+ಅವ' _ಚೋ_ ರ್ಧ್ವಾತ್ತಾ''ತ್ ｜  
+ಅವಾ _ಧ_ ರಾತ್ತಾ''ತ್ ｜  
 ಸರ್ವತೋ ಮಾಂ ಪಾಹಿ ಪಾಹಿ' ಸ _ಮ_ ನ್ತಾತ್ ‖ 3 ‖  
 
 ತ್ವಂ ವಾಙ್ಮಯ'ಸ್ತ್ವಂ ಚಿ _ನ್ಮ_ ಯಃ ❘  
-ತ್ವಮಾನನ್ದಮಯ'ಸ್ತ್ವಂ ಬ್ರ _ಹ್ಮ_ ಮಯಃ |  
-ತ್ವಂ ಸಚ್ಚಿದಾನನ್ದಾಽದ್ವಿ'ತೀ _ಯೋ_ ಽಸಿ |  
-ತ್ವಂ _ಪ್ರ_ ತ್ಯ _ಕ್ಷಂ_ ಬ್ರಹ್ಮಾ'ಸಿ |  
+ತ್ವಮಾನನ್ದಮಯ'ಸ್ತ್ವಂ ಬ್ರ _ಹ್ಮ_ ಮಯಃ ｜  
+ತ್ವಂ ಸಚ್ಚಿದಾನನ್ದಾಽದ್ವಿ'ತೀ _ಯೋ_ ಽಸಿ ｜  
+ತ್ವಂ _ಪ್ರ_ ತ್ಯ _ಕ್ಷಂ_ ಬ್ರಹ್ಮಾ'ಸಿ ｜  
 ತ್ವಂ ಜ್ಞಾನಮಯೋ ವಿಜ್ಞಾನ'ಮ _ಯೋ_ ಽಸಿ ‖ 4 ‖  
 
 ಸರ್ವಂ ಜಗದಿದಂ ತ್ವ'ತ್ತೋ _ಜಾ_ ಯತೇ ❘  
-ಸರ್ವಂ ಜಗದಿದಂ ತ್ವ'ತ್ತ _ಸ್ತಿ_ ಷ್ಠತಿ |  
-ಸರ್ವಂ ಜಗದಿದಂ ತ್ವಯಿ ಲಯ'ಮೇ _ಷ್ಯ_ ತಿ |  
-ಸರ್ವಂ ಜಗದಿದಂ ತ್ವಯಿ' ಪ್ರ _ತ್ಯೇ_ ತಿ |  
-ತ್ವಂ ಭೂಮಿರಾಪೋಽನಲೋಽನಿ'ಲೋ _ನ_ ಭಃ |  
+ಸರ್ವಂ ಜಗದಿದಂ ತ್ವ'ತ್ತ _ಸ್ತಿ_ ಷ್ಠತಿ ｜  
+ಸರ್ವಂ ಜಗದಿದಂ ತ್ವಯಿ ಲಯ'ಮೇ _ಷ್ಯ_ ತಿ ｜  
+ಸರ್ವಂ ಜಗದಿದಂ ತ್ವಯಿ' ಪ್ರ _ತ್ಯೇ_ ತಿ ｜  
+ತ್ವಂ ಭೂಮಿರಾಪೋಽನಲೋಽನಿ'ಲೋ _ನ_ ಭಃ ｜  
 ತ್ವಂ ಚತ್ವಾರಿ ವಾ''ಕ್ಪ _ದಾ_ ನಿ ‖ 5 ‖  
 
 ತ್ವಂ _ಗು_ ಣತ್ರ'ಯಾ _ತೀ_ ತಃ ❘  
-ತ್ವಂ ಅವಸ್ಥಾತ್ರ'ಯಾ _ತೀ_ ತಃ |  
-ತ್ವಂ _ದೇ_ ಹತ್ರ'ಯಾ _ತೀ_ ತಃ |  
-ತ್ವಂ _ಕಾ_ ಲತ್ರ'ಯಾ _ತೀ_ ತಃ |  
-ತ್ವಂ ಮೂಲಾಧಾರಸ್ಥಿತೋ'ಽಸಿ _ನಿ_ ತ್ಯಮ್ |  
-ತ್ವಂ ಶಕ್ತಿತ್ರ'ಯಾ _ತ್ಮ_ ಕಃ |  
-ತ್ವಾಂ ಯೋಗಿನೋ ಧ್ಯಾಯ'ನ್ತಿ _ನಿ_ ತ್ಯಮ್ |  
+ತ್ವಂ ಅವಸ್ಥಾತ್ರ'ಯಾ _ತೀ_ ತಃ ｜  
+ತ್ವಂ _ದೇ_ ಹತ್ರ'ಯಾ _ತೀ_ ತಃ ｜  
+ತ್ವಂ _ಕಾ_ ಲತ್ರ'ಯಾ _ತೀ_ ತಃ ｜  
+ತ್ವಂ ಮೂಲಾಧಾರಸ್ಥಿತೋ'ಽಸಿ _ನಿ_ ತ್ಯಮ್ ｜  
+ತ್ವಂ ಶಕ್ತಿತ್ರ'ಯಾ _ತ್ಮ_ ಕಃ ｜  
+ತ್ವಾಂ ಯೋಗಿನೋ ಧ್ಯಾಯ'ನ್ತಿ _ನಿ_ ತ್ಯಮ್ ｜  
 ತ್ವಂ ಬ್ರಹ್ಮಾ ತ್ವಂ ವಿಷ್ಣುಸ್ತ್ವಂ ರುದ್ರಸ್ತ್ವಮಿನ್ದ್ರಸ್ತ್ವಮಗ್ನಿಸ್ತ್ವಂ ವಾಯುಸ್ತ್ವಂ ಸೂರ್ಯಸ್ತ್ವಂ ಚನ್ದ್ರಮಾಸ್ತ್ವಂ ಬ್ರ _ಹ್ಮ_ ಭೂರ್ಭು _ವಃ_ ಸ್ವರೋಮ್ ‖ 6 _‖  
 
 ಗ_ಣಾದಿಂ'' ಪೂರ್ವ'ಮು _ಚ್ಚಾ_ _ರ್ಯ_ _ವ_ ರ್ಣಾದೀಂ'' ಸ್ತದ _ನ_ ನ್ತರಮ್ ❘  
-ಅನುಸ್ವಾರಃ ಪ'ರ _ತ_ ರಃ |  
-ಅರ್ಧೇ''ನ್ದು _ಲ_ ಸಿತಮ್ |  
-ತಾರೇ'ಣ _ಋ_ ದ್ಧಮ್ |  
-ಎತತ್ತವ ಮನು'ಸ್ವ _ರೂ_ ಪಮ್ |  
-ಗಕಾರಃ ಪೂ''ರ್ವ _ರೂ_ ಪಮ್ |  
-ಅಕಾರೋ ಮಧ್ಯ'ಮ _ರೂ_ ಪಮ್ |  
-ಅನುಸ್ವಾರಶ್ಚಾ''ನ್ತ್ಯ _ರೂ_ ಪಮ್ |  
-ಬಿನ್ದುರುತ್ತ'ರ _ರೂ_ ಪಮ್ |  
-ನಾದಃ' ಸ _ನ್ಧಾ_ ನಮ್ |  
-ಸಗಂಹಿ'ತಾ _ಸ_ ನ್ಧಿಃ |  
-ಸೈಷಾ ಗಣೇ'ಶ _ವಿ_ ದ್ಯಾ |  
-ಗಣ'ಕ _ಋ_ ಷಿಃ |  
-ನಿಚೃದ್ಗಾಯ'ತ್ರೀ _ಚ್ಛ_ ನ್ದಃ |  
-ಶ್ರೀ ಮಹಾಗಣಪತಿ'ರ್ದೇವತಾ |  
+ಅನುಸ್ವಾರಃ ಪ'ರ _ತ_ ರಃ ｜  
+ಅರ್ಧೇ''ನ್ದು _ಲ_ ಸಿತಮ್ ｜  
+ತಾರೇ'ಣ _ಋ_ ದ್ಧಮ್ ｜  
+ಎತತ್ತವ ಮನು'ಸ್ವ _ರೂ_ ಪಮ್ ｜  
+ಗಕಾರಃ ಪೂ''ರ್ವ _ರೂ_ ಪಮ್ ｜  
+ಅಕಾರೋ ಮಧ್ಯ'ಮ _ರೂ_ ಪಮ್ ｜  
+ಅನುಸ್ವಾರಶ್ಚಾ''ನ್ತ್ಯ _ರೂ_ ಪಮ್ ｜  
+ಬಿನ್ದುರುತ್ತ'ರ _ರೂ_ ಪಮ್ ｜  
+ನಾದಃ' ಸ _ನ್ಧಾ_ ನಮ್ ｜  
+ಸಗಂಹಿ'ತಾ _ಸ_ ನ್ಧಿಃ ｜  
+ಸೈಷಾ ಗಣೇ'ಶ _ವಿ_ ದ್ಯಾ ｜  
+ಗಣ'ಕ _ಋ_ ಷಿಃ ｜  
+ನಿಚೃದ್ಗಾಯ'ತ್ರೀ _ಚ್ಛ_ ನ್ದಃ ｜  
+ಶ್ರೀ ಮಹಾಗಣಪತಿ'ರ್ದೇವತಾ ｜  
 ಓಂ ಗಂ _ಗ_ ಣಪ'ತಯೇ ನಮಃ ‖ 7 ‖  
 
 ಏಕ _ದ_ ನ್ತಾಯ' _ವಿ_ ದ್ಮಹೇ' ವಕ್ರ _ತು_ ಣ್ಡಾಯ' ಧೀಮಹಿ ❘  
@@ -1375,59 +1375,59 @@ _ಸ್ವ_ ಸ್ತಿ _ನೋ_ ಬೃ _ಹ_ ಸ್ಪತಿ'ರ್ದಧಾ�
 ತನ್ನೋ' ದನ್ತಿಃ ಪ್ರ _ಚೋ_ ದಯಾ''ತ್ ‖ 8 ‖  
 
 ಏಕದ _ನ್_ ತಂ ಚ'ತು _ರ್ಹ_ _ಸ್ತಂ_ _ಪಾ_ ಶಮಂ'ಕು _ಶ_ ಧಾರಿ'ಣಮ್ ❘  
-ರದಂ' _ಚ_ ವರ'ದಂ _ಹ_ _ಸ್ತೈ_ _ರ್ಬಿ_ ಭ್ರಾಣಂ' ಮೂ _ಷ_ ಕಧ್ವ'ಜಮ್ |  
-ರಕ್ತಂ' _ಲ_ ಮ್ಬೋದ'ರಂ _ಶೂ_ _ರ್ಪ_ ಕರ್ಣಕಂ' ರ _ಕ್ತ_ ವಾಸ'ಸಮ್ |  
-ರಕ್ತ' _ಗ_ ನ್ಧಾನು'ಲಿ _ಪ್ತಾ_ _ಙ್ಗಂ_ _ರ_ ಕ್ತಪು'ಷ್ಪೈಃ _ಸು_ ಪೂಜಿ'ತಮ್ |  
-ಭಕ್ತಾ' _ನು_ ಕಮ್ಪಿ'ನಂ _ದೇ_ _ವಂ_ _ಜ_ ಗತ್ಕಾ'ರ _ಣ_ ಮಚ್ಯು'ತಮ್ |  
-ಆವಿ' _ರ್ಭೂ_ ತಂ ಚ' _ಸೃ_ _ಷ್ಟ್ಯಾ_ _ದೌ_ _ಪ್ರ_ ಕೃತೇ''ಃ ಪು _ರು_ ಷಾತ್ಪ'ರಮ್ |  
+ರದಂ' _ಚ_ ವರ'ದಂ _ಹ_ _ಸ್ತೈ_ _ರ್ಬಿ_ ಭ್ರಾಣಂ' ಮೂ _ಷ_ ಕಧ್ವ'ಜಮ್ ｜  
+ರಕ್ತಂ' _ಲ_ ಮ್ಬೋದ'ರಂ _ಶೂ_ _ರ್ಪ_ ಕರ್ಣಕಂ' ರ _ಕ್ತ_ ವಾಸ'ಸಮ್ ｜  
+ರಕ್ತ' _ಗ_ ನ್ಧಾನು'ಲಿ _ಪ್ತಾ_ _ಙ್ಗಂ_ _ರ_ ಕ್ತಪು'ಷ್ಪೈಃ _ಸು_ ಪೂಜಿ'ತಮ್ ｜  
+ಭಕ್ತಾ' _ನು_ ಕಮ್ಪಿ'ನಂ _ದೇ_ _ವಂ_ _ಜ_ ಗತ್ಕಾ'ರ _ಣ_ ಮಚ್ಯು'ತಮ್ ｜  
+ಆವಿ' _ರ್ಭೂ_ ತಂ ಚ' _ಸೃ_ _ಷ್ಟ್ಯಾ_ _ದೌ_ _ಪ್ರ_ ಕೃತೇ''ಃ ಪು _ರು_ ಷಾತ್ಪ'ರಮ್ ｜  
 ಏವಂ' _ಧ್ಯಾ_ ಯತಿ' ಯೋ _ನಿ_ _ತ್ಯಂ_ _ಸ_ ಯೋಗೀ' ಯೋ _ಗಿ_ ನಾಂ ವ'ರಃ ‖ 9 ‖  
 
 ನಮೋ ವ್ರಾತಪತಯೇ ನಮೋ ಗಣಪತಯೇ ನಮಃ ಪ್ರಮಥಪತಯೇ ನಮಸ್ತೇಽಸ್ತು ಲಮ್ಬೋದರಾಯೈಕದನ್ತಾಯ ವಿಘ್ನವಿನಾಶಿನೇ ಶಿವಸುತಾಯ ಶ್ರೀವರದಮೂರ್ತ _ಯೇ_  
 ನಮಃ ‖ 10 ‖  
 
 ಏತದಥರ್ವಶೀರ್ಷಂ ಯೋಽ _ಧೀ_ ತೇ ❘  
-ಸ ಬ್ರಹ್ಮಭೂಯಾ'ಯ _ಕ_ ಲ್ಪತೇ |  
-ಸ ಸರ್ವವಿಘ್ನೈ''ರ್ನ _ಬಾ_ ಧ್ಯತೇ |  
-ಸ ಸರ್ವತಃ ಸುಖ'ಮೇ _ಧ_ ತೇ |  
-ಸ ಪಞ್ಚಮಹಾಪಾಪಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ |  
-_ಸಾ_ ಯಮ'ಧೀ _ಯಾ_ _ನೋ_ ದಿವಸಕೃತಂ ಪಾಪಂ' ನಾ _ಶ_ ಯತಿ |  
-_ಪ್ರಾ_ ತರ'ಧೀ _ಯಾ_ _ನೋ_ ರಾತ್ರಿಕೃತಂ ಪಾಪಂ' ನಾ _ಶ_ ಯತಿ |  
-ಸಾಯಂ ಪ್ರಾತಃ ಪ್ರ'ಯು _ಞ್ಜಾ_ _ನೋ_ ಪಾಪೋಽಪಾ'ಪೋ _ಭ_ ವತಿ |  
-ಧರ್ಮಾರ್ಥಕಾಮಮೋಕ್ಷಂ' ಚ _ವಿ_ ನ್ದತಿ |  
-ಇದಮಥರ್ವಶೀರ್ಷಮಶಿಷ್ಯಾಯ' ನ _ದೇ_ ಯಮ್ |  
-ಯೋ ಯದಿ ಮೋ'ಹಾದ್ _ದಾ_ ಸ್ಯತಿ ಸ ಪಾಪೀ'ಯಾನ್ _ಭ_ ವತಿ |  
-ಸಹಸ್ರಾವರ್ತನಾದ್ಯಂ ಯಂ ಕಾಮ'ಮ _ಧೀ_ ತೇ |  
+ಸ ಬ್ರಹ್ಮಭೂಯಾ'ಯ _ಕ_ ಲ್ಪತೇ ｜  
+ಸ ಸರ್ವವಿಘ್ನೈ''ರ್ನ _ಬಾ_ ಧ್ಯತೇ ｜  
+ಸ ಸರ್ವತಃ ಸುಖ'ಮೇ _ಧ_ ತೇ ｜  
+ಸ ಪಞ್ಚಮಹಾಪಾಪಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ ｜  
+_ಸಾ_ ಯಮ'ಧೀ _ಯಾ_ _ನೋ_ ದಿವಸಕೃತಂ ಪಾಪಂ' ನಾ _ಶ_ ಯತಿ ｜  
+_ಪ್ರಾ_ ತರ'ಧೀ _ಯಾ_ _ನೋ_ ರಾತ್ರಿಕೃತಂ ಪಾಪಂ' ನಾ _ಶ_ ಯತಿ ｜  
+ಸಾಯಂ ಪ್ರಾತಃ ಪ್ರ'ಯು _ಞ್ಜಾ_ _ನೋ_ ಪಾಪೋಽಪಾ'ಪೋ _ಭ_ ವತಿ ｜  
+ಧರ್ಮಾರ್ಥಕಾಮಮೋಕ್ಷಂ' ಚ _ವಿ_ ನ್ದತಿ ｜  
+ಇದಮಥರ್ವಶೀರ್ಷಮಶಿಷ್ಯಾಯ' ನ _ದೇ_ ಯಮ್ ｜  
+ಯೋ ಯದಿ ಮೋ'ಹಾದ್ _ದಾ_ ಸ್ಯತಿ ಸ ಪಾಪೀ'ಯಾನ್ _ಭ_ ವತಿ ｜  
+ಸಹಸ್ರಾವರ್ತನಾದ್ಯಂ ಯಂ ಕಾಮ'ಮ _ಧೀ_ ತೇ ｜  
 ತಂ ತಮನೇ'ನ _ಸಾ_ ಧಯೇತ್ ‖ 11 ‖  
 
 ಅನೇನ ಗಣಪತಿಮ'ಭಿ _ಷಿ_ ಞ್ಚತಿ ❘  
-ಸ ವಾ'ಗ್ಮೀ _ಭ_ ವತಿ |  
-ಚತುರ್ಥ್ಯಾಮನ'ಶ್ನನ್ _ಜ_ ಪತಿ ಸ ವಿದ್ಯಾ'ವಾನ್ _ಭ_ ವತಿ |  
-ಇತ್ಯಥರ್ವ'ಣ _ವಾ_ ಕ್ಯಮ್ |  
+ಸ ವಾ'ಗ್ಮೀ _ಭ_ ವತಿ ｜  
+ಚತುರ್ಥ್ಯಾಮನ'ಶ್ನನ್ _ಜ_ ಪತಿ ಸ ವಿದ್ಯಾ'ವಾನ್ _ಭ_ ವತಿ ｜  
+ಇತ್ಯಥರ್ವ'ಣ _ವಾ_ ಕ್ಯಮ್ ｜  
 ಬ್ರಹ್ಮಾ _ದ್ಯಾ_ ಚರ'ಣಂ _ವಿ_ ದ್ಯಾನ್ನ ಬಿಭೇತಿ ಕದಾ'ಚ _ನೇ_ ತಿ ‖ 12 ‖  
 
 ಯೋ ದೂರ್ವಾಙ್ಕು'ರೈ _ರ್ಯ_ ಜತಿ ಸ ವೈಶ್ರವಣೋಪ'ಮೋ _ಭ_ ವತಿ ❘  
-ಯೋ ಲಾ'ಜೈ _ರ್ಯ_ ಜತಿ ಸ ಯಶೋ'ವಾನ್ _ಭ_ ವತಿ |  
-ಸ ಮೇಧಾ'ವಾನ್ _ಭ_ ವತಿ |  
-ಯೋ ಮೋದಕಸಹಸ್ರೇ'ಣ _ಯ_ ಜತಿ ಸ ವಾಞ್ಛಿತಫಲಮ'ವಾ _ಪ್ನೋ_ ತಿ |  
+ಯೋ ಲಾ'ಜೈ _ರ್ಯ_ ಜತಿ ಸ ಯಶೋ'ವಾನ್ _ಭ_ ವತಿ ｜  
+ಸ ಮೇಧಾ'ವಾನ್ _ಭ_ ವತಿ ｜  
+ಯೋ ಮೋದಕಸಹಸ್ರೇ'ಣ _ಯ_ ಜತಿ ಸ ವಾಞ್ಛಿತಫಲಮ'ವಾ _ಪ್ನೋ_ ತಿ ｜  
 ಯಃ ಸಾಜ್ಯ ಸಮಿ'ದ್ಭಿ _ರ್ಯ_ ಜತಿ ಸ ಸರ್ವಂ ಲಭತೇ ಸ ಸ'ರ್ವಂ _ಲ_ ಭತೇ ‖ 13 ‖  
 
 ಅಷ್ಟೌ ಬ್ರಾಹ್ಮಣಾನ್ ಸಮ್ಯಗ್ ಗ್ರಾ'ಹ _ಯಿ_ ತ್ವಾ ಸೂರ್ಯವರ್ಚ'ಸ್ವೀ _ಭ_ ವತಿ ❘  
-ಸೂರ್ಯಗ್ರಹೇ ಮ'ಹಾ _ನ_ ದ್ಯಾಂ ಪ್ರತಿಮಾಸನ್ನಿಧೌ ವಾ _ಜ_ ಪ್ತ್ವಾ ಸಿದ್ಧಮ'ನ್ತ್ರೋ _ಭ_ ವತಿ |  
-ಮಹಾವಿಘ್ನಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ |  
-ಮಹಾದೋಷಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ |  
-ಮಹಾಪಾಪಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ |  
-ಮಹಾಪ್ರತ್ಯವಾಯಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ |  
-ಸ ಸರ್ವ'ವಿದ್ಭವತಿ ಸ ಸರ್ವ'ವಿ _ದ್ಭ_ ವತಿ |  
-ಯ ಏ'ವಂ _ವೇ_ ದ |  
+ಸೂರ್ಯಗ್ರಹೇ ಮ'ಹಾ _ನ_ ದ್ಯಾಂ ಪ್ರತಿಮಾಸನ್ನಿಧೌ ವಾ _ಜ_ ಪ್ತ್ವಾ ಸಿದ್ಧಮ'ನ್ತ್ರೋ _ಭ_ ವತಿ ｜  
+ಮಹಾವಿಘ್ನಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ ｜  
+ಮಹಾದೋಷಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ ｜  
+ಮಹಾಪಾಪಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ ｜  
+ಮಹಾಪ್ರತ್ಯವಾಯಾ''ತ್ ಪ್ರ _ಮು_ ಚ್ಯತೇ ｜  
+ಸ ಸರ್ವ'ವಿದ್ಭವತಿ ಸ ಸರ್ವ'ವಿ _ದ್ಭ_ ವತಿ ｜  
+ಯ ಏ'ವಂ _ವೇ_ ದ ｜  
 ಇತ್ಯು' _ಪ_ ನಿಷ'ತ್ ‖ 14 ‖  
 
 ಓಂ _ಭ_ ದ್ರಂ ಕರ್ಣೇ'ಭಿಃ ಶೃ _ಣು_ ಯಾಮ' ದೇವಾಃ ❘  
-_ಭ_ ದ್ರಂ ಪ'ಶ್ಯೇ _ಮಾ_ ಕ್ಷ _ಭಿ_ ರ್ಯಜ'ತ್ರಾಃ |  
-_ಸ್ಥಿ_ ರೈರಙ್ಗೈ''ಸ್ತು _ಷ್ಠು_ ವಾಗ್^ಂ ಸ' _ಸ್ತ_ ನೂಭಿಃ' |  
-ವ್ಯಶೇ'ಮ _ದೇ_ ವಹಿ' _ತಂ_ ಯದಾಯುಃ' |  
-_ಸ್ವ_ ಸ್ತಿ _ನ_ ಇನ್ದ್ರೋ' _ವೃ_ ದ್ಧಶ್ರ'ವಾಃ |  
-_ಸ್ವ_ ಸ್ತಿ ನಃ' _ಪೂ_ ಷಾ _ವಿ_ ಶ್ವವೇ'ದಾಃ |  
-_ಸ್ವ_ ಸ್ತಿ _ನ_ ಸ್ತಾ _ರ್ಕ್ಷ್ಯೋ_ ಅರಿ'ಷ್ಟನೇಮಿಃ |  
+_ಭ_ ದ್ರಂ ಪ'ಶ್ಯೇ _ಮಾ_ ಕ್ಷ _ಭಿ_ ರ್ಯಜ'ತ್ರಾಃ ｜  
+_ಸ್ಥಿ_ ರೈರಙ್ಗೈ''ಸ್ತು _ಷ್ಠು_ ವಾಗ್^ಂ ಸ' _ಸ್ತ_ ನೂಭಿಃ' ｜  
+ವ್ಯಶೇ'ಮ _ದೇ_ ವಹಿ' _ತಂ_ ಯದಾಯುಃ' ｜  
+_ಸ್ವ_ ಸ್ತಿ _ನ_ ಇನ್ದ್ರೋ' _ವೃ_ ದ್ಧಶ್ರ'ವಾಃ ｜  
+_ಸ್ವ_ ಸ್ತಿ ನಃ' _ಪೂ_ ಷಾ _ವಿ_ ಶ್ವವೇ'ದಾಃ ｜  
+_ಸ್ವ_ ಸ್ತಿ _ನ_ ಸ್ತಾ _ರ್ಕ್ಷ್ಯೋ_ ಅರಿ'ಷ್ಟನೇಮಿಃ ｜  
 _ಸ್ವ_ ಸ್ತಿ _ನೋ_ ಬೃ _ಹ_ ಸ್ಪತಿ'ರ್ದಧಾತು ‖  
 
 ಓಂ ಶಾ _ನ್ತಿಃ_ ಶಾ _ನ್ತಿಃ_ ಶಾನ್ತಿಃ' ‖  
@@ -1440,77 +1440,77 @@ _ಸ್ವ_ ಸ್ತಿ _ನೋ_ ಬೃ _ಹ_ ಸ್ಪತಿ'ರ್ದಧಾ�
 ‖ గణపత్యథర్వశీర్షోపనిషత్ (శ్రీ గణేషాథర్వషీర్షమ్) ‖  
 
 ఓం _భ_ ద్రం కర్ణే'భిః శృ _ణు_ యామ' దేవాః ❘  
-_భ_ ద్రం ప'శ్యే _మా_ క్ష _భి_ ర్యజ'త్రాః |  
-_స్థి_ రైరఙ్గై''స్తు _ష్ఠు_ వాగ్^ం స' _స్త_ నూభిః' |  
-వ్యశే'మ _దే_ వహి' _తం_ యదాయుః' |  
-_స్వ_ స్తి _న_ ఇన్ద్రో' _వృ_ ద్ధశ్ర'వాః |  
-_స్వ_ స్తి నః' _పూ_ షా _వి_ శ్వవే'దాః |  
-_స్వ_ స్తి _న_ స్తా _ర్క్ష్యో_ అరి'ష్టనేమిః |  
+_భ_ ద్రం ప'శ్యే _మా_ క్ష _భి_ ర్యజ'త్రాః ｜  
+_స్థి_ రైరఙ్గై''స్తు _ష్ఠు_ వాగ్^ం స' _స్త_ నూభిః' ｜  
+వ్యశే'మ _దే_ వహి' _తం_ యదాయుః' ｜  
+_స్వ_ స్తి _న_ ఇన్ద్రో' _వృ_ ద్ధశ్ర'వాః ｜  
+_స్వ_ స్తి నః' _పూ_ షా _వి_ శ్వవే'దాః ｜  
+_స్వ_ స్తి _న_ స్తా _ర్క్ష్యో_ అరి'ష్టనేమిః ｜  
 _స్వ_ స్తి _నో_ బృ _హ_ స్పతి'ర్దధాతు ‖  
 
 ఓం శా _న్తిః_ శా _న్తిః_ శాన్తిః' ‖  
 
 ఓం నమ'స్తే _గ_ ణప'తయే ❘  
-త్వ _మే_ వ _ప్ర_ త్య _క్షం_ తత్త్వ'మసి |  
-త్వ _మే_ వ _కే_ వ _లం_ కర్తా'ఽసి |  
-త్వ _మే_ వ _కే_ వ _లం_ ధర్తా'ఽసి |  
-త్వ _మే_ వ _కే_ వ _లం_ హర్తా'ఽసి |  
-త్వమేవ సర్వం ఖల్విదం' బ్ర _హ్మా_ సి |  
+త్వ _మే_ వ _ప్ర_ త్య _క్షం_ తత్త్వ'మసి ｜  
+త్వ _మే_ వ _కే_ వ _లం_ కర్తా'ఽసి ｜  
+త్వ _మే_ వ _కే_ వ _లం_ ధర్తా'ఽసి ｜  
+త్వ _మే_ వ _కే_ వ _లం_ హర్తా'ఽసి ｜  
+త్వమేవ సర్వం ఖల్విదం' బ్ర _హ్మా_ సి ｜  
 త్వం సాక్షాదాత్మా'ఽసి _ని_ త్యమ్ ‖ 1 ‖  
 ఋ'తం _వ_ చ్మి ❘  
 స'త్యం _వ_ చ్మి ‖ 2 ‖ _  
 
 అ_ వ _త్వం_ మామ్ ❘  
-అవ' _వ_ క్తారమ్'' |  
-అవ' _శ్రో_ తారమ్'' |  
-అవ' _దా_ తారమ్'' |  
-అవ' _ధా_ తారమ్'' |  
-అవానూచానమ'వ _శి_ ష్యమ్ |  
-అవ' _ప_ శ్చాత్తా''త్ |  
-అవ' _పు_ రస్తా''త్ |  
-అవో _త్త_ రాత్తా''త్ |  
-అవ' _ద_ క్షిణాత్తా''త్ |  
-అవ' _చో_ ర్ధ్వాత్తా''త్ |  
-అవా _ధ_ రాత్తా''త్ |  
+అవ' _వ_ క్తారమ్'' ｜  
+అవ' _శ్రో_ తారమ్'' ｜  
+అవ' _దా_ తారమ్'' ｜  
+అవ' _ధా_ తారమ్'' ｜  
+అవానూచానమ'వ _శి_ ష్యమ్ ｜  
+అవ' _ప_ శ్చాత్తా''త్ ｜  
+అవ' _పు_ రస్తా''త్ ｜  
+అవో _త్త_ రాత్తా''త్ ｜  
+అవ' _ద_ క్షిణాత్తా''త్ ｜  
+అవ' _చో_ ర్ధ్వాత్తా''త్ ｜  
+అవా _ధ_ రాత్తా''త్ ｜  
 సర్వతో మాం పాహి పాహి' స _మ_ న్తాత్ ‖ 3 ‖  
 
 త్వం వాఙ్మయ'స్త్వం చి _న్మ_ యః ❘  
-త్వమానన్దమయ'స్త్వం బ్ర _హ్మ_ మయః |  
-త్వం సచ్చిదానన్దాఽద్వి'తీ _యో_ ఽసి |  
-త్వం _ప్ర_ త్య _క్షం_ బ్రహ్మా'సి |  
+త్వమానన్దమయ'స్త్వం బ్ర _హ్మ_ మయః ｜  
+త్వం సచ్చిదానన్దాఽద్వి'తీ _యో_ ఽసి ｜  
+త్వం _ప్ర_ త్య _క్షం_ బ్రహ్మా'సి ｜  
 త్వం జ్ఞానమయో విజ్ఞాన'మ _యో_ ఽసి ‖ 4 ‖  
 
 సర్వం జగదిదం త్వ'త్తో _జా_ యతే ❘  
-సర్వం జగదిదం త్వ'త్త _స్తి_ ష్ఠతి |  
-సర్వం జగదిదం త్వయి లయ'మే _ష్య_ తి |  
-సర్వం జగదిదం త్వయి' ప్ర _త్యే_ తి |  
-త్వం భూమిరాపోఽనలోఽని'లో _న_ భః |  
+సర్వం జగదిదం త్వ'త్త _స్తి_ ష్ఠతి ｜  
+సర్వం జగదిదం త్వయి లయ'మే _ష్య_ తి ｜  
+సర్వం జగదిదం త్వయి' ప్ర _త్యే_ తి ｜  
+త్వం భూమిరాపోఽనలోఽని'లో _న_ భః ｜  
 త్వం చత్వారి వా''క్ప _దా_ ని ‖ 5 ‖  
 
 త్వం _గు_ ణత్ర'యా _తీ_ తః ❘  
-త్వం అవస్థాత్ర'యా _తీ_ తః |  
-త్వం _దే_ హత్ర'యా _తీ_ తః |  
-త్వం _కా_ లత్ర'యా _తీ_ తః |  
-త్వం మూలాధారస్థితో'ఽసి _ని_ త్యమ్ |  
-త్వం శక్తిత్ర'యా _త్మ_ కః |  
-త్వాం యోగినో ధ్యాయ'న్తి _ని_ త్యమ్ |  
+త్వం అవస్థాత్ర'యా _తీ_ తః ｜  
+త్వం _దే_ హత్ర'యా _తీ_ తః ｜  
+త్వం _కా_ లత్ర'యా _తీ_ తః ｜  
+త్వం మూలాధారస్థితో'ఽసి _ని_ త్యమ్ ｜  
+త్వం శక్తిత్ర'యా _త్మ_ కః ｜  
+త్వాం యోగినో ధ్యాయ'న్తి _ని_ త్యమ్ ｜  
 త్వం బ్రహ్మా త్వం విష్ణుస్త్వం రుద్రస్త్వమిన్ద్రస్త్వమగ్నిస్త్వం వాయుస్త్వం సూర్యస్త్వం చన్ద్రమాస్త్వం బ్ర _హ్మ_ భూర్భు _వః_ స్వరోమ్ ‖ 6 _‖  
 
 గ_ణాదిం'' పూర్వ'ము _చ్చా_ _ర్య_ _వ_ ర్ణాదీం'' స్తద _న_ న్తరమ్ ❘  
-అనుస్వారః ప'ర _త_ రః |  
-అర్ధే''న్దు _ల_ సితమ్ |  
-తారే'ణ _ఋ_ ద్ధమ్ |  
-ఎతత్తవ మను'స్వ _రూ_ పమ్ |  
-గకారః పూ''ర్వ _రూ_ పమ్ |  
-అకారో మధ్య'మ _రూ_ పమ్ |  
-అనుస్వారశ్చా''న్త్య _రూ_ పమ్ |  
-బిన్దురుత్త'ర _రూ_ పమ్ |  
-నాదః' స _న్ధా_ నమ్ |  
-సగంహి'తా _స_ న్ధిః |  
-సైషా గణే'శ _వి_ ద్యా |  
-గణ'క _ఋ_ షిః |  
-నిచృద్గాయ'త్రీ _చ్ఛ_ న్దః |  
-శ్రీ మహాగణపతి'ర్దేవతా |  
+అనుస్వారః ప'ర _త_ రః ｜  
+అర్ధే''న్దు _ల_ సితమ్ ｜  
+తారే'ణ _ఋ_ ద్ధమ్ ｜  
+ఎతత్తవ మను'స్వ _రూ_ పమ్ ｜  
+గకారః పూ''ర్వ _రూ_ పమ్ ｜  
+అకారో మధ్య'మ _రూ_ పమ్ ｜  
+అనుస్వారశ్చా''న్త్య _రూ_ పమ్ ｜  
+బిన్దురుత్త'ర _రూ_ పమ్ ｜  
+నాదః' స _న్ధా_ నమ్ ｜  
+సగంహి'తా _స_ న్ధిః ｜  
+సైషా గణే'శ _వి_ ద్యా ｜  
+గణ'క _ఋ_ షిః ｜  
+నిచృద్గాయ'త్రీ _చ్ఛ_ న్దః ｜  
+శ్రీ మహాగణపతి'ర్దేవతా ｜  
 ఓం గం _గ_ ణప'తయే నమః ‖ 7 ‖  
 
 ఏక _ద_ న్తాయ' _వి_ ద్మహే' వక్ర _తు_ ణ్డాయ' ధీమహి ❘  
@@ -1518,59 +1518,59 @@ _స్వ_ స్తి _నో_ బృ _హ_ స్పతి'ర్దధా�
 తన్నో' దన్తిః ప్ర _చో_ దయా''త్ ‖ 8 ‖  
 
 ఏకద _న్_ తం చ'తు _ర్హ_ _స్తం_ _పా_ శమం'కు _శ_ ధారి'ణమ్ ❘  
-రదం' _చ_ వర'దం _హ_ _స్తై_ _ర్బి_ భ్రాణం' మూ _ష_ కధ్వ'జమ్ |  
-రక్తం' _ల_ మ్బోద'రం _శూ_ _ర్ప_ కర్ణకం' ర _క్త_ వాస'సమ్ |  
-రక్త' _గ_ న్ధాను'లి _ప్తా_ _ఙ్గం_ _ర_ క్తపు'ష్పైః _సు_ పూజి'తమ్ |  
-భక్తా' _ను_ కమ్పి'నం _దే_ _వం_ _జ_ గత్కా'ర _ణ_ మచ్యు'తమ్ |  
-ఆవి' _ర్భూ_ తం చ' _సృ_ _ష్ట్యా_ _దౌ_ _ప్ర_ కృతే''ః పు _రు_ షాత్ప'రమ్ |  
+రదం' _చ_ వర'దం _హ_ _స్తై_ _ర్బి_ భ్రాణం' మూ _ష_ కధ్వ'జమ్ ｜  
+రక్తం' _ల_ మ్బోద'రం _శూ_ _ర్ప_ కర్ణకం' ర _క్త_ వాస'సమ్ ｜  
+రక్త' _గ_ న్ధాను'లి _ప్తా_ _ఙ్గం_ _ర_ క్తపు'ష్పైః _సు_ పూజి'తమ్ ｜  
+భక్తా' _ను_ కమ్పి'నం _దే_ _వం_ _జ_ గత్కా'ర _ణ_ మచ్యు'తమ్ ｜  
+ఆవి' _ర్భూ_ తం చ' _సృ_ _ష్ట్యా_ _దౌ_ _ప్ర_ కృతే''ః పు _రు_ షాత్ప'రమ్ ｜  
 ఏవం' _ధ్యా_ యతి' యో _ని_ _త్యం_ _స_ యోగీ' యో _గి_ నాం వ'రః ‖ 9 ‖  
 
 నమో వ్రాతపతయే నమో గణపతయే నమః ప్రమథపతయే నమస్తేఽస్తు లమ్బోదరాయైకదన్తాయ విఘ్నవినాశినే శివసుతాయ శ్రీవరదమూర్త _యే_  
 నమః ‖ 10 ‖  
 
 ఏతదథర్వశీర్షం యోఽ _ధీ_ తే ❘  
-స బ్రహ్మభూయా'య _క_ ల్పతే |  
-స సర్వవిఘ్నై''ర్న _బా_ ధ్యతే |  
-స సర్వతః సుఖ'మే _ధ_ తే |  
-స పఞ్చమహాపాపా''త్ ప్ర _ము_ చ్యతే |  
-_సా_ యమ'ధీ _యా_ _నో_ దివసకృతం పాపం' నా _శ_ యతి |  
-_ప్రా_ తర'ధీ _యా_ _నో_ రాత్రికృతం పాపం' నా _శ_ యతి |  
-సాయం ప్రాతః ప్ర'యు _ఞ్జా_ _నో_ పాపోఽపా'పో _భ_ వతి |  
-ధర్మార్థకామమోక్షం' చ _వి_ న్దతి |  
-ఇదమథర్వశీర్షమశిష్యాయ' న _దే_ యమ్ |  
-యో యది మో'హాద్ _దా_ స్యతి స పాపీ'యాన్ _భ_ వతి |  
-సహస్రావర్తనాద్యం యం కామ'మ _ధీ_ తే |  
+స బ్రహ్మభూయా'య _క_ ల్పతే ｜  
+స సర్వవిఘ్నై''ర్న _బా_ ధ్యతే ｜  
+స సర్వతః సుఖ'మే _ధ_ తే ｜  
+స పఞ్చమహాపాపా''త్ ప్ర _ము_ చ్యతే ｜  
+_సా_ యమ'ధీ _యా_ _నో_ దివసకృతం పాపం' నా _శ_ యతి ｜  
+_ప్రా_ తర'ధీ _యా_ _నో_ రాత్రికృతం పాపం' నా _శ_ యతి ｜  
+సాయం ప్రాతః ప్ర'యు _ఞ్జా_ _నో_ పాపోఽపా'పో _భ_ వతి ｜  
+ధర్మార్థకామమోక్షం' చ _వి_ న్దతి ｜  
+ఇదమథర్వశీర్షమశిష్యాయ' న _దే_ యమ్ ｜  
+యో యది మో'హాద్ _దా_ స్యతి స పాపీ'యాన్ _భ_ వతి ｜  
+సహస్రావర్తనాద్యం యం కామ'మ _ధీ_ తే ｜  
 తం తమనే'న _సా_ ధయేత్ ‖ 11 ‖  
 
 అనేన గణపతిమ'భి _షి_ ఞ్చతి ❘  
-స వా'గ్మీ _భ_ వతి |  
-చతుర్థ్యామన'శ్నన్ _జ_ పతి స విద్యా'వాన్ _భ_ వతి |  
-ఇత్యథర్వ'ణ _వా_ క్యమ్ |  
+స వా'గ్మీ _భ_ వతి ｜  
+చతుర్థ్యామన'శ్నన్ _జ_ పతి స విద్యా'వాన్ _భ_ వతి ｜  
+ఇత్యథర్వ'ణ _వా_ క్యమ్ ｜  
 బ్రహ్మా _ద్యా_ చర'ణం _వి_ ద్యాన్న బిభేతి కదా'చ _నే_ తి ‖ 12 ‖  
 
 యో దూర్వాఙ్కు'రై _ర్య_ జతి స వైశ్రవణోప'మో _భ_ వతి ❘  
-యో లా'జై _ర్య_ జతి స యశో'వాన్ _భ_ వతి |  
-స మేధా'వాన్ _భ_ వతి |  
-యో మోదకసహస్రే'ణ _య_ జతి స వాఞ్ఛితఫలమ'వా _ప్నో_ తి |  
+యో లా'జై _ర్య_ జతి స యశో'వాన్ _భ_ వతి ｜  
+స మేధా'వాన్ _భ_ వతి ｜  
+యో మోదకసహస్రే'ణ _య_ జతి స వాఞ్ఛితఫలమ'వా _ప్నో_ తి ｜  
 యః సాజ్య సమి'ద్భి _ర్య_ జతి స సర్వం లభతే స స'ర్వం _ల_ భతే ‖ 13 ‖  
 
 అష్టౌ బ్రాహ్మణాన్ సమ్యగ్ గ్రా'హ _యి_ త్వా సూర్యవర్చ'స్వీ _భ_ వతి ❘  
-సూర్యగ్రహే మ'హా _న_ ద్యాం ప్రతిమాసన్నిధౌ వా _జ_ ప్త్వా సిద్ధమ'న్త్రో _భ_ వతి |  
-మహావిఘ్నా''త్ ప్ర _ము_ చ్యతే |  
-మహాదోషా''త్ ప్ర _ము_ చ్యతే |  
-మహాపాపా''త్ ప్ర _ము_ చ్యతే |  
-మహాప్రత్యవాయా''త్ ప్ర _ము_ చ్యతే |  
-స సర్వ'విద్భవతి స సర్వ'వి _ద్భ_ వతి |  
-య ఏ'వం _వే_ ద |  
+సూర్యగ్రహే మ'హా _న_ ద్యాం ప్రతిమాసన్నిధౌ వా _జ_ ప్త్వా సిద్ధమ'న్త్రో _భ_ వతి ｜  
+మహావిఘ్నా''త్ ప్ర _ము_ చ్యతే ｜  
+మహాదోషా''త్ ప్ర _ము_ చ్యతే ｜  
+మహాపాపా''త్ ప్ర _ము_ చ్యతే ｜  
+మహాప్రత్యవాయా''త్ ప్ర _ము_ చ్యతే ｜  
+స సర్వ'విద్భవతి స సర్వ'వి _ద్భ_ వతి ｜  
+య ఏ'వం _వే_ ద ｜  
 ఇత్యు' _ప_ నిష'త్ ‖ 14 ‖  
 
 ఓం _భ_ ద్రం కర్ణే'భిః శృ _ణు_ యామ' దేవాః ❘  
-_భ_ ద్రం ప'శ్యే _మా_ క్ష _భి_ ర్యజ'త్రాః |  
-_స్థి_ రైరఙ్గై''స్తు _ష్ఠు_ వాగ్^ం స' _స్త_ నూభిః' |  
-వ్యశే'మ _దే_ వహి' _తం_ యదాయుః' |  
-_స్వ_ స్తి _న_ ఇన్ద్రో' _వృ_ ద్ధశ్ర'వాః |  
-_స్వ_ స్తి నః' _పూ_ షా _వి_ శ్వవే'దాః |  
-_స్వ_ స్తి _న_ స్తా _ర్క్ష్యో_ అరి'ష్టనేమిః |  
+_భ_ ద్రం ప'శ్యే _మా_ క్ష _భి_ ర్యజ'త్రాః ｜  
+_స్థి_ రైరఙ్గై''స్తు _ష్ఠు_ వాగ్^ం స' _స్త_ నూభిః' ｜  
+వ్యశే'మ _దే_ వహి' _తం_ యదాయుః' ｜  
+_స్వ_ స్తి _న_ ఇన్ద్రో' _వృ_ ద్ధశ్ర'వాః ｜  
+_స్వ_ స్తి నః' _పూ_ షా _వి_ శ్వవే'దాః ｜  
+_స్వ_ స్తి _న_ స్తా _ర్క్ష్యో_ అరి'ష్టనేమిః ｜  
 _స్వ_ స్తి _నో_ బృ _హ_ స్పతి'ర్దధాతు ‖  
 
 ఓం శా _న్తిః_ శా _న్తిః_ శాన్తిః' ‖  
@@ -1583,77 +1583,77 @@ _స్వ_ స్తి _నో_ బృ _హ_ స్పతి'ర్దధా�
 ‖ க3ணபத்யத2ர்வஶீர்ஷோபநிஷத் (ஶ்ரீ க3ணேஷாத2ர்வஷீர்ஷம்) ‖  
 
 ஓம் _ப_ 4த்3ரம் கர்ணே'பி4ஃ ஶ்ரு _ணு_ யாம' தே3வாஃ ❘  
-_ப_ 4த்3ரம் ப'ஶ்யே _மா_ க்ஷ _பி 4_ர்யஜ'த்ராஃ |  
-_ஸ்தி 2_ரைரங்கை3''ஸ்து _ஷ்டு 2_வாக்3^ம் ஸ' _ஸ்த_ நூபி4ஃ' |  
-வ்யஶே'ம _தே 3_வஹி' _தம்_ யதா3யுஃ' |  
-_ஸ்வ_ ஸ்தி _ந_ இந்த்3ரோ' _வ்ரு_ த்3த4ஶ்ர'வாஃ |  
-_ஸ்வ_ ஸ்தி நஃ' _பூ_ ஷா _வி_ ஶ்வவே'தா3ஃ |  
-_ஸ்வ_ ஸ்தி _ந_ ஸ்தா _ர்க்ஷ்யோ_ அரி'ஷ்டநேமிஃ |  
+_ப_ 4த்3ரம் ப'ஶ்யே _மா_ க்ஷ _பி 4_ர்யஜ'த்ராஃ ｜  
+_ஸ்தி 2_ரைரங்கை3''ஸ்து _ஷ்டு 2_வாக்3^ம் ஸ' _ஸ்த_ நூபி4ஃ' ｜  
+வ்யஶே'ம _தே 3_வஹி' _தம்_ யதா3யுஃ' ｜  
+_ஸ்வ_ ஸ்தி _ந_ இந்த்3ரோ' _வ்ரு_ த்3த4ஶ்ர'வாஃ ｜  
+_ஸ்வ_ ஸ்தி நஃ' _பூ_ ஷா _வி_ ஶ்வவே'தா3ஃ ｜  
+_ஸ்வ_ ஸ்தி _ந_ ஸ்தா _ர்க்ஷ்யோ_ அரி'ஷ்டநேமிஃ ｜  
 _ஸ்வ_ ஸ்தி _நோ_ ப்3ரு _ஹ_ ஸ்பதி'ர்த3தா4து ‖  
 
 ஓம் ஶா _ந்திஃ_ ஶா _ந்திஃ_ ஶாந்திஃ' ‖  
 
 ஓம் நம'ஸ்தே _க_ 3ணப'தயே ❘  
-த்வ _மே_ வ _ப்ர_ த்ய _க்ஷம்_ தத்த்வ'மஸி |  
-த்வ _மே_ வ _கே_ வ _லம்_ கர்தா'ஸி |  
-த்வ _மே_ வ _கே_ வ _லம்_ த4ர்தா'ஸி |  
-த்வ _மே_ வ _கே_ வ _லம்_ ஹர்தா'ஸி |  
-த்வமேவ ஸர்வம் க2ல்வித3ம்' ப்3ர _ஹ்மா_ ஸி |  
+த்வ _மே_ வ _ப்ர_ த்ய _க்ஷம்_ தத்த்வ'மஸி ｜  
+த்வ _மே_ வ _கே_ வ _லம்_ கர்தா'ஸி ｜  
+த்வ _மே_ வ _கே_ வ _லம்_ த4ர்தா'ஸி ｜  
+த்வ _மே_ வ _கே_ வ _லம்_ ஹர்தா'ஸி ｜  
+த்வமேவ ஸர்வம் க2ல்வித3ம்' ப்3ர _ஹ்மா_ ஸி ｜  
 த்வம் ஸாக்ஷாதா3த்மா'ஸி _நி_ த்யம் ‖ 1 ‖  
 ரு'தம் _வ_ ச்மி ❘  
 ஸ'த்யம் _வ_ ச்மி ‖ 2 ‖ _  
 
 அ_ வ _த்வம்_ மாம் ❘  
-அவ' _வ_ க்தாரம்'' |  
-அவ' _ஶ்ரோ_ தாரம்'' |  
-அவ' _தா 3_தாரம்'' |  
-அவ' _தா 4_தாரம்'' |  
-அவாநூசாநம'வ _ஶி_ ஷ்யம் |  
-அவ' _ப_ ஶ்சாத்தா''த் |  
-அவ' _பு_ ரஸ்தா''த் |  
-அவோ _த்த_ ராத்தா''த் |  
-அவ' _த_ 3க்ஷிணாத்தா''த் |  
-அவ' _சோ_ ர்த்4வாத்தா''த் |  
-அவா _த_ 4ராத்தா''த் |  
+அவ' _வ_ க்தாரம்'' ｜  
+அவ' _ஶ்ரோ_ தாரம்'' ｜  
+அவ' _தா 3_தாரம்'' ｜  
+அவ' _தா 4_தாரம்'' ｜  
+அவாநூசாநம'வ _ஶி_ ஷ்யம் ｜  
+அவ' _ப_ ஶ்சாத்தா''த் ｜  
+அவ' _பு_ ரஸ்தா''த் ｜  
+அவோ _த்த_ ராத்தா''த் ｜  
+அவ' _த_ 3க்ஷிணாத்தா''த் ｜  
+அவ' _சோ_ ர்த்4வாத்தா''த் ｜  
+அவா _த_ 4ராத்தா''த் ｜  
 ஸர்வதோ மாம் பாஹி பாஹி' ஸ _ம_ ந்தாத் ‖ 3 ‖  
 
 த்வம் வாங்மய'ஸ்த்வம் சி _ந்ம_ யஃ ❘  
-த்வமாநந்த3மய'ஸ்த்வம் ப்3ர _ஹ்ம_ மயஃ |  
-த்வம் ஸச்சிதா3நந்தா3த்3வி'தீ _யோ_ ஸி |  
-த்வம் _ப்ர_ த்ய _க்ஷம்_ ப்3ரஹ்மா'ஸி |  
+த்வமாநந்த3மய'ஸ்த்வம் ப்3ர _ஹ்ம_ மயஃ ｜  
+த்வம் ஸச்சிதா3நந்தா3த்3வி'தீ _யோ_ ஸி ｜  
+த்வம் _ப்ர_ த்ய _க்ஷம்_ ப்3ரஹ்மா'ஸி ｜  
 த்வம் ஜ்ஞாநமயோ விஜ்ஞாந'ம _யோ_ ஸி ‖ 4 ‖  
 
 ஸர்வம் ஜக3தி3த3ம் த்வ'த்தோ _ஜா_ யதே ❘  
-ஸர்வம் ஜக3தி3த3ம் த்வ'த்த _ஸ்தி_ ஷ்ட2தி |  
-ஸர்வம் ஜக3தி3த3ம் த்வயி லய'மே _ஷ்ய_ தி |  
-ஸர்வம் ஜக3தி3த3ம் த்வயி' ப்ர _த்யே_ தி |  
-த்வம் பூ4மிராபோநலோநி'லோ _ந_ பஃ4 |  
+ஸர்வம் ஜக3தி3த3ம் த்வ'த்த _ஸ்தி_ ஷ்ட2தி ｜  
+ஸர்வம் ஜக3தி3த3ம் த்வயி லய'மே _ஷ்ய_ தி ｜  
+ஸர்வம் ஜக3தி3த3ம் த்வயி' ப்ர _த்யே_ தி ｜  
+த்வம் பூ4மிராபோநலோநி'லோ _ந_ பஃ4 ｜  
 த்வம் சத்வாரி வா''க்ப _தா 3_நி ‖ 5 ‖  
 
 த்வம் _கு 3_ணத்ர'யா _தீ_ தஃ ❘  
-த்வம் அவஸ்தா2த்ர'யா _தீ_ தஃ |  
-த்வம் _தே 3_ஹத்ர'யா _தீ_ தஃ |  
-த்வம் _கா_ லத்ர'யா _தீ_ தஃ |  
-த்வம் மூலாதா4ரஸ்தி2தோ'ஸி _நி_ த்யம் |  
-த்வம் ஶக்தித்ர'யா _த்ம_ கஃ |  
-த்வாம் யோகி3நோ த்4யாய'ந்தி _நி_ த்யம் |  
+த்வம் அவஸ்தா2த்ர'யா _தீ_ தஃ ｜  
+த்வம் _தே 3_ஹத்ர'யா _தீ_ தஃ ｜  
+த்வம் _கா_ லத்ர'யா _தீ_ தஃ ｜  
+த்வம் மூலாதா4ரஸ்தி2தோ'ஸி _நி_ த்யம் ｜  
+த்வம் ஶக்தித்ர'யா _த்ம_ கஃ ｜  
+த்வாம் யோகி3நோ த்4யாய'ந்தி _நி_ த்யம் ｜  
 த்வம் ப்3ரஹ்மா த்வம் விஷ்ணுஸ்த்வம் ருத்3ரஸ்த்வமிந்த்3ரஸ்த்வமக்3நிஸ்த்வம் வாயுஸ்த்வம் ஸூர்யஸ்த்வம் சந்த்3ரமாஸ்த்வம் ப்3ர _ஹ்ம_ பூ4ர்பு4 _வஃ_ ஸ்வரோம் ‖ 6 _‖  
 
 க_3ணாதி3ம்'' பூர்வ'மு _ச்சா_ _ர்ய_ _வ_ ர்ணாதீ3ம்'' ஸ்தத _3 ந_ந்தரம் ❘  
-அநுஸ்வாரஃ ப'ர _த_ ரஃ |  
-அர்தே4''ந்து3 _ல_ ஸிதம் |  
-தாரே'ண _ரு_ த்3த4ம் |  
-எதத்தவ மநு'ஸ்வ _ரூ_ பம் |  
-க3காரஃ பூ''ர்வ _ரூ_ பம் |  
-அகாரோ மத்4ய'ம _ரூ_ பம் |  
-அநுஸ்வாரஶ்சா''ந்த்ய _ரூ_ பம் |  
-பி3ந்து3ருத்த'ர _ரூ_ பம் |  
-நாதஃ3' ஸ _ந்தா 4_நம் |  
-ஸக்3ம்ஹி'தா _ஸ_ ந்தி4ஃ |  
-ஸைஷா க3ணே'ஶ _வி_ த்3யா |  
-க3ண'க _ரு_ ஷிஃ |  
-நிச்ருத்3கா3ய'த்ரீ _ச்ச_ 2ந்தஃ3 |  
-ஶ்ரீ மஹாக3ணபதி'ர்தே3வதா |  
+அநுஸ்வாரஃ ப'ர _த_ ரஃ ｜  
+அர்தே4''ந்து3 _ல_ ஸிதம் ｜  
+தாரே'ண _ரு_ த்3த4ம் ｜  
+எதத்தவ மநு'ஸ்வ _ரூ_ பம் ｜  
+க3காரஃ பூ''ர்வ _ரூ_ பம் ｜  
+அகாரோ மத்4ய'ம _ரூ_ பம் ｜  
+அநுஸ்வாரஶ்சா''ந்த்ய _ரூ_ பம் ｜  
+பி3ந்து3ருத்த'ர _ரூ_ பம் ｜  
+நாதஃ3' ஸ _ந்தா 4_நம் ｜  
+ஸக்3ம்ஹி'தா _ஸ_ ந்தி4ஃ ｜  
+ஸைஷா க3ணே'ஶ _வி_ த்3யா ｜  
+க3ண'க _ரு_ ஷிஃ ｜  
+நிச்ருத்3கா3ய'த்ரீ _ச்ச_ 2ந்தஃ3 ｜  
+ஶ்ரீ மஹாக3ணபதி'ர்தே3வதா ｜  
 ஓம் க3ம் _க_ 3ணப'தயே நமஃ ‖ 7 ‖  
 
 ஏக _த_ 3ந்தாய' _வி_ த்3மஹே' வக்ர _து_ ண்டா3ய' தீ4மஹி ❘  
@@ -1661,59 +1661,59 @@ _ஸ்வ_ ஸ்தி _நோ_ ப்3ரு _ஹ_ ஸ்பதி'ர்த3
 தந்நோ' த3ந்திஃ ப்ர _சோ_ த3யா''த் ‖ 8 ‖  
 
 ஏகத _3 ந்_தம் ச'து _ர்ஹ_ _ஸ்தம்_ _பா_ ஶமம்'கு _ஶ_ தா4ரி'ணம் ❘  
-ரத3ம்' _ச_ வர'த3ம் _ஹ_ _ஸ்தை_ _ர்பி 3_ப்4ராணம்' மூ _ஷ_ கத்4வ'ஜம் |  
-ரக்தம்' _ல_ ம்போ3த'3ரம் _ஶூ_ _ர்ப_ கர்ணகம்' ர _க்த_ வாஸ'ஸம் |  
-ரக்த' _க_ 3ந்தா4நு'லி _ப்தா_ _ங்க 3ம்_ _ர_ க்தபு'ஷ்பைஃ _ஸு_ பூஜி'தம் |  
-ப4க்தா' _நு_ கம்பி'நம் _தே 3_ _வம்_ _ஜ_ க3த்கா'ர _ண_ மச்யு'தம் |  
-ஆவி' _ர்பூ 4_தம் ச' _ஸ்ரு_ _ஷ்ட்யா_ _தௌ 3_ _ப்ர_ க்ருதே''ஃ பு _ரு_ ஷாத்ப'ரம் |  
+ரத3ம்' _ச_ வர'த3ம் _ஹ_ _ஸ்தை_ _ர்பி 3_ப்4ராணம்' மூ _ஷ_ கத்4வ'ஜம் ｜  
+ரக்தம்' _ல_ ம்போ3த'3ரம் _ஶூ_ _ர்ப_ கர்ணகம்' ர _க்த_ வாஸ'ஸம் ｜  
+ரக்த' _க_ 3ந்தா4நு'லி _ப்தா_ _ங்க 3ம்_ _ர_ க்தபு'ஷ்பைஃ _ஸு_ பூஜி'தம் ｜  
+ப4க்தா' _நு_ கம்பி'நம் _தே 3_ _வம்_ _ஜ_ க3த்கா'ர _ண_ மச்யு'தம் ｜  
+ஆவி' _ர்பூ 4_தம் ச' _ஸ்ரு_ _ஷ்ட்யா_ _தௌ 3_ _ப்ர_ க்ருதே''ஃ பு _ரு_ ஷாத்ப'ரம் ｜  
 ஏவம்' _த் 4யா_யதி' யோ _நி_ _த்யம்_ _ஸ_ யோகீ3' யோ _கி 3_நாம் வ'ரஃ ‖ 9 ‖  
 
 நமோ வ்ராதபதயே நமோ க3ணபதயே நமஃ ப்ரமத2பதயே நமஸ்தேஸ்து லம்போ3த3ராயைகத3ந்தாய விக்4நவிநாஶிநே ஶிவஸுதாய ஶ்ரீவரத3மூர்த _யே_  
 நமஃ ‖ 1௦ ‖  
 
 ஏதத3த2ர்வஶீர்ஷம் யோ _தீ 4_தே ❘  
-ஸ ப்3ரஹ்மபூ4யா'ய _க_ ல்பதே |  
-ஸ ஸர்வவிக்4நை''ர்ந _பா 3_த்4யதே |  
-ஸ ஸர்வதஃ ஸுக'2மே _த_ 4தே |  
-ஸ பஂசமஹாபாபா''த் ப்ர _மு_ ச்யதே |  
-_ஸா_ யம'தீ4 _யா_ _நோ_ தி3வஸக்ருதம் பாபம்' நா _ஶ_ யதி |  
-_ப்ரா_ தர'தீ4 _யா_ _நோ_ ராத்ரிக்ருதம் பாபம்' நா _ஶ_ யதி |  
-ஸாயம் ப்ராதஃ ப்ர'யு _ஂஜா_ _நோ_ பாபோபா'போ _ப_ 4வதி |  
-த4ர்மார்த2காமமோக்ஷம்' ச _வி_ ந்த3தி |  
-இத3மத2ர்வஶீர்ஷமஶிஷ்யாய' ந _தே 3_யம் |  
-யோ யதி3 மோ'ஹாத்3 _தா 3_ஸ்யதி ஸ பாபீ'யாந் _ப_ 4வதி |  
-ஸஹஸ்ராவர்தநாத்3யம் யம் காம'ம _தீ 4_தே |  
+ஸ ப்3ரஹ்மபூ4யா'ய _க_ ல்பதே ｜  
+ஸ ஸர்வவிக்4நை''ர்ந _பா 3_த்4யதே ｜  
+ஸ ஸர்வதஃ ஸுக'2மே _த_ 4தே ｜  
+ஸ பஂசமஹாபாபா''த் ப்ர _மு_ ச்யதே ｜  
+_ஸா_ யம'தீ4 _யா_ _நோ_ தி3வஸக்ருதம் பாபம்' நா _ஶ_ யதி ｜  
+_ப்ரா_ தர'தீ4 _யா_ _நோ_ ராத்ரிக்ருதம் பாபம்' நா _ஶ_ யதி ｜  
+ஸாயம் ப்ராதஃ ப்ர'யு _ஂஜா_ _நோ_ பாபோபா'போ _ப_ 4வதி ｜  
+த4ர்மார்த2காமமோக்ஷம்' ச _வி_ ந்த3தி ｜  
+இத3மத2ர்வஶீர்ஷமஶிஷ்யாய' ந _தே 3_யம் ｜  
+யோ யதி3 மோ'ஹாத்3 _தா 3_ஸ்யதி ஸ பாபீ'யாந் _ப_ 4வதி ｜  
+ஸஹஸ்ராவர்தநாத்3யம் யம் காம'ம _தீ 4_தே ｜  
 தம் தமநே'ந _ஸா_ த4யேத் ‖ 11 ‖  
 
 அநேந க3ணபதிம'பி4 _ஷி_ ஂசதி ❘  
-ஸ வா'க்3மீ _ப_ 4வதி |  
-சதுர்த்2யாமந'ஶ்நந் _ஜ_ பதி ஸ வித்3யா'வாந் _ப_ 4வதி |  
-இத்யத2ர்வ'ண _வா_ க்யம் |  
+ஸ வா'க்3மீ _ப_ 4வதி ｜  
+சதுர்த்2யாமந'ஶ்நந் _ஜ_ பதி ஸ வித்3யா'வாந் _ப_ 4வதி ｜  
+இத்யத2ர்வ'ண _வா_ க்யம் ｜  
 ப்3ரஹ்மா _த் 3யா_சர'ணம் _வி_ த்3யாந்ந பி3பே4தி கதா3'ச _நே_ தி ‖ 12 ‖  
 
 யோ தூ3ர்வாஂகு'ரை _ர்ய_ ஜதி ஸ வைஶ்ரவணோப'மோ _ப_ 4வதி ❘  
-யோ லா'ஜை _ர்ய_ ஜதி ஸ யஶோ'வாந் _ப_ 4வதி |  
-ஸ மேதா4'வாந் _ப_ 4வதி |  
-யோ மோத3கஸஹஸ்ரே'ண _ய_ ஜதி ஸ வாஞ்சி2தப2லம'வா _ப்நோ_ தி |  
+யோ லா'ஜை _ர்ய_ ஜதி ஸ யஶோ'வாந் _ப_ 4வதி ｜  
+ஸ மேதா4'வாந் _ப_ 4வதி ｜  
+யோ மோத3கஸஹஸ்ரே'ண _ய_ ஜதி ஸ வாஞ்சி2தப2லம'வா _ப்நோ_ தி ｜  
 யஃ ஸாஜ்ய ஸமி'த்3பி4 _ர்ய_ ஜதி ஸ ஸர்வம் லப4தே ஸ ஸ'ர்வம் _ல_ ப4தே ‖ 13 ‖  
 
 அஷ்டௌ ப்3ராஹ்மணாந் ஸம்யக்3 க்3ரா'ஹ _யி_ த்வா ஸூர்யவர்ச'ஸ்வீ _ப_ 4வதி ❘  
-ஸூர்யக்3ரஹே ம'ஹா _ந_ த்3யாம் ப்ரதிமாஸந்நிதௌ4 வா _ஜ_ ப்த்வா ஸித்3த4ம'ந்த்ரோ _ப_ 4வதி |  
-மஹாவிக்4நா''த் ப்ர _மு_ ச்யதே |  
-மஹாதோ3ஷா''த் ப்ர _மு_ ச்யதே |  
-மஹாபாபா''த் ப்ர _மு_ ச்யதே |  
-மஹாப்ரத்யவாயா''த் ப்ர _மு_ ச்யதே |  
-ஸ ஸர்வ'வித்3ப4வதி ஸ ஸர்வ'வி _த் 3ப_4வதி |  
-ய ஏ'வம் _வே_ த3 |  
+ஸூர்யக்3ரஹே ம'ஹா _ந_ த்3யாம் ப்ரதிமாஸந்நிதௌ4 வா _ஜ_ ப்த்வா ஸித்3த4ம'ந்த்ரோ _ப_ 4வதி ｜  
+மஹாவிக்4நா''த் ப்ர _மு_ ச்யதே ｜  
+மஹாதோ3ஷா''த் ப்ர _மு_ ச்யதே ｜  
+மஹாபாபா''த் ப்ர _மு_ ச்யதே ｜  
+மஹாப்ரத்யவாயா''த் ப்ர _மு_ ச்யதே ｜  
+ஸ ஸர்வ'வித்3ப4வதி ஸ ஸர்வ'வி _த் 3ப_4வதி ｜  
+ய ஏ'வம் _வே_ த3 ｜  
 இத்யு' _ப_ நிஷ'த் ‖ 14 ‖  
 
 ஓம் _ப_ 4த்3ரம் கர்ணே'பி4ஃ ஶ்ரு _ணு_ யாம' தே3வாஃ ❘  
-_ப_ 4த்3ரம் ப'ஶ்யே _மா_ க்ஷ _பி 4_ர்யஜ'த்ராஃ |  
-_ஸ்தி 2_ரைரங்கை3''ஸ்து _ஷ்டு 2_வாக்3^ம் ஸ' _ஸ்த_ நூபி4ஃ' |  
-வ்யஶே'ம _தே 3_வஹி' _தம்_ யதா3யுஃ' |  
-_ஸ்வ_ ஸ்தி _ந_ இந்த்3ரோ' _வ்ரு_ த்3த4ஶ்ர'வாஃ |  
-_ஸ்வ_ ஸ்தி நஃ' _பூ_ ஷா _வி_ ஶ்வவே'தா3ஃ |  
-_ஸ்வ_ ஸ்தி _ந_ ஸ்தா _ர்க்ஷ்யோ_ அரி'ஷ்டநேமிஃ |  
+_ப_ 4த்3ரம் ப'ஶ்யே _மா_ க்ஷ _பி 4_ர்யஜ'த்ராஃ ｜  
+_ஸ்தி 2_ரைரங்கை3''ஸ்து _ஷ்டு 2_வாக்3^ம் ஸ' _ஸ்த_ நூபி4ஃ' ｜  
+வ்யஶே'ம _தே 3_வஹி' _தம்_ யதா3யுஃ' ｜  
+_ஸ்வ_ ஸ்தி _ந_ இந்த்3ரோ' _வ்ரு_ த்3த4ஶ்ர'வாஃ ｜  
+_ஸ்வ_ ஸ்தி நஃ' _பூ_ ஷா _வி_ ஶ்வவே'தா3ஃ ｜  
+_ஸ்வ_ ஸ்தி _ந_ ஸ்தா _ர்க்ஷ்யோ_ அரி'ஷ்டநேமிஃ ｜  
 _ஸ்வ_ ஸ்தி _நோ_ ப்3ரு _ஹ_ ஸ்பதி'ர்த3தா4து ‖  
 
 ஓம் ஶா _ந்திஃ_ ஶா _ந்திஃ_ ஶாந்திஃ' ‖  
@@ -1726,77 +1726,77 @@ _ஸ்வ_ ஸ்தி _நோ_ ப்3ரு _ஹ_ ஸ்பதி'ர்த3
 ‖ గణపత్యథర్వశీర్షోపనిషత్ (శ్రీ గణేషాథర్వషీర్షమ్) ‖  
 
 ఓం _భ_ ద్రం కర్ణే'భిః శృ _ణు_ యామ' దేవాః ❘  
-_భ_ ద్రం ప'శ్యే _మా_ క్ష _భి_ ర్యజ'త్రాః |  
-_స్థి_ రైరంగై''స్తు _ష్ఠు_ వాగ్^ం స' _స్త_ నూభిః' |  
-వ్యశే'మ _దే_ వహి' _తం_ యదాయుః' |  
-_స్వ_ స్తి _న_ ఇంద్రో' _వృ_ ద్ధశ్ర'వాః |  
-_స్వ_ స్తి నః' _పూ_ షా _వి_ శ్వవే'దాః |  
-_స్వ_ స్తి _న_ స్తా _ర్క్ష్యో_ అరి'ష్టనేమిః |  
+_భ_ ద్రం ప'శ్యే _మా_ క్ష _భి_ ర్యజ'త్రాః ｜  
+_స్థి_ రైరంగై''స్తు _ష్ఠు_ వాగ్^ం స' _స్త_ నూభిః' ｜  
+వ్యశే'మ _దే_ వహి' _తం_ యదాయుః' ｜  
+_స్వ_ స్తి _న_ ఇంద్రో' _వృ_ ద్ధశ్ర'వాః ｜  
+_స్వ_ స్తి నః' _పూ_ షా _వి_ శ్వవే'దాః ｜  
+_స్వ_ స్తి _న_ స్తా _ర్క్ష్యో_ అరి'ష్టనేమిః ｜  
 _స్వ_ స్తి _నో_ బృ _హ_ స్పతి'ర్దధాతు ‖  
 
 ఓం శా _ంతిః_ శా _ంతిః_ శాంతిః' ‖  
 
 ఓం నమ'స్తే _గ_ ణప'తయే ❘  
-త్వ _మే_ వ _ప్ర_ త్య _క్షం_ తత్త్వ'మసి |  
-త్వ _మే_ వ _కే_ వ _లం_ కర్తా'ఽసి |  
-త్వ _మే_ వ _కే_ వ _లం_ ధర్తా'ఽసి |  
-త్వ _మే_ వ _కే_ వ _లం_ హర్తా'ఽసి |  
-త్వమేవ సర్వం ఖల్విదం' బ్ర _హ్మా_ సి |  
+త్వ _మే_ వ _ప్ర_ త్య _క్షం_ తత్త్వ'మసి ｜  
+త్వ _మే_ వ _కే_ వ _లం_ కర్తా'ఽసి ｜  
+త్వ _మే_ వ _కే_ వ _లం_ ధర్తా'ఽసి ｜  
+త్వ _మే_ వ _కే_ వ _లం_ హర్తా'ఽసి ｜  
+త్వమేవ సర్వం ఖల్విదం' బ్ర _హ్మా_ సి ｜  
 త్వం సాక్షాదాత్మా'ఽసి _ని_ త్యమ్ ‖ 1 ‖  
 ఋ'తం _వ_ చ్మి ❘  
 స'త్యం _వ_ చ్మి ‖ 2 ‖ _  
 
 అ_ వ _త్వం_ మామ్ ❘  
-అవ' _వ_ క్తారమ్'' |  
-అవ' _శ్రో_ తారమ్'' |  
-అవ' _దా_ తారమ్'' |  
-అవ' _ధా_ తారమ్'' |  
-అవానూచానమ'వ _శి_ ష్యమ్ |  
-అవ' _ప_ శ్చాత్తా''త్ |  
-అవ' _పు_ రస్తా''త్ |  
-అవో _త్త_ రాత్తా''త్ |  
-అవ' _ద_ క్షిణాత్తా''త్ |  
-అవ' _చో_ ర్ధ్వాత్తా''త్ |  
-అవా _ధ_ రాత్తా''త్ |  
+అవ' _వ_ క్తారమ్'' ｜  
+అవ' _శ్రో_ తారమ్'' ｜  
+అవ' _దా_ తారమ్'' ｜  
+అవ' _ధా_ తారమ్'' ｜  
+అవానూచానమ'వ _శి_ ష్యమ్ ｜  
+అవ' _ప_ శ్చాత్తా''త్ ｜  
+అవ' _పు_ రస్తా''త్ ｜  
+అవో _త్త_ రాత్తా''త్ ｜  
+అవ' _ద_ క్షిణాత్తా''త్ ｜  
+అవ' _చో_ ర్ధ్వాత్తా''త్ ｜  
+అవా _ధ_ రాత్తా''త్ ｜  
 సర్వతో మాం పాహి పాహి' స _మ_ ంతాత్ ‖ 3 ‖  
 
 త్వం వాఙ్మయ'స్త్వం చి _న్మ_ యః ❘  
-త్వమానందమయ'స్త్వం బ్ర _హ్మ_ మయః |  
-త్వం సచ్చిదానందాఽద్వి'తీ _యో_ ఽసి |  
-త్వం _ప్ర_ త్య _క్షం_ బ్రహ్మా'సి |  
+త్వమానందమయ'స్త్వం బ్ర _హ్మ_ మయః ｜  
+త్వం సచ్చిదానందాఽద్వి'తీ _యో_ ఽసి ｜  
+త్వం _ప్ర_ త్య _క్షం_ బ్రహ్మా'సి ｜  
 త్వం జ్ఞానమయో విజ్ఞాన'మ _యో_ ఽసి ‖ 4 ‖  
 
 సర్వం జగదిదం త్వ'త్తో _జా_ యతే ❘  
-సర్వం జగదిదం త్వ'త్త _స్తి_ ష్ఠతి |  
-సర్వం జగదిదం త్వయి లయ'మే _ష్య_ తి |  
-సర్వం జగదిదం త్వయి' ప్ర _త్యే_ తి |  
-త్వం భూమిరాపోఽనలోఽని'లో _న_ భః |  
+సర్వం జగదిదం త్వ'త్త _స్తి_ ష్ఠతి ｜  
+సర్వం జగదిదం త్వయి లయ'మే _ష్య_ తి ｜  
+సర్వం జగదిదం త్వయి' ప్ర _త్యే_ తి ｜  
+త్వం భూమిరాపోఽనలోఽని'లో _న_ భః ｜  
 త్వం చత్వారి వా''క్ప _దా_ ని ‖ 5 ‖  
 
 త్వం _గు_ ణత్ర'యా _తీ_ తః ❘  
-త్వం అవస్థాత్ర'యా _తీ_ తః |  
-త్వం _దే_ హత్ర'యా _తీ_ తః |  
-త్వం _కా_ లత్ర'యా _తీ_ తః |  
-త్వం మూలాధారస్థితో'ఽసి _ని_ త్యమ్ |  
-త్వం శక్తిత్ర'యా _త్మ_ కః |  
-త్వాం యోగినో ధ్యాయ'ంతి _ని_ త్యమ్ |  
+త్వం అవస్థాత్ర'యా _తీ_ తః ｜  
+త్వం _దే_ హత్ర'యా _తీ_ తః ｜  
+త్వం _కా_ లత్ర'యా _తీ_ తః ｜  
+త్వం మూలాధారస్థితో'ఽసి _ని_ త్యమ్ ｜  
+త్వం శక్తిత్ర'యా _త్మ_ కః ｜  
+త్వాం యోగినో ధ్యాయ'ంతి _ని_ త్యమ్ ｜  
 త్వం బ్రహ్మా త్వం విష్ణుస్త్వం రుద్రస్త్వమింద్రస్త్వమగ్నిస్త్వం వాయుస్త్వం సూర్యస్త్వం చంద్రమాస్త్వం బ్ర _హ్మ_ భూర్భు _వః_ స్వరోమ్ ‖ 6 _‖  
 
 గ_ణాదిం'' పూర్వ'ము _చ్చా_ _ర్య_ _వ_ ర్ణాదీం'' స్తద _న_ ంతరమ్ ❘  
-అనుస్వారః ప'ర _త_ రః |  
-అర్ధే''ందు _ల_ సితమ్ |  
-తారే'ణ _ఋ_ ద్ధమ్ |  
-ఎతత్తవ మను'స్వ _రూ_ పమ్ |  
-గకారః పూ''ర్వ _రూ_ పమ్ |  
-అకారో మధ్య'మ _రూ_ పమ్ |  
-అనుస్వారశ్చా''ంత్య _రూ_ పమ్ |  
-బిందురుత్త'ర _రూ_ పమ్ |  
-నాదః' స _ంధా_ నమ్ |  
-సగంహి'తా _స_ ంధిః |  
-సైషా గణే'శ _వి_ ద్యా |  
-గణ'క _ఋ_ షిః |  
-నిచృద్గాయ'త్రీ _చ్ఛ_ ందః |  
-శ్రీ మహాగణపతి'ర్దేవతా |  
+అనుస్వారః ప'ర _త_ రః ｜  
+అర్ధే''ందు _ల_ సితమ్ ｜  
+తారే'ణ _ఋ_ ద్ధమ్ ｜  
+ఎతత్తవ మను'స్వ _రూ_ పమ్ ｜  
+గకారః పూ''ర్వ _రూ_ పమ్ ｜  
+అకారో మధ్య'మ _రూ_ పమ్ ｜  
+అనుస్వారశ్చా''ంత్య _రూ_ పమ్ ｜  
+బిందురుత్త'ర _రూ_ పమ్ ｜  
+నాదః' స _ంధా_ నమ్ ｜  
+సగంహి'తా _స_ ంధిః ｜  
+సైషా గణే'శ _వి_ ద్యా ｜  
+గణ'క _ఋ_ షిః ｜  
+నిచృద్గాయ'త్రీ _చ్ఛ_ ందః ｜  
+శ్రీ మహాగణపతి'ర్దేవతా ｜  
 ఓం గం _గ_ ణప'తయే నమః ‖ 7 ‖  
 
 ఏక _ద_ ంతాయ' _వి_ ద్మహే' వక్ర _తు_ ండాయ' ధీమహి ❘  
@@ -1804,59 +1804,59 @@ _స్వ_ స్తి _నో_ బృ _హ_ స్పతి'ర్దధా�
 తన్నో' దంతిః ప్ర _చో_ దయా''త్ ‖ 8 ‖  
 
 ఏకద _న్_ తం చ'తు _ర్హ_ _స్తం_ _పా_ శమం'కు _శ_ ధారి'ణమ్ ❘  
-రదం' _చ_ వర'దం _హ_ _స్తై_ _ర్బి_ భ్రాణం' మూ _ష_ కధ్వ'జమ్ |  
-రక్తం' _ల_ ంబోద'రం _శూ_ _ర్ప_ కర్ణకం' ర _క్త_ వాస'సమ్ |  
-రక్త' _గ_ ంధాను'లి _ప్తా_ _ంగం_ _ర_ క్తపు'ష్పైః _సు_ పూజి'తమ్ |  
-భక్తా' _ను_ కంపి'నం _దే_ _వం_ _జ_ గత్కా'ర _ణ_ మచ్యు'తమ్ |  
-ఆవి' _ర్భూ_ తం చ' _సృ_ _ష్ట్యా_ _దౌ_ _ప్ర_ కృతే''ః పు _రు_ షాత్ప'రమ్ |  
+రదం' _చ_ వర'దం _హ_ _స్తై_ _ర్బి_ భ్రాణం' మూ _ష_ కధ్వ'జమ్ ｜  
+రక్తం' _ల_ ంబోద'రం _శూ_ _ర్ప_ కర్ణకం' ర _క్త_ వాస'సమ్ ｜  
+రక్త' _గ_ ంధాను'లి _ప్తా_ _ంగం_ _ర_ క్తపు'ష్పైః _సు_ పూజి'తమ్ ｜  
+భక్తా' _ను_ కంపి'నం _దే_ _వం_ _జ_ గత్కా'ర _ణ_ మచ్యు'తమ్ ｜  
+ఆవి' _ర్భూ_ తం చ' _సృ_ _ష్ట్యా_ _దౌ_ _ప్ర_ కృతే''ః పు _రు_ షాత్ప'రమ్ ｜  
 ఏవం' _ధ్యా_ యతి' యో _ని_ _త్యం_ _స_ యోగీ' యో _గి_ నాం వ'రః ‖ 9 ‖  
 
 నమో వ్రాతపతయే నమో గణపతయే నమః ప్రమథపతయే నమస్తేఽస్తు లంబోదరాయైకదంతాయ విఘ్నవినాశినే శివసుతాయ శ్రీవరదమూర్త _యే_  
 నమః ‖ 10 ‖  
 
 ఏతదథర్వశీర్షం యోఽ _ధీ_ తే ❘  
-స బ్రహ్మభూయా'య _క_ ల్పతే |  
-స సర్వవిఘ్నై''ర్న _బా_ ధ్యతే |  
-స సర్వతః సుఖ'మే _ధ_ తే |  
-స పంచమహాపాపా''త్ ప్ర _ము_ చ్యతే |  
-_సా_ యమ'ధీ _యా_ _నో_ దివసకృతం పాపం' నా _శ_ యతి |  
-_ప్రా_ తర'ధీ _యా_ _నో_ రాత్రికృతం పాపం' నా _శ_ యతి |  
-సాయం ప్రాతః ప్ర'యు _ంజా_ _నో_ పాపోఽపా'పో _భ_ వతి |  
-ధర్మార్థకామమోక్షం' చ _వి_ ందతి |  
-ఇదమథర్వశీర్షమశిష్యాయ' న _దే_ యమ్ |  
-యో యది మో'హాద్ _దా_ స్యతి స పాపీ'యాన్ _భ_ వతి |  
-సహస్రావర్తనాద్యం యం కామ'మ _ధీ_ తే |  
+స బ్రహ్మభూయా'య _క_ ల్పతే ｜  
+స సర్వవిఘ్నై''ర్న _బా_ ధ్యతే ｜  
+స సర్వతః సుఖ'మే _ధ_ తే ｜  
+స పంచమహాపాపా''త్ ప్ర _ము_ చ్యతే ｜  
+_సా_ యమ'ధీ _యా_ _నో_ దివసకృతం పాపం' నా _శ_ యతి ｜  
+_ప్రా_ తర'ధీ _యా_ _నో_ రాత్రికృతం పాపం' నా _శ_ యతి ｜  
+సాయం ప్రాతః ప్ర'యు _ంజా_ _నో_ పాపోఽపా'పో _భ_ వతి ｜  
+ధర్మార్థకామమోక్షం' చ _వి_ ందతి ｜  
+ఇదమథర్వశీర్షమశిష్యాయ' న _దే_ యమ్ ｜  
+యో యది మో'హాద్ _దా_ స్యతి స పాపీ'యాన్ _భ_ వతి ｜  
+సహస్రావర్తనాద్యం యం కామ'మ _ధీ_ తే ｜  
 తం తమనే'న _సా_ ధయేత్ ‖ 11 ‖  
 
 అనేన గణపతిమ'భి _షి_ ంచతి ❘  
-స వా'గ్మీ _భ_ వతి |  
-చతుర్థ్యామన'శ్నన్ _జ_ పతి స విద్యా'వాన్ _భ_ వతి |  
-ఇత్యథర్వ'ణ _వా_ క్యమ్ |  
+స వా'గ్మీ _భ_ వతి ｜  
+చతుర్థ్యామన'శ్నన్ _జ_ పతి స విద్యా'వాన్ _భ_ వతి ｜  
+ఇత్యథర్వ'ణ _వా_ క్యమ్ ｜  
 బ్రహ్మా _ద్యా_ చర'ణం _వి_ ద్యాన్న బిభేతి కదా'చ _నే_ తి ‖ 12 ‖  
 
 యో దూర్వాంకు'రై _ర్య_ జతి స వైశ్రవణోప'మో _భ_ వతి ❘  
-యో లా'జై _ర్య_ జతి స యశో'వాన్ _భ_ వతి |  
-స మేధా'వాన్ _భ_ వతి |  
-యో మోదకసహస్రే'ణ _య_ జతి స వాంఛితఫలమ'వా _ప్నో_ తి |  
+యో లా'జై _ర్య_ జతి స యశో'వాన్ _భ_ వతి ｜  
+స మేధా'వాన్ _భ_ వతి ｜  
+యో మోదకసహస్రే'ణ _య_ జతి స వాంఛితఫలమ'వా _ప్నో_ తి ｜  
 యః సాజ్య సమి'ద్భి _ర్య_ జతి స సర్వం లభతే స స'ర్వం _ల_ భతే ‖ 13 ‖  
 
 అష్టౌ బ్రాహ్మణాన్ సమ్యగ్ గ్రా'హ _యి_ త్వా సూర్యవర్చ'స్వీ _భ_ వతి ❘  
-సూర్యగ్రహే మ'హా _న_ ద్యాం ప్రతిమాసన్నిధౌ వా _జ_ ప్త్వా సిద్ధమ'ంత్రో _భ_ వతి |  
-మహావిఘ్నా''త్ ప్ర _ము_ చ్యతే |  
-మహాదోషా''త్ ప్ర _ము_ చ్యతే |  
-మహాపాపా''త్ ప్ర _ము_ చ్యతే |  
-మహాప్రత్యవాయా''త్ ప్ర _ము_ చ్యతే |  
-స సర్వ'విద్భవతి స సర్వ'వి _ద్భ_ వతి |  
-య ఏ'వం _వే_ ద |  
+సూర్యగ్రహే మ'హా _న_ ద్యాం ప్రతిమాసన్నిధౌ వా _జ_ ప్త్వా సిద్ధమ'ంత్రో _భ_ వతి ｜  
+మహావిఘ్నా''త్ ప్ర _ము_ చ్యతే ｜  
+మహాదోషా''త్ ప్ర _ము_ చ్యతే ｜  
+మహాపాపా''త్ ప్ర _ము_ చ్యతే ｜  
+మహాప్రత్యవాయా''త్ ప్ర _ము_ చ్యతే ｜  
+స సర్వ'విద్భవతి స సర్వ'వి _ద్భ_ వతి ｜  
+య ఏ'వం _వే_ ద ｜  
 ఇత్యు' _ప_ నిష'త్ ‖ 14 ‖  
 
 ఓం _భ_ ద్రం కర్ణే'భిః శృ _ణు_ యామ' దేవాః ❘  
-_భ_ ద్రం ప'శ్యే _మా_ క్ష _భి_ ర్యజ'త్రాః |  
-_స్థి_ రైరంగై''స్తు _ష్ఠు_ వాగ్^ం స' _స్త_ నూభిః' |  
-వ్యశే'మ _దే_ వహి' _తం_ యదాయుః' |  
-_స్వ_ స్తి _న_ ఇంద్రో' _వృ_ ద్ధశ్ర'వాః |  
-_స్వ_ స్తి నః' _పూ_ షా _వి_ శ్వవే'దాః |  
-_స్వ_ స్తి _న_ స్తా _ర్క్ష్యో_ అరి'ష్టనేమిః |  
+_భ_ ద్రం ప'శ్యే _మా_ క్ష _భి_ ర్యజ'త్రాః ｜  
+_స్థి_ రైరంగై''స్తు _ష్ఠు_ వాగ్^ం స' _స్త_ నూభిః' ｜  
+వ్యశే'మ _దే_ వహి' _తం_ యదాయుః' ｜  
+_స్వ_ స్తి _న_ ఇంద్రో' _వృ_ ద్ధశ్ర'వాః ｜  
+_స్వ_ స్తి నః' _పూ_ షా _వి_ శ్వవే'దాః ｜  
+_స్వ_ స్తి _న_ స్తా _ర్క్ష్యో_ అరి'ష్టనేమిః ｜  
 _స్వ_ స్తి _నో_ బృ _హ_ స్పతి'ర్దధాతు ‖  
 
 ఓం శా _ంతిః_ శా _ంతిః_ శాంతిః' ‖  
