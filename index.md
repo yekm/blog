@@ -8,3 +8,5 @@
 * [14.10.2021](vvt/) Очень старые песни
 * [18.04.2024](batchperf.html) flamegraph every 10 minutes of fsch.bcachefs
   perf data
+* [07.02.2026](melakarta.md) Mēḷakartā is a collection of fundamental ragas in
+  Carnatic music
