@@ -176,77 +176,78 @@ Grok:
 | ADITYA | 72 | [Rasikapriya](https://en.wikipedia.org/wiki/Rasikapriya) | S R3 G3 M2 P D3 N3 S | S N3 D3 P M2 G3 R3 S |
 
 
-| Chakra | Mela Number | Mela Name | Arohana | Avarohana | Graphic |
-|--------|-------------|-----------|----------|-----------|---------|
-| INDU | 1 | [Kanakangi](https://en.wikipedia.org/wiki/Kanakangi) | S R1 G1 M1 P D1 N1 S | S N1 D1 P M1 G1 R1 S | ⬤⬤⬤◯◯⬤◯⬤⬤⬤◯◯ |
-| INDU | 2 | [Ratnangi](https://en.wikipedia.org/wiki/Ratnangi) | S R1 G1 M1 P D1 N2 S | S N2 D1 P M1 G1 R1 S | ⬤⬤⬤◯◯⬤◯⬤⬤◯⬤◯ |
-| INDU | 3 | [Ganamurti](https://en.wikipedia.org/wiki/Ganamurti) | S R1 G1 M1 P D1 N3 S | S N3 D1 P M1 G1 R1 S | ⬤⬤⬤◯◯⬤◯⬤⬤◯◯⬤ |
-| INDU | 4 | [Vanaspati](https://en.wikipedia.org/wiki/Vanaspati) | S R1 G1 M1 P D2 N2 S | S N2 D2 P M1 G1 R1 S | ⬤⬤⬤◯◯⬤◯⬤◯⬤⬤◯ |
-| INDU | 5 | [Manavati](https://en.wikipedia.org/wiki/Manavati) | S R1 G1 M1 P D2 N3 S | S N3 D2 P M1 G1 R1 S | ⬤⬤⬤◯◯⬤◯⬤◯⬤◯⬤ |
-| INDU | 6 | [Tanarupi](https://en.wikipedia.org/wiki/Tanarupi) | S R1 G1 M1 P D3 N3 S | S N3 D3 P M1 G1 R1 S | ⬤⬤⬤◯◯⬤◯⬤◯◯⬤⬤ |
-| NETRA | 7 | [Senavati](https://en.wikipedia.org/wiki/Senavati) | S R1 G2 M1 P D1 N1 S | S N1 D1 P M1 G2 R1 S | ⬤⬤◯⬤◯⬤◯⬤⬤⬤◯◯ |
-| NETRA | 8 | [Hanumatodi](https://en.wikipedia.org/wiki/Hanumatodi) | S R1 G2 M1 P D1 N2 S | S N2 D1 P M1 G2 R1 S | ⬤⬤◯⬤◯⬤◯⬤⬤◯⬤◯ |
-| NETRA | 9 | [Dhenuka](https://en.wikipedia.org/wiki/Dhenuka) | S R1 G2 M1 P D1 N3 S | S N3 D1 P M1 G2 R1 S | ⬤⬤◯⬤◯⬤◯⬤⬤◯◯⬤ |
-| NETRA | 10 | [Natakapriya](https://en.wikipedia.org/wiki/Natakapriya) | S R1 G2 M1 P D2 N2 S | S N2 D2 P M1 G2 R1 S | ⬤⬤◯⬤◯⬤◯⬤◯⬤⬤◯ |
-| NETRA | 11 | [Kokilapriya](https://en.wikipedia.org/wiki/Kokilapriya) | S R1 G2 M1 P D2 N3 S | S N3 D2 P M1 G2 R1 S | ⬤⬤◯⬤◯⬤◯⬤◯⬤◯⬤ |
-| NETRA | 12 | [Rupavati](https://en.wikipedia.org/wiki/Rupavati) | S R1 G2 M1 P D3 N3 S | S N3 D3 P M1 G2 R1 S | ⬤⬤◯⬤◯⬤◯⬤◯◯⬤⬤ |
-| AGNI | 13 | [Gayakapriya](https://en.wikipedia.org/wiki/Gayakapriya) | S R1 G3 M1 P D1 N1 S | S N1 D1 P M1 G3 R1 S | ⬤⬤◯◯⬤⬤◯⬤⬤⬤◯◯ |
-| AGNI | 14 | [Vakulabharanam](https://en.wikipedia.org/wiki/Vakulabharanam) | S R1 G3 M1 P D1 N2 S | S N2 D1 P M1 G3 R1 S | ⬤⬤◯◯⬤⬤◯⬤⬤◯⬤◯ |
-| AGNI | 15 | [Mayamalavagaula](https://en.wikipedia.org/wiki/Mayamalavagaula) | S R1 G3 M1 P D1 N3 S | S N3 D1 P M1 G3 R1 S | ⬤⬤◯◯⬤⬤◯⬤⬤◯◯⬤ |
-| AGNI | 16 | [Chakravakam](https://en.wikipedia.org/wiki/Chakravakam) | S R1 G3 M1 P D2 N2 S | S N2 D2 P M1 G3 R1 S | ⬤⬤◯◯⬤⬤◯⬤◯⬤⬤◯ |
-| AGNI | 17 | [Suryakantam](https://en.wikipedia.org/wiki/Suryakantam) | S R1 G3 M1 P D2 N3 S | S N3 D2 P M1 G3 R1 S | ⬤⬤◯◯⬤⬤◯⬤◯⬤◯⬤ |
-| AGNI | 18 | [Hatakambari](https://en.wikipedia.org/wiki/Hatakambari) | S R1 G3 M1 P D3 N3 S | S N3 D3 P M1 G3 R1 S | ⬤⬤◯◯⬤⬤◯⬤◯◯⬤⬤ |
-| VEDA | 19 | [Jhankaradhwani](https://en.wikipedia.org/wiki/Jhankaradhwani) | S R2 G2 M1 P D1 N1 S | S N1 D1 P M1 G2 R2 S | ⬤◯⬤⬤◯⬤◯⬤⬤⬤◯◯ |
-| VEDA | 20 | [Natabhairavi](https://en.wikipedia.org/wiki/Natabhairavi) | S R2 G2 M1 P D1 N2 S | S N2 D1 P M1 G2 R2 S | ⬤◯⬤⬤◯⬤◯⬤⬤◯⬤◯ |
-| VEDA | 21 | [Keeravani](https://en.wikipedia.org/wiki/Keeravani) | S R2 G2 M1 P D1 N3 S | S N3 D1 P M1 G2 R2 S | ⬤◯⬤⬤◯⬤◯⬤⬤◯◯⬤ |
-| VEDA | 22 | [Kharaharapriya](https://en.wikipedia.org/wiki/Kharaharapriya) | S R2 G2 M1 P D2 N2 S | S N2 D2 P M1 G2 R2 S | ⬤◯⬤⬤◯⬤◯⬤◯⬤⬤◯ |
-| VEDA | 23 | [Gowrimanohari](https://en.wikipedia.org/wiki/Gowrimanohari) | S R2 G2 M1 P D2 N3 S | S N3 D2 P M1 G2 R2 S | ⬤◯⬤⬤◯⬤◯⬤◯⬤◯⬤ |
-| VEDA | 24 | [Varunapriya](https://en.wikipedia.org/wiki/Varunapriya) | S R2 G2 M1 P D3 N3 S | S N3 D3 P M1 G2 R2 S | ⬤◯⬤⬤◯⬤◯⬤◯◯⬤⬤ |
-| BANA | 25 | [Mararanjani](https://en.wikipedia.org/wiki/Mararanjani) | S R2 G3 M1 P D1 N1 S | S N1 D1 P M1 G3 R2 S | ⬤◯⬤◯⬤⬤◯⬤⬤⬤◯◯ |
-| BANA | 26 | [Charukesi](https://en.wikipedia.org/wiki/Charukesi) | S R2 G3 M1 P D1 N2 S | S N2 D1 P M1 G3 R2 S | ⬤◯⬤◯⬤⬤◯⬤⬤◯⬤◯ |
-| BANA | 27 | [Sarasangi](https://en.wikipedia.org/wiki/Sarasangi) | S R2 G3 M1 P D1 N3 S | S N3 D1 P M1 G3 R2 S | ⬤◯⬤◯⬤⬤◯⬤⬤◯◯⬤ |
-| BANA | 28 | [Harikambhoji](https://en.wikipedia.org/wiki/Harikambhoji) | S R2 G3 M1 P D2 N2 S | S N2 D2 P M1 G3 R2 S | ⬤◯⬤◯⬤⬤◯⬤◯⬤⬤◯ |
-| BANA | 29 | [Dheerashankarabharanam](https://en.wikipedia.org/wiki/Dheerashankarabharanam) | S R2 G3 M1 P D2 N3 S | S N3 D2 P M1 G3 R2 S | ⬤◯⬤◯⬤⬤◯⬤◯⬤◯⬤ |
-| BANA | 30 | [Naganandini](https://en.wikipedia.org/wiki/Naganandini) | S R2 G3 M1 P D3 N3 S | S N3 D3 P M1 G3 R2 S | ⬤◯⬤◯⬤⬤◯⬤◯◯⬤⬤ |
-| RUTU | 31 | [Yagapriya](https://en.wikipedia.org/wiki/Yagapriya) | S R3 G3 M1 P D1 N1 S | S N1 D1 P M1 G3 R3 S | ⬤◯◯⬤⬤⬤◯⬤⬤⬤◯◯ |
-| RUTU | 32 | [Ragavardhani](https://en.wikipedia.org/wiki/Ragavardhani) | S R3 G3 M1 P D1 N2 S | S N2 D1 P M1 G3 R3 S | ⬤◯◯⬤⬤⬤◯⬤⬤◯⬤◯ |
-| RUTU | 33 | [Gangeyabhushani](https://en.wikipedia.org/wiki/Gangeyabhushani) | S R3 G3 M1 P D1 N3 S | S N3 D1 P M1 G3 R3 S | ⬤◯◯⬤⬤⬤◯⬤⬤◯◯⬤ |
-| RUTU | 34 | [Vagadheeswari](https://en.wikipedia.org/wiki/Vagadheeswari) | S R3 G3 M1 P D2 N2 S | S N2 D2 P M1 G3 R3 S | ⬤◯◯⬤⬤⬤◯⬤◯⬤⬤◯ |
-| RUTU | 35 | [Soolini](https://en.wikipedia.org/wiki/Soolini) | S R3 G3 M1 P D2 N3 S | S N3 D2 P M1 G3 R3 S | ⬤◯◯⬤⬤⬤◯⬤◯⬤◯⬤ |
-| RUTU | 36 | [Chalanata](https://en.wikipedia.org/wiki/Chalanata) | S R3 G3 M1 P D3 N3 S | S N3 D3 P M1 G3 R3 S | ⬤◯◯⬤⬤⬤◯⬤◯◯⬤⬤ |
-| RISHI | 37 | [Salagam](https://en.wikipedia.org/wiki/Salagam) | S R1 G1 M2 P D1 N1 S | S N1 D1 P M2 G1 R1 S | ⬤⬤⬤◯◯◯⬤⬤⬤⬤◯◯ |
-| RISHI | 38 | [Jalarnavam](https://en.wikipedia.org/wiki/Jalarnavam) | S R1 G1 M2 P D1 N2 S | S N2 D1 P M2 G1 R1 S | ⬤⬤⬤◯◯◯⬤⬤⬤◯⬤◯ |
-| RISHI | 39 | [Jhalavarali](https://en.wikipedia.org/wiki/Jhalavarali) | S R1 G1 M2 P D1 N3 S | S N3 D1 P M2 G1 R1 S | ⬤⬤⬤◯◯◯⬤⬤⬤◯◯⬤ |
-| RISHI | 40 | [Navaneetam](https://en.wikipedia.org/wiki/Navaneetam) | S R1 G1 M2 P D2 N2 S | S N2 D2 P M2 G1 R1 S | ⬤⬤⬤◯◯◯⬤⬤◯⬤⬤◯ |
-| RISHI | 41 | [Pavani](https://en.wikipedia.org/wiki/Pavani) | S R1 G1 M2 P D2 N3 S | S N3 D2 P M2 G1 R1 S | ⬤⬤⬤◯◯◯⬤⬤◯⬤◯⬤ |
-| RISHI | 42 | [Raghupriya](https://en.wikipedia.org/wiki/Raghupriya) | S R1 G1 M2 P D3 N3 S | S N3 D3 P M2 G1 R1 S | ⬤⬤⬤◯◯◯⬤⬤◯◯⬤⬤ |
-| VASU | 43 | [Gavambodhi](https://en.wikipedia.org/wiki/Gavambodhi) | S R1 G2 M2 P D1 N1 S | S N1 D1 P M2 G2 R1 S | ⬤⬤◯⬤◯◯⬤⬤⬤⬤◯◯ |
-| VASU | 44 | [Bhavapriya](https://en.wikipedia.org/wiki/Bhavapriya) | S R1 G2 M2 P D1 N2 S | S N2 D1 P M2 G2 R1 S | ⬤⬤◯⬤◯◯⬤⬤⬤◯⬤◯ |
-| VASU | 45 | [Subhapantuvarali](https://en.wikipedia.org/wiki/Subhapantuvarali) | S R1 G2 M2 P D1 N3 S | S N3 D1 P M2 G2 R1 S | ⬤⬤◯⬤◯◯⬤⬤⬤◯◯⬤ |
-| VASU | 46 | [Shadvidhamargini](https://en.wikipedia.org/wiki/Shadvidhamargini) | S R1 G2 M2 P D2 N2 S | S N2 D2 P M2 G2 R1 S | ⬤⬤◯⬤◯◯⬤⬤◯⬤⬤◯ |
-| VASU | 47 | [Suvarnangi](https://en.wikipedia.org/wiki/Suvarnangi) | S R1 G2 M2 P D2 N3 S | S N3 D2 P M2 G2 R1 S | ⬤⬤◯⬤◯◯⬤⬤◯⬤◯⬤ |
-| VASU | 48 | [Divyamani](https://en.wikipedia.org/wiki/Divyamani) | S R1 G2 M2 P D3 N3 S | S N3 D3 P M2 G2 R1 S | ⬤⬤◯⬤◯◯⬤⬤◯◯⬤⬤ |
-| BRAHMA | 49 | [Dhavalambari](https://en.wikipedia.org/wiki/Dhavalambari) | S R1 G3 M2 P D1 N1 S | S N1 D1 P M2 G3 R1 S | ⬤⬤◯◯⬤◯⬤⬤⬤⬤◯◯ |
-| BRAHMA | 50 | [Namanarayani](https://en.wikipedia.org/wiki/Namanarayani) | S R1 G3 M2 P D1 N2 S | S N2 D1 P M2 G3 R1 S | ⬤⬤◯◯⬤◯⬤⬤⬤◯⬤◯ |
-| BRAHMA | 51 | [Kamavardhini](https://en.wikipedia.org/wiki/Kamavardhini) | S R1 G3 M2 P D1 N3 S | S N3 D1 P M2 G3 R1 S | ⬤⬤◯◯⬤◯⬤⬤⬤◯◯⬤ |
-| BRAHMA | 52 | [Ramapriya](https://en.wikipedia.org/wiki/Ramapriya) | S R1 G3 M2 P D2 N2 S | S N2 D2 P M2 G3 R1 S | ⬤⬤◯◯⬤◯⬤⬤◯⬤⬤◯ |
-| BRAHMA | 53 | [Gamanasrama](https://en.wikipedia.org/wiki/Gamanasrama) | S R1 G3 M2 P D2 N3 S | S N3 D2 P M2 G3 R1 S | ⬤⬤◯◯⬤◯⬤⬤◯⬤◯⬤ |
-| BRAHMA | 54 | [Viswambari](https://en.wikipedia.org/wiki/Viswambari) | S R1 G3 M2 P D3 N3 S | S N3 D3 P M2 G3 R1 S | ⬤⬤◯◯⬤◯⬤⬤◯◯⬤⬤ |
-| DISHI | 55 | [Syamalangi](https://en.wikipedia.org/wiki/Syamalangi) | S R2 G2 M2 P D1 N1 S | S N1 D1 P M2 G2 R2 S | ⬤◯⬤⬤◯◯⬤⬤⬤⬤◯◯ |
-| DISHI | 56 | [Shanmukhapriya](https://en.wikipedia.org/wiki/Shanmukhapriya) | S R2 G2 M2 P D1 N2 S | S N2 D1 P M2 G2 R2 S | ⬤◯⬤⬤◯◯⬤⬤⬤◯⬤◯ |
-| DISHI | 57 | [Simhendramadhyamam](https://en.wikipedia.org/wiki/Simhendramadhyamam) | S R2 G2 M2 P D1 N3 S | S N3 D1 P M2 G2 R2 S | ⬤◯⬤⬤◯◯⬤⬤⬤◯◯⬤ |
-| DISHI | 58 | [Hemavati](https://en.wikipedia.org/wiki/Hemavati) | S R2 G2 M2 P D2 N2 S | S N2 D2 P M2 G2 R2 S | ⬤◯⬤⬤◯◯⬤⬤◯⬤⬤◯ |
-| DISHI | 59 | [Dharmavati](https://en.wikipedia.org/wiki/Dharmavati) | S R2 G2 M2 P D2 N3 S | S N3 D2 P M2 G2 R2 S | ⬤◯⬤⬤◯◯⬤⬤◯⬤◯⬤ |
-| DISHI | 60 | [Neetimati](https://en.wikipedia.org/wiki/Neetimati) | S R2 G2 M2 P D3 N3 S | S N3 D3 P M2 G2 R2 S | ⬤◯⬤⬤◯◯⬤⬤◯◯⬤⬤ |
-| RUDRA | 61 | [Kantamani](https://en.wikipedia.org/wiki/Kantamani) | S R2 G3 M2 P D1 N1 S | S N1 D1 P M2 G3 R2 S | ⬤◯⬤◯⬤◯⬤⬤⬤⬤◯◯ |
-| RUDRA | 62 | [Rishabhapriya](https://en.wikipedia.org/wiki/Rishabhapriya) | S R2 G3 M2 P D1 N2 S | S N2 D1 P M2 G3 R2 S | ⬤◯⬤◯⬤◯⬤⬤⬤◯⬤◯ |
-| RUDRA | 63 | [Latangi](https://en.wikipedia.org/wiki/Latangi) | S R2 G3 M2 P D1 N3 S | S N3 D1 P M2 G3 R2 S | ⬤◯⬤◯⬤◯⬤⬤⬤◯◯⬤ |
-| RUDRA | 64 | [Vachaspati](https://en.wikipedia.org/wiki/Vachaspati) | S R2 G3 M2 P D2 N2 S | S N2 D2 P M2 G3 R2 S | ⬤◯⬤◯⬤◯⬤⬤◯⬤⬤◯ |
-| RUDRA | 65 | [Mechakalyani](https://en.wikipedia.org/wiki/Mechakalyani) | S R2 G3 M2 P D2 N3 S | S N3 D2 P M2 G3 R2 S | ⬤◯⬤◯⬤◯⬤⬤◯⬤◯⬤ |
-| RUDRA | 66 | [Chitrambari](https://en.wikipedia.org/wiki/Chitrambari) | S R2 G3 M2 P D3 N3 S | S N3 D3 P M2 G3 R2 S | ⬤◯⬤◯⬤◯⬤⬤◯◯⬤⬤ |
-| ADITYA | 67 | [Sucharitra](https://en.wikipedia.org/wiki/Sucharitra) | S R3 G3 M2 P D1 N1 S | S N1 D1 P M2 G3 R3 S | ⬤◯◯⬤⬤◯⬤⬤⬤⬤◯◯ |
-| ADITYA | 68 | [Jyotiswaroopini](https://en.wikipedia.org/wiki/Jyotiswaroopini) | S R3 G3 M2 P D1 N2 S | S N2 D1 P M2 G3 R3 S | ⬤◯◯⬤⬤◯⬤⬤⬤◯⬤◯ |
-| ADITYA | 69 | [Dhatuvardhini](https://en.wikipedia.org/wiki/Dhatuvardhini) | S R3 G3 M2 P D1 N3 S | S N3 D1 P M2 G3 R3 S | ⬤◯◯⬤⬤◯⬤⬤⬤◯◯⬤ |
-| ADITYA | 70 | [Nasikabhooshani](https://en.wikipedia.org/wiki/Nasikabhooshani) | S R3 G3 M2 P D2 N2 S | S N2 D2 P M2 G3 R3 S | ⬤◯◯⬤⬤◯⬤⬤◯⬤⬤◯ |
-| ADITYA | 71 | [Kosalam](https://en.wikipedia.org/wiki/Kosalam) | S R3 G3 M2 P D2 N3 S | S N3 D2 P M2 G3 R3 S | ⬤◯◯⬤⬤◯⬤⬤◯⬤◯⬤ |
-| ADITYA | 72 | [Rasikapriya](https://en.wikipedia.org/wiki/Rasikapriya) | S R3 G3 M2 P D3 N3 S | S N3 D3 P M2 G3 R3 S | ⬤◯◯⬤⬤◯⬤⬤◯◯⬤⬤ |
+| Chakra | Mela Number | Mela Name                                                                      | Arohana              | Graphic      |
+|--------|-------------|-----------                                                                     |----------            |---------     |
+| INDU   | 1           | [Kanakangi](https://en.wikipedia.org/wiki/Kanakangi)                           | S R1 G1 M1 P D1 N1 S | ⬤⬤⬤◯◯⬤◯⬤⬤⬤◯◯ |
+| INDU   | 2           | [Ratnangi](https://en.wikipedia.org/wiki/Ratnangi)                             | S R1 G1 M1 P D1 N2 S | ⬤⬤⬤◯◯⬤◯⬤⬤◯⬤◯ |
+| INDU   | 3           | [Ganamurti](https://en.wikipedia.org/wiki/Ganamurti)                           | S R1 G1 M1 P D1 N3 S | ⬤⬤⬤◯◯⬤◯⬤⬤◯◯⬤ |
+| INDU   | 4           | [Vanaspati](https://en.wikipedia.org/wiki/Vanaspati)                           | S R1 G1 M1 P D2 N2 S | ⬤⬤⬤◯◯⬤◯⬤◯⬤⬤◯ |
+| INDU   | 5           | [Manavati](https://en.wikipedia.org/wiki/Manavati)                             | S R1 G1 M1 P D2 N3 S | ⬤⬤⬤◯◯⬤◯⬤◯⬤◯⬤ |
+| INDU   | 6           | [Tanarupi](https://en.wikipedia.org/wiki/Tanarupi)                             | S R1 G1 M1 P D3 N3 S | ⬤⬤⬤◯◯⬤◯⬤◯◯⬤⬤ |
+| NETRA  | 7           | [Senavati](https://en.wikipedia.org/wiki/Senavati)                             | S R1 G2 M1 P D1 N1 S | ⬤⬤◯⬤◯⬤◯⬤⬤⬤◯◯ |
+| NETRA  | 8           | [Hanumatodi](https://en.wikipedia.org/wiki/Hanumatodi)                         | S R1 G2 M1 P D1 N2 S | ⬤⬤◯⬤◯⬤◯⬤⬤◯⬤◯ |
+| NETRA  | 9           | [Dhenuka](https://en.wikipedia.org/wiki/Dhenuka)                               | S R1 G2 M1 P D1 N3 S | ⬤⬤◯⬤◯⬤◯⬤⬤◯◯⬤ |
+| NETRA  | 10          | [Natakapriya](https://en.wikipedia.org/wiki/Natakapriya)                       | S R1 G2 M1 P D2 N2 S | ⬤⬤◯⬤◯⬤◯⬤◯⬤⬤◯ |
+| NETRA  | 11          | [Kokilapriya](https://en.wikipedia.org/wiki/Kokilapriya)                       | S R1 G2 M1 P D2 N3 S | ⬤⬤◯⬤◯⬤◯⬤◯⬤◯⬤ |
+| NETRA  | 12          | [Rupavati](https://en.wikipedia.org/wiki/Rupavati)                             | S R1 G2 M1 P D3 N3 S | ⬤⬤◯⬤◯⬤◯⬤◯◯⬤⬤ |
+| AGNI   | 13          | [Gayakapriya](https://en.wikipedia.org/wiki/Gayakapriya)                       | S R1 G3 M1 P D1 N1 S | ⬤⬤◯◯⬤⬤◯⬤⬤⬤◯◯ |
+| AGNI   | 14          | [Vakulabharanam](https://en.wikipedia.org/wiki/Vakulabharanam)                 | S R1 G3 M1 P D1 N2 S | ⬤⬤◯◯⬤⬤◯⬤⬤◯⬤◯ |
+| AGNI   | 15          | [Mayamalavagaula](https://en.wikipedia.org/wiki/Mayamalavagaula)               | S R1 G3 M1 P D1 N3 S | ⬤⬤◯◯⬤⬤◯⬤⬤◯◯⬤ |
+| AGNI   | 16          | [Chakravakam](https://en.wikipedia.org/wiki/Chakravakam)                       | S R1 G3 M1 P D2 N2 S | ⬤⬤◯◯⬤⬤◯⬤◯⬤⬤◯ |
+| AGNI   | 17          | [Suryakantam](https://en.wikipedia.org/wiki/Suryakantam)                       | S R1 G3 M1 P D2 N3 S | ⬤⬤◯◯⬤⬤◯⬤◯⬤◯⬤ |
+| AGNI   | 18          | [Hatakambari](https://en.wikipedia.org/wiki/Hatakambari)                       | S R1 G3 M1 P D3 N3 S | ⬤⬤◯◯⬤⬤◯⬤◯◯⬤⬤ |
+| VEDA   | 19          | [Jhankaradhwani](https://en.wikipedia.org/wiki/Jhankaradhwani)                 | S R2 G2 M1 P D1 N1 S | ⬤◯⬤⬤◯⬤◯⬤⬤⬤◯◯ |
+| VEDA   | 20          | [Natabhairavi](https://en.wikipedia.org/wiki/Natabhairavi)                     | S R2 G2 M1 P D1 N2 S | ⬤◯⬤⬤◯⬤◯⬤⬤◯⬤◯ |
+| VEDA   | 21          | [Keeravani](https://en.wikipedia.org/wiki/Keeravani)                           | S R2 G2 M1 P D1 N3 S | ⬤◯⬤⬤◯⬤◯⬤⬤◯◯⬤ |
+| VEDA   | 22          | [Kharaharapriya](https://en.wikipedia.org/wiki/Kharaharapriya)                 | S R2 G2 M1 P D2 N2 S | ⬤◯⬤⬤◯⬤◯⬤◯⬤⬤◯ |
+| VEDA   | 23          | [Gowrimanohari](https://en.wikipedia.org/wiki/Gowrimanohari)                   | S R2 G2 M1 P D2 N3 S | ⬤◯⬤⬤◯⬤◯⬤◯⬤◯⬤ |
+| VEDA   | 24          | [Varunapriya](https://en.wikipedia.org/wiki/Varunapriya)                       | S R2 G2 M1 P D3 N3 S | ⬤◯⬤⬤◯⬤◯⬤◯◯⬤⬤ |
+| BANA   | 25          | [Mararanjani](https://en.wikipedia.org/wiki/Mararanjani)                       | S R2 G3 M1 P D1 N1 S | ⬤◯⬤◯⬤⬤◯⬤⬤⬤◯◯ |
+| BANA   | 26          | [Charukesi](https://en.wikipedia.org/wiki/Charukesi)                           | S R2 G3 M1 P D1 N2 S | ⬤◯⬤◯⬤⬤◯⬤⬤◯⬤◯ |
+| BANA   | 27          | [Sarasangi](https://en.wikipedia.org/wiki/Sarasangi)                           | S R2 G3 M1 P D1 N3 S | ⬤◯⬤◯⬤⬤◯⬤⬤◯◯⬤ |
+| BANA   | 28          | [Harikambhoji](https://en.wikipedia.org/wiki/Harikambhoji)                     | S R2 G3 M1 P D2 N2 S | ⬤◯⬤◯⬤⬤◯⬤◯⬤⬤◯ |
+| BANA   | 29          | [Dheerashankarabharanam](https://en.wikipedia.org/wiki/Dheerashankarabharanam) | S R2 G3 M1 P D2 N3 S | ⬤◯⬤◯⬤⬤◯⬤◯⬤◯⬤ |
+| BANA   | 30          | [Naganandini](https://en.wikipedia.org/wiki/Naganandini)                       | S R2 G3 M1 P D3 N3 S | ⬤◯⬤◯⬤⬤◯⬤◯◯⬤⬤ |
+| RUTU   | 31          | [Yagapriya](https://en.wikipedia.org/wiki/Yagapriya)                           | S R3 G3 M1 P D1 N1 S | ⬤◯◯⬤⬤⬤◯⬤⬤⬤◯◯ |
+| RUTU   | 32          | [Ragavardhani](https://en.wikipedia.org/wiki/Ragavardhani)                     | S R3 G3 M1 P D1 N2 S | ⬤◯◯⬤⬤⬤◯⬤⬤◯⬤◯ |
+| RUTU   | 33          | [Gangeyabhushani](https://en.wikipedia.org/wiki/Gangeyabhushani)               | S R3 G3 M1 P D1 N3 S | ⬤◯◯⬤⬤⬤◯⬤⬤◯◯⬤ |
+| RUTU   | 34          | [Vagadheeswari](https://en.wikipedia.org/wiki/Vagadheeswari)                   | S R3 G3 M1 P D2 N2 S | ⬤◯◯⬤⬤⬤◯⬤◯⬤⬤◯ |
+| RUTU   | 35          | [Soolini](https://en.wikipedia.org/wiki/Soolini)                               | S R3 G3 M1 P D2 N3 S | ⬤◯◯⬤⬤⬤◯⬤◯⬤◯⬤ |
+| RUTU   | 36          | [Chalanata](https://en.wikipedia.org/wiki/Chalanata)                           | S R3 G3 M1 P D3 N3 S | ⬤◯◯⬤⬤⬤◯⬤◯◯⬤⬤ |
+| RISHI  | 37          | [Salagam](https://en.wikipedia.org/wiki/Salagam)                               | S R1 G1 M2 P D1 N1 S | ⬤⬤⬤◯◯◯⬤⬤⬤⬤◯◯ |
+| RISHI  | 38          | [Jalarnavam](https://en.wikipedia.org/wiki/Jalarnavam)                         | S R1 G1 M2 P D1 N2 S | ⬤⬤⬤◯◯◯⬤⬤⬤◯⬤◯ |
+| RISHI  | 39          | [Jhalavarali](https://en.wikipedia.org/wiki/Jhalavarali)                       | S R1 G1 M2 P D1 N3 S | ⬤⬤⬤◯◯◯⬤⬤⬤◯◯⬤ |
+| RISHI  | 40          | [Navaneetam](https://en.wikipedia.org/wiki/Navaneetam)                         | S R1 G1 M2 P D2 N2 S | ⬤⬤⬤◯◯◯⬤⬤◯⬤⬤◯ |
+| RISHI  | 41          | [Pavani](https://en.wikipedia.org/wiki/Pavani)                                 | S R1 G1 M2 P D2 N3 S | ⬤⬤⬤◯◯◯⬤⬤◯⬤◯⬤ |
+| RISHI  | 42          | [Raghupriya](https://en.wikipedia.org/wiki/Raghupriya)                         | S R1 G1 M2 P D3 N3 S | ⬤⬤⬤◯◯◯⬤⬤◯◯⬤⬤ |
+| VASU   | 43          | [Gavambodhi](https://en.wikipedia.org/wiki/Gavambodhi)                         | S R1 G2 M2 P D1 N1 S | ⬤⬤◯⬤◯◯⬤⬤⬤⬤◯◯ |
+| VASU   | 44          | [Bhavapriya](https://en.wikipedia.org/wiki/Bhavapriya)                         | S R1 G2 M2 P D1 N2 S | ⬤⬤◯⬤◯◯⬤⬤⬤◯⬤◯ |
+| VASU   | 45          | [Subhapantuvarali](https://en.wikipedia.org/wiki/Subhapantuvarali)             | S R1 G2 M2 P D1 N3 S | ⬤⬤◯⬤◯◯⬤⬤⬤◯◯⬤ |
+| VASU   | 46          | [Shadvidhamargini](https://en.wikipedia.org/wiki/Shadvidhamargini)             | S R1 G2 M2 P D2 N2 S | ⬤⬤◯⬤◯◯⬤⬤◯⬤⬤◯ |
+| VASU   | 47          | [Suvarnangi](https://en.wikipedia.org/wiki/Suvarnangi)                         | S R1 G2 M2 P D2 N3 S | ⬤⬤◯⬤◯◯⬤⬤◯⬤◯⬤ |
+| VASU   | 48          | [Divyamani](https://en.wikipedia.org/wiki/Divyamani)                           | S R1 G2 M2 P D3 N3 S | ⬤⬤◯⬤◯◯⬤⬤◯◯⬤⬤ |
+| BRAHMA | 49          | [Dhavalambari](https://en.wikipedia.org/wiki/Dhavalambari)                     | S R1 G3 M2 P D1 N1 S | ⬤⬤◯◯⬤◯⬤⬤⬤⬤◯◯ |
+| BRAHMA | 50          | [Namanarayani](https://en.wikipedia.org/wiki/Namanarayani)                     | S R1 G3 M2 P D1 N2 S | ⬤⬤◯◯⬤◯⬤⬤⬤◯⬤◯ |
+| BRAHMA | 51          | [Kamavardhini](https://en.wikipedia.org/wiki/Kamavardhini)                     | S R1 G3 M2 P D1 N3 S | ⬤⬤◯◯⬤◯⬤⬤⬤◯◯⬤ |
+| BRAHMA | 52          | [Ramapriya](https://en.wikipedia.org/wiki/Ramapriya)                           | S R1 G3 M2 P D2 N2 S | ⬤⬤◯◯⬤◯⬤⬤◯⬤⬤◯ |
+| BRAHMA | 53          | [Gamanasrama](https://en.wikipedia.org/wiki/Gamanasrama)                       | S R1 G3 M2 P D2 N3 S | ⬤⬤◯◯⬤◯⬤⬤◯⬤◯⬤ |
+| BRAHMA | 54          | [Viswambari](https://en.wikipedia.org/wiki/Viswambari)                         | S R1 G3 M2 P D3 N3 S | ⬤⬤◯◯⬤◯⬤⬤◯◯⬤⬤ |
+| DISHI  | 55          | [Syamalangi](https://en.wikipedia.org/wiki/Syamalangi)                         | S R2 G2 M2 P D1 N1 S | ⬤◯⬤⬤◯◯⬤⬤⬤⬤◯◯ |
+| DISHI  | 56          | [Shanmukhapriya](https://en.wikipedia.org/wiki/Shanmukhapriya)                 | S R2 G2 M2 P D1 N2 S | ⬤◯⬤⬤◯◯⬤⬤⬤◯⬤◯ |
+| DISHI  | 57          | [Simhendramadhyamam](https://en.wikipedia.org/wiki/Simhendramadhyamam)         | S R2 G2 M2 P D1 N3 S | ⬤◯⬤⬤◯◯⬤⬤⬤◯◯⬤ |
+| DISHI  | 58          | [Hemavati](https://en.wikipedia.org/wiki/Hemavati)                             | S R2 G2 M2 P D2 N2 S | ⬤◯⬤⬤◯◯⬤⬤◯⬤⬤◯ |
+| DISHI  | 59          | [Dharmavati](https://en.wikipedia.org/wiki/Dharmavati)                         | S R2 G2 M2 P D2 N3 S | ⬤◯⬤⬤◯◯⬤⬤◯⬤◯⬤ |
+| DISHI  | 60          | [Neetimati](https://en.wikipedia.org/wiki/Neetimati)                           | S R2 G2 M2 P D3 N3 S | ⬤◯⬤⬤◯◯⬤⬤◯◯⬤⬤ |
+| RUDRA  | 61          | [Kantamani](https://en.wikipedia.org/wiki/Kantamani)                           | S R2 G3 M2 P D1 N1 S | ⬤◯⬤◯⬤◯⬤⬤⬤⬤◯◯ |
+| RUDRA  | 62          | [Rishabhapriya](https://en.wikipedia.org/wiki/Rishabhapriya)                   | S R2 G3 M2 P D1 N2 S | ⬤◯⬤◯⬤◯⬤⬤⬤◯⬤◯ |
+| RUDRA  | 63          | [Latangi](https://en.wikipedia.org/wiki/Latangi)                               | S R2 G3 M2 P D1 N3 S | ⬤◯⬤◯⬤◯⬤⬤⬤◯◯⬤ |
+| RUDRA  | 64          | [Vachaspati](https://en.wikipedia.org/wiki/Vachaspati)                         | S R2 G3 M2 P D2 N2 S | ⬤◯⬤◯⬤◯⬤⬤◯⬤⬤◯ |
+| RUDRA  | 65          | [Mechakalyani](https://en.wikipedia.org/wiki/Mechakalyani)                     | S R2 G3 M2 P D2 N3 S | ⬤◯⬤◯⬤◯⬤⬤◯⬤◯⬤ |
+| RUDRA  | 66          | [Chitrambari](https://en.wikipedia.org/wiki/Chitrambari)                       | S R2 G3 M2 P D3 N3 S | ⬤◯⬤◯⬤◯⬤⬤◯◯⬤⬤ |
+| ADITYA | 67          | [Sucharitra](https://en.wikipedia.org/wiki/Sucharitra)                         | S R3 G3 M2 P D1 N1 S | ⬤◯◯⬤⬤◯⬤⬤⬤⬤◯◯ |
+| ADITYA | 68          | [Jyotiswaroopini](https://en.wikipedia.org/wiki/Jyotiswaroopini)               | S R3 G3 M2 P D1 N2 S | ⬤◯◯⬤⬤◯⬤⬤⬤◯⬤◯ |
+| ADITYA | 69          | [Dhatuvardhini](https://en.wikipedia.org/wiki/Dhatuvardhini)                   | S R3 G3 M2 P D1 N3 S | ⬤◯◯⬤⬤◯⬤⬤⬤◯◯⬤ |
+| ADITYA | 70          | [Nasikabhooshani](https://en.wikipedia.org/wiki/Nasikabhooshani)               | S R3 G3 M2 P D2 N2 S | ⬤◯◯⬤⬤◯⬤⬤◯⬤⬤◯ |
+| ADITYA | 71          | [Kosalam](https://en.wikipedia.org/wiki/Kosalam)                               | S R3 G3 M2 P D2 N3 S | ⬤◯◯⬤⬤◯⬤⬤◯⬤◯⬤ |
+| ADITYA | 72          | [Rasikapriya](https://en.wikipedia.org/wiki/Rasikapriya)                       | S R3 G3 M2 P D3 N3 S | ⬤◯◯⬤⬤◯⬤⬤◯◯⬤⬤ |
+
